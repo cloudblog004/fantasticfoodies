@@ -18,7 +18,7 @@ jobs:
           hugo-version: "0.88.0"
 
       - name: Jalankan Hugo
-        run: hugo --disableKinds=taxonomy,taxonomyTerm,RSS
+        run: hugo --disableKinds=taxonomy,taxonomyTerm
 
       - name: 'Deploy ke Netlify'
         uses: jsmrcaga/action-netlify-deploy@v1.2.0

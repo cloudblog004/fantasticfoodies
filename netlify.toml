@@ -1,6 +1,6 @@
 [build]
 publish = "public"
-command = "hugo --disableKinds=taxonomy,taxonomyTerm,RSS"
+command = "hugo --disableKinds=taxonomy,taxonomyTerm"
 
 [context.production.environment]
 HUGO_VERSION = "0.88.0"
