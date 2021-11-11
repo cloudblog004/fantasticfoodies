@@ -2,6 +2,7 @@ baseURL = "https://fantasticfoodies.netlify.app"
 title = "Fantastic Food"
 theme = "zzo"
 
+
 defaultContentLanguage = "en"
 defaultContentLanguageInSubdir = false
 hasCJKLanguage = true
