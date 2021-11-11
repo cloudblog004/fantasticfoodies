@@ -1,0 +1,66 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes" ?>
+<rss version="2.0" 
+  xmlns:content="http://purl.org/rss/1.0/modules/content/" 
+  xmlns:dc="http://purl.org/dc/elements/1.1/" 
+  xmlns:atom="http://www.w3.org/2005/Atom" 
+  xmlns:sy="http://purl.org/rss/1.0/modules/syndication/" 
+  xmlns:media="http://search.yahoo.com/mrss/">
+  <channel>
+    <title>hash on Food Favorito</title>
+    <link>https://foodfavorito.netlify.app/tags/hash/</link>
+    <description>Recent content in hash on Food Favorito</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>en</language>
+    <managingEditor>zzossig@gmail.com (zzossig)</managingEditor>
+    <webMaster>zzossig@gmail.com (zzossig)</webMaster>
+    <copyright>&amp;copy;{year} All Rights Reserved</copyright>
+    <lastBuildDate>Tue, 09 Nov 2021 07:40:16 +0000</lastBuildDate>
+    
+        <atom:link href="https://foodfavorito.netlify.app/tags/hash/index.xml" rel="self" type="application/rss+xml" />
+    
+
+      
+      <item>
+        <title>Recipe of Ultimate Healthy Chicken Hash Browns</title>
+        <link>https://foodfavorito.netlify.app/posts/1400-recipe-of-ultimate-healthy-chicken-hash-browns/</link>
+        <pubDate>Tue, 09 Nov 2021 07:40:16 +0000</pubDate>
+        <author>zzossig@gmail.com (zzossig)</author>
+        <atom:modified>Tue, 09 Nov 2021 07:40:16 +0000</atom:modified>
+        <guid>https://foodfavorito.netlify.app/posts/1400-recipe-of-ultimate-healthy-chicken-hash-browns/</guid>
+        <description>Healthy Chicken Hash Browns
+Hello everybody, it&amp;rsquo;s Drew, welcome to our recipe page. Today, we&amp;rsquo;re going to make a distinctive dish, healthy chicken hash browns. It is one of my favorites food recipes. For mine, I will make it a little bit tasty. This will be really delicious.
+Healthy Chicken Hash Browns is one of the most popular of recent trending meals on earth. It is simple, it&amp;rsquo;s fast, it tastes delicious.</description>
+        
+        <dc:creator>Miguel Bradley</dc:creator>
+        <media:content url="https://img-global.cpcdn.com/recipes/6269516372770816/680x482cq70/healthy-chicken-hash-browns-recipe-main-photo.jpg" medium="image"><media:title type="html">Recipe of Ultimate Healthy Chicken Hash Browns</media:title></media:content>
+        
+        
+        
+          
+            
+              <category>healthy</category>
+            
+          
+            
+              <category>chicken</category>
+            
+          
+            
+              <category>hash</category>
+            
+          
+        
+        
+          
+            
+              <category>Recipe</category>
+            
+          
+        
+        
+      </item>
+      
+
+    
+  </channel>
+</rss>

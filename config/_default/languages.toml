@@ -1,0 +1,13 @@
+[en]
+  title = "Fantastic Food"
+  languageName = "English"
+  weight = 1
+  languagedir = "ltr"
+  contentdir = "content/en"
+
+[id]
+  title = "Fantastic Food"
+  languageName = "Indonesian"
+  weight = 2
+  languagedir = "ltr"
+  contentdir = "content/id"

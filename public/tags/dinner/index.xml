@@ -1,0 +1,66 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes" ?>
+<rss version="2.0" 
+  xmlns:content="http://purl.org/rss/1.0/modules/content/" 
+  xmlns:dc="http://purl.org/dc/elements/1.1/" 
+  xmlns:atom="http://www.w3.org/2005/Atom" 
+  xmlns:sy="http://purl.org/rss/1.0/modules/syndication/" 
+  xmlns:media="http://search.yahoo.com/mrss/">
+  <channel>
+    <title>dinner on Food Favorito</title>
+    <link>https://foodfavorito.netlify.app/tags/dinner/</link>
+    <description>Recent content in dinner on Food Favorito</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>en</language>
+    <managingEditor>zzossig@gmail.com (zzossig)</managingEditor>
+    <webMaster>zzossig@gmail.com (zzossig)</webMaster>
+    <copyright>&amp;copy;{year} All Rights Reserved</copyright>
+    <lastBuildDate>Wed, 10 Nov 2021 03:51:46 +0000</lastBuildDate>
+    
+        <atom:link href="https://foodfavorito.netlify.app/tags/dinner/index.xml" rel="self" type="application/rss+xml" />
+    
+
+      
+      <item>
+        <title>Recipe of Homemade Easy chicken dinner</title>
+        <link>https://foodfavorito.netlify.app/posts/871-recipe-of-homemade-easy-chicken-dinner/</link>
+        <pubDate>Wed, 10 Nov 2021 03:51:46 +0000</pubDate>
+        <author>zzossig@gmail.com (zzossig)</author>
+        <atom:modified>Wed, 10 Nov 2021 03:51:46 +0000</atom:modified>
+        <guid>https://foodfavorito.netlify.app/posts/871-recipe-of-homemade-easy-chicken-dinner/</guid>
+        <description>Easy chicken dinner
+Hello everybody, I hope you are having an amazing day today. Today, we&amp;rsquo;re going to prepare a distinctive dish, easy chicken dinner. It is one of my favorites food recipes. This time, I am going to make it a bit unique. This will be really delicious.
+Related To: Easy Chicken Easy Dinner Recipes Chicken Recipes Poultry. Photo By: Teri Lyn Chicken Florentine Style. We&#39;re pretty sure Giada wins weeknight dinners with this quick and.</description>
+        
+        <dc:creator>Benjamin Newton</dc:creator>
+        <media:content url="https://img-global.cpcdn.com/recipes/507c254906dabd0a/680x482cq70/easy-chicken-dinner-recipe-main-photo.jpg" medium="image"><media:title type="html">Recipe of Homemade Easy chicken dinner</media:title></media:content>
+        
+        
+        
+          
+            
+              <category>easy</category>
+            
+          
+            
+              <category>chicken</category>
+            
+          
+            
+              <category>dinner</category>
+            
+          
+        
+        
+          
+            
+              <category>Recipe</category>
+            
+          
+        
+        
+      </item>
+      
+
+    
+  </channel>
+</rss>

@@ -1,0 +1,66 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes" ?>
+<rss version="2.0" 
+  xmlns:content="http://purl.org/rss/1.0/modules/content/" 
+  xmlns:dc="http://purl.org/dc/elements/1.1/" 
+  xmlns:atom="http://www.w3.org/2005/Atom" 
+  xmlns:sy="http://purl.org/rss/1.0/modules/syndication/" 
+  xmlns:media="http://search.yahoo.com/mrss/">
+  <channel>
+    <title>saucy on Food Favorito</title>
+    <link>https://foodfavorito.netlify.app/tags/saucy/</link>
+    <description>Recent content in saucy on Food Favorito</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>en</language>
+    <managingEditor>zzossig@gmail.com (zzossig)</managingEditor>
+    <webMaster>zzossig@gmail.com (zzossig)</webMaster>
+    <copyright>&amp;copy;{year} All Rights Reserved</copyright>
+    <lastBuildDate>Sun, 07 Nov 2021 16:57:02 +0000</lastBuildDate>
+    
+        <atom:link href="https://foodfavorito.netlify.app/tags/saucy/index.xml" rel="self" type="application/rss+xml" />
+    
+
+      
+      <item>
+        <title>Recipe of Super Quick Homemade Saucy Crockpot Chicken</title>
+        <link>https://foodfavorito.netlify.app/posts/3605-recipe-of-super-quick-homemade-saucy-crockpot-chicken/</link>
+        <pubDate>Sun, 07 Nov 2021 16:57:02 +0000</pubDate>
+        <author>zzossig@gmail.com (zzossig)</author>
+        <atom:modified>Sun, 07 Nov 2021 16:57:02 +0000</atom:modified>
+        <guid>https://foodfavorito.netlify.app/posts/3605-recipe-of-super-quick-homemade-saucy-crockpot-chicken/</guid>
+        <description>Saucy Crockpot Chicken
+Hello everybody, hope you are having an amazing day today. Today, we&amp;rsquo;re going to make a special dish, saucy crockpot chicken. One of my favorites. This time, I am going to make it a bit unique. This will be really delicious.
+I call it &#39;saucy chicken&#39; because it makes lots of the sauce to pour over your rice (and veggies, too, if I use frozen chicken in my crockpot often!</description>
+        
+        <dc:creator>Clyde Casey</dc:creator>
+        <media:content url="https://img-global.cpcdn.com/recipes/4686712542330880/680x482cq70/saucy-crockpot-chicken-recipe-main-photo.jpg" medium="image"><media:title type="html">Recipe of Super Quick Homemade Saucy Crockpot Chicken</media:title></media:content>
+        
+        
+        
+          
+            
+              <category>saucy</category>
+            
+          
+            
+              <category>crockpot</category>
+            
+          
+            
+              <category>chicken</category>
+            
+          
+        
+        
+          
+            
+              <category>Recipe</category>
+            
+          
+        
+        
+      </item>
+      
+
+    
+  </channel>
+</rss>
