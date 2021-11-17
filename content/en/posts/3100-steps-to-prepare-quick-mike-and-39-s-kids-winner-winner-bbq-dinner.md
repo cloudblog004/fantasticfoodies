@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Quick Mike&amp;#39;s Kids Winner Winner BBQ Dinner!"
-title: "Steps to Prepare Quick Mike&amp;#39;s Kids Winner Winner BBQ Dinner!"
+description: "Steps to Prepare Quick Mike's Kids Winner Winner BBQ Dinner!"
+title: "Steps to Prepare Quick Mike's Kids Winner Winner BBQ Dinner!"
 slug: 3100-steps-to-prepare-quick-mike-and-39-s-kids-winner-winner-bbq-dinner
 date: 2022-04-14T18:20:02.870Z
 image: https://img-global.cpcdn.com/recipes/597b0b873490a0f2/680x482cq70/mikes-kids-winner-winner-bbq-dinner-recipe-main-photo.jpg

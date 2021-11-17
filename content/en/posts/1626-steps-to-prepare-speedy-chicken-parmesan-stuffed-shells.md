@@ -71,7 +71,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 1. Prepare 4 frozen breaded chicken patties
 1. Prepare 1 jar spaghetti sauce
 1. Make ready 15 oz. ricotta cheese
-1. Get 1 (7.5 oz.) container Chive &amp; Onion Cream Cheese Spread
+1. Get 1 (7.5 oz.) container Chive & Onion Cream Cheese Spread
 1. Get 1 egg
 1. Take 1/2 cup grated parmesan cheese
 1. Prepare  Seasonings: pepper, Italian sng., basil, oregano, garlic powder

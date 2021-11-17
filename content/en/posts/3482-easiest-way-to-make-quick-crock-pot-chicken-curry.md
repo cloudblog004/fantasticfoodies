@@ -27,7 +27,7 @@ recipeinstructions:
 - "Add everything but the peas in your cockpot"
 - "On high for 6 hours, low for 8-10 hours. Depending on crockpot."
 - "Add peas the last 5-10 minutes"
-- "Serve over rice &amp; enjoy."
+- "Serve over rice & enjoy."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -71,7 +71,7 @@ To begin with this recipe, we have to prepare a few components. You can cook cro
 1. Prepare 1 tbs cumin
 1. Prepare 1 box frozen peas
 1. Make ready 1 tbs dried parsley
-1. Make ready  salt&amp;pepper
+1. Make ready  salt&pepper
 
 
 
@@ -83,7 +83,7 @@ To begin with this recipe, we have to prepare a few components. You can cook cro
 1. Add everything but the peas in your cockpot
 1. On high for 6 hours, low for 8-10 hours. Depending on crockpot.
 1. Add peas the last 5-10 minutes
-1. Serve over rice &amp; enjoy.
+1. Serve over rice & enjoy.
 1. Ready to serve and ENJOY!
 
 

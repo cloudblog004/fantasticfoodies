@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Quick Pam&amp;#39;s Linguine in sauce...."
-title: "Steps to Prepare Quick Pam&amp;#39;s Linguine in sauce...."
+description: "Steps to Prepare Quick Pam's Linguine in sauce...."
+title: "Steps to Prepare Quick Pam's Linguine in sauce...."
 slug: 2129-steps-to-prepare-quick-pam-and-39-s-linguine-in-sauce
 date: 2021-11-07T18:19:16.815Z
 image: https://img-global.cpcdn.com/recipes/5622928351690752/680x482cq70/pams-linguine-in-sauce-recipe-main-photo.jpg
@@ -68,7 +68,7 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 1. Make ready 200 grams linguine coked as package direction
 1. Make ready 1 medium onion finely chopped
 1. Prepare 2 clove garlic minced
-1. Get 2 medium tomatoe filled &amp;finely chopped
+1. Get 2 medium tomatoe filled &finely chopped
 1. Get 5 grams butter
 1. Prepare 1 tsp olive oil
 1. Get 1 salt nd pepper to taste

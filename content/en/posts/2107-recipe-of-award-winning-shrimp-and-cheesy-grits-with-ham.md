@@ -81,7 +81,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 1. Make ready 4 tbsp butter
 
 
-Cheesy Shrimp and Grits are the ultimate southern meal! Grits are cooked in chicken broth then mixed with cream cheese, extra sharp shredded cheddar cheese to make the creamiest, cheesiest grits you have ever had! Creamy cheese grits and succulent shrimp make a devine casserole. These savory grits make your classic shrimp &amp; grits even better with country ham. 
+Cheesy Shrimp and Grits are the ultimate southern meal! Grits are cooked in chicken broth then mixed with cream cheese, extra sharp shredded cheddar cheese to make the creamiest, cheesiest grits you have ever had! Creamy cheese grits and succulent shrimp make a devine casserole. These savory grits make your classic shrimp & grits even better with country ham. 
 
 <!--inarticleads2-->
 
@@ -94,6 +94,6 @@ Cheesy Shrimp and Grits are the ultimate southern meal! Grits are cooked in chic
 1. to serve.  Place grits in a bowl,  add a few shrimp n then sprinkle over a little of the ham.
 1. Ready to serve and ENJOY!
 
-Creamy cheese grits and succulent shrimp make a devine casserole. These savory grits make your classic shrimp &amp; grits even better with country ham. The ham-and-shrimp topping for these buttermilk The freshly ground grits are scooped by hand into cloth sacks, tied closed, and chilled. Those who appreciate corn grits know that. For shrimp and grits, I start with the Cajun trinity and add two more colors of bell pepper: orange and red. 
+Creamy cheese grits and succulent shrimp make a devine casserole. These savory grits make your classic shrimp & grits even better with country ham. The ham-and-shrimp topping for these buttermilk The freshly ground grits are scooped by hand into cloth sacks, tied closed, and chilled. Those who appreciate corn grits know that. For shrimp and grits, I start with the Cajun trinity and add two more colors of bell pepper: orange and red. 
 
 So that's going to wrap this up for this exceptional food shrimp and cheesy grits/with ham recipe. Thank you very much for your time. I'm confident you will make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

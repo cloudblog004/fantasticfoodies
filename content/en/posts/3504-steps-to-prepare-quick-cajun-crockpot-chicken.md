@@ -58,7 +58,7 @@ Hey everyone, I hope you're having an amazing day today. Today, we're going to p
 
 Cajun crockpot chicken is one of the most well liked of current trending foods in the world. It's enjoyed by millions every day. It is easy, it is quick, it tastes yummy. They're nice and they look wonderful. Cajun crockpot chicken is something that I have loved my entire life.
 
-Crock Pot Cajun Chicken PastaEating On A Dime. We prefer to store the chicken mixture separate from the rice and combine the two right before eating. We have made crock pot &#34;rotisserie&#34; chicken for years- many different ways. Crock Pot Cajun Chicken Pasta Recipe.
+Crock Pot Cajun Chicken PastaEating On A Dime. We prefer to store the chicken mixture separate from the rice and combine the two right before eating. We have made crock pot *rotisserie* chicken for years- many different ways. Crock Pot Cajun Chicken Pasta Recipe.
 
 
 To begin with this particular recipe, we have to prepare a few ingredients. You can cook cajun crockpot chicken using 12 ingredients and 7 steps. Here is how you can achieve that.

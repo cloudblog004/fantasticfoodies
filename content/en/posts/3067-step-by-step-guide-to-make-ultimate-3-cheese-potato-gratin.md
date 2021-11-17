@@ -33,11 +33,11 @@ recipeinstructions:
 - "Preheat oven @ 400°."
 - "Slice all potatoes in thin circles, leaving skins on. Cover with a wet papertowel to keep moist."
 - "Mix all 3 cheeses together in a bowl."
-- "Chop onion &amp; garlic."
+- "Chop onion & garlic."
 - "Sautè both in olive oil."
-- "After onion &amp; garlic is translucent, add heavy cream &amp; chicken broth."
+- "After onion & garlic is translucent, add heavy cream & chicken broth."
 - "Add chopped Rosemary or whatever green herb you choose."
-- "Add salt &amp; pepper and when sauce is warm take off of heat."
+- "Add salt & pepper and when sauce is warm take off of heat."
 - "Arrange first layer of potatoes in a buttered casserole dish, alternating between the red and yellow."
 - "Completely cover potatoes with the layer of cheese."
 - "Arrange another layer of potatoes, then cover with another layer of cheese."
@@ -107,11 +107,11 @@ To get started with this particular recipe, we must first prepare a few ingredie
 1. Preheat oven @ 400°.
 1. Slice all potatoes in thin circles, leaving skins on. Cover with a wet papertowel to keep moist.
 1. Mix all 3 cheeses together in a bowl.
-1. Chop onion &amp; garlic.
+1. Chop onion & garlic.
 1. Sautè both in olive oil.
-1. After onion &amp; garlic is translucent, add heavy cream &amp; chicken broth.
+1. After onion & garlic is translucent, add heavy cream & chicken broth.
 1. Add chopped Rosemary or whatever green herb you choose.
-1. Add salt &amp; pepper and when sauce is warm take off of heat.
+1. Add salt & pepper and when sauce is warm take off of heat.
 1. Arrange first layer of potatoes in a buttered casserole dish, alternating between the red and yellow.
 1. Completely cover potatoes with the layer of cheese.
 1. Arrange another layer of potatoes, then cover with another layer of cheese.

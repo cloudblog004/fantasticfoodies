@@ -77,7 +77,7 @@ To begin with this recipe, we must prepare a few ingredients. You can cook healt
 1. Get 4 ounces low fat cream cheese (1/2 block)
 1. Get 4-5 cloves garlic minced
 1. Get 2 tbsp flour
-1. Take to taste Salt &amp; pepper
+1. Take to taste Salt & pepper
 1. Make ready 1 tbsp adobo seasoning
 1. Get 1/2 cup Parmesan cheese
 
@@ -94,6 +94,6 @@ Swap the noodles with Zucchini noodles instead. Chicken alfredo recipe is a clas
 1. Once melted whisk in 2 tbsp of flour to thicken. Let simmer til sauce thickens slightly. Add parsley and Parmesan to finish, enjoy!
 1. Ready to serve and ENJOY!
 
-The Heart of The Home Beats in The Kitchen. See more ideas about healthy chicken alfredo, chicken alfredo, healthy chicken. Oh, chicken alfredo﻿: It&#39;s the classic pasta we just can&#39;t seem to get enough of. Of course there are tons of jarred pasta sauces﻿ you can buy, but making alfredo from-scratch is actually so easy. Chicken Alfredo pasta was my favorite &#34;fancy&#34; restaurant order as a kid — luxe sauce clinging to fettuccine topped with crispy chicken. 
+The Heart of The Home Beats in The Kitchen. See more ideas about healthy chicken alfredo, chicken alfredo, healthy chicken. Oh, chicken alfredo﻿: It&#39;s the classic pasta we just can&#39;t seem to get enough of. Of course there are tons of jarred pasta sauces﻿ you can buy, but making alfredo from-scratch is actually so easy. Chicken Alfredo pasta was my favorite *fancy* restaurant order as a kid — luxe sauce clinging to fettuccine topped with crispy chicken. 
 
 So that is going to wrap it up with this special food healthy chicken alfredo recipe. Thanks so much for reading. I'm sure that you can make this at home. There's gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

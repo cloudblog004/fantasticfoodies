@@ -67,7 +67,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Take 1 Shoyu marinade (see related recipe)
 1. Make ready 250 grams Udon noodles
 1. Make ready 1 bunch Baby bok choy, roughly chopped
-1. Prepare 400 grams Can baby corn spears, washed &amp; sliced in half lengthways
+1. Prepare 400 grams Can baby corn spears, washed & sliced in half lengthways
 1. Take 1 Red capsicum (pepper), sliced
 1. Prepare 1 medium onion, into wedges
 1. Make ready 2 stick Green onion, sliced

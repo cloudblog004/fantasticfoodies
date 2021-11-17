@@ -1,6 +1,6 @@
 ---
-description: "How to Prepare Speedy Florida Beef n&amp;#39; Bean Chili (Quick Version)"
-title: "How to Prepare Speedy Florida Beef n&amp;#39; Bean Chili (Quick Version)"
+description: "How to Prepare Speedy Florida Beef n' Bean Chili (Quick Version)"
+title: "How to Prepare Speedy Florida Beef n' Bean Chili (Quick Version)"
 slug: 1196-how-to-prepare-speedy-florida-beef-n-and-39-bean-chili-quick-version
 date: 2022-02-09T10:58:01.803Z
 image: https://img-global.cpcdn.com/recipes/1d08b3736e0add27/680x482cq70/florida-beef-n-bean-chili-quick-version-recipe-main-photo.jpg
@@ -73,7 +73,7 @@ Hello everybody, it's Brad, welcome to our recipe site. Today, I will show you a
 
 Florida Beef n&#39; Bean Chili (Quick Version) is one of the most popular of recent trending meals in the world. It's simple, it is quick, it tastes yummy. It is enjoyed by millions every day. Florida Beef n&#39; Bean Chili (Quick Version) is something that I've loved my entire life. They're fine and they look wonderful.
 
-Add chili powder, cumin, and paprika, then mix in tomatoes with juices, beans, and broth; bring to boil. How to Make Beef and Bean Chili Learn how to make Beef &#39;n&#39; bean chili &amp; see the Smartpoints value of this great recipe. This beef and bean version is easy to make, and you can serve it straight from the slow cooker.
+Add chili powder, cumin, and paprika, then mix in tomatoes with juices, beans, and broth; bring to boil. How to Make Beef and Bean Chili Learn how to make Beef &#39;n&#39; bean chili & see the Smartpoints value of this great recipe. This beef and bean version is easy to make, and you can serve it straight from the slow cooker.
 
 
 To get started with this recipe, we must prepare a few components. You can cook florida beef n&#39; bean chili (quick version) using 25 ingredients and 9 steps. Here is how you cook it.

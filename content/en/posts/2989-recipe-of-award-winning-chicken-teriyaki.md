@@ -53,7 +53,7 @@ recipecategory: Lunch
 
 Hey everyone, it's Brad, welcome to my recipe site. Today, we're going to prepare a distinctive dish, chicken teriyaki. One of my favorites. For mine, I will make it a little bit unique. This will be really delicious.
 
-Moist and Juicy Chicken thigh glazed with a sweet and flavorful sauce!! Check out this easy to make recipe made with simple ingredients. Although the name &#34;Teriyaki&#34; is relatively recent nomenclature, the practice of cooking meat and fish in a mixture of soy sauce and sugar has a long history going back. Teriyaki chicken is a quick and hearty dish that wins every time.
+Moist and Juicy Chicken thigh glazed with a sweet and flavorful sauce!! Check out this easy to make recipe made with simple ingredients. Although the name *Teriyaki* is relatively recent nomenclature, the practice of cooking meat and fish in a mixture of soy sauce and sugar has a long history going back. Teriyaki chicken is a quick and hearty dish that wins every time.
 
 Chicken teriyaki is one of the most favored of recent trending foods in the world. It's enjoyed by millions every day. It is easy, it's fast, it tastes yummy. They are fine and they look fantastic. Chicken teriyaki is something that I have loved my entire life.
 

@@ -49,7 +49,7 @@ recipecategory: Lunch
 
 Hey everyone, it is me, Dave, welcome to our recipe site. Today, we're going to make a distinctive dish, chicken florentine. One of my favorites food recipes. This time, I am going to make it a little bit tasty. This is gonna smell and look delicious.
 
-Recipe courtesy of Giada De Laurentiis. This Creamy Chicken Florentine recipe has tender pan-fried chicken coated in an amazing garlic What is Chicken Florentine? The &#34;Florentine&#34; style in cooking generally indicates that the dish has. This Chicken Florentine is a classic comfort food recipe.
+Recipe courtesy of Giada De Laurentiis. This Creamy Chicken Florentine recipe has tender pan-fried chicken coated in an amazing garlic What is Chicken Florentine? The *Florentine* style in cooking generally indicates that the dish has. This Chicken Florentine is a classic comfort food recipe.
 
 chicken Florentine is one of the most favored of recent trending foods in the world. It is appreciated by millions every day. It is easy, it's fast, it tastes yummy. chicken Florentine is something which I have loved my entire life. They're fine and they look wonderful.
 
@@ -68,7 +68,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 1. Prepare 1 cup mozzerella cheese
 
 
-Chicken Florentine &amp; Farfalle, Cheesy Chicken Florentine, Chicken Florentine. Chicken Florentine Skillet (Low Carb)Taste And See. yellow onion, olive oil, dry white wine, butter. This is another family favorite that is great year round. Similar to Chicken Parmesan, this chicken dish also includes spinach. 
+Chicken Florentine & Farfalle, Cheesy Chicken Florentine, Chicken Florentine. Chicken Florentine Skillet (Low Carb)Taste And See. yellow onion, olive oil, dry white wine, butter. This is another family favorite that is great year round. Similar to Chicken Parmesan, this chicken dish also includes spinach. 
 
 <!--inarticleads2-->
 
@@ -83,6 +83,6 @@ Chicken Florentine &amp; Farfalle, Cheesy Chicken Florentine, Chicken Florentine
 1. add cheese then bake for an extra 5 min or till melted.
 1. Ready to serve and ENJOY!
 
-This is another family favorite that is great year round. Similar to Chicken Parmesan, this chicken dish also includes spinach. The basic recipe for chicken florentine soup is very simple. It&#39;s all common ingredients, making it Next, the remaining ingredients go into the chicken florentine soup. In case you&#39;re wondering what in the world &#34;florentine&#34; means. 
+This is another family favorite that is great year round. Similar to Chicken Parmesan, this chicken dish also includes spinach. The basic recipe for chicken florentine soup is very simple. It&#39;s all common ingredients, making it Next, the remaining ingredients go into the chicken florentine soup. In case you&#39;re wondering what in the world *florentine* means. 
 
 So that's going to wrap it up with this special food chicken florentine recipe. Thank you very much for your time. I am confident you can make this at home. There's gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

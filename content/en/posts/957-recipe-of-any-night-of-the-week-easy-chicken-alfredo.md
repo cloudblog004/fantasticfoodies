@@ -22,9 +22,9 @@ recipeingredient:
 - "2 cloves garliccrushed"
 recipeinstructions:
 - "Microwave the broccoli according to directions."
-- "Sauté onion in olive oil in a large pan &amp; cook fettuccine in a separate large pot"
-- "Add chicken &amp; broccoli to onion. Cook on low for 5 minutes."
-- "Add jar of Alfredo sauce &amp; wine &amp; crushed garlic. Cook on low for 5 to 10 minutes."
+- "Sauté onion in olive oil in a large pan & cook fettuccine in a separate large pot"
+- "Add chicken & broccoli to onion. Cook on low for 5 minutes."
+- "Add jar of Alfredo sauce & wine & crushed garlic. Cook on low for 5 to 10 minutes."
 - "When fettuccine is done, drain. Serve sauce over fettuccine."
 - "Ready to serve and ENJOY!"
 categories:
@@ -76,9 +76,9 @@ You&#39;ll be amazed at how quick and easy it is to make, and once you taste hom
 ##### Steps to make Easy chicken Alfredo:
 
 1. Microwave the broccoli according to directions.
-1. Sauté onion in olive oil in a large pan &amp; cook fettuccine in a separate large pot
-1. Add chicken &amp; broccoli to onion. Cook on low for 5 minutes.
-1. Add jar of Alfredo sauce &amp; wine &amp; crushed garlic. Cook on low for 5 to 10 minutes.
+1. Sauté onion in olive oil in a large pan & cook fettuccine in a separate large pot
+1. Add chicken & broccoli to onion. Cook on low for 5 minutes.
+1. Add jar of Alfredo sauce & wine & crushed garlic. Cook on low for 5 to 10 minutes.
 1. When fettuccine is done, drain. Serve sauce over fettuccine.
 1. Ready to serve and ENJOY!
 

@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Perfect Tasty Sweet &amp;amp; Spicy stuffed dosa using same batter"
-title: "Step-by-Step Guide to Make Perfect Tasty Sweet &amp;amp; Spicy stuffed dosa using same batter"
+description: "Step-by-Step Guide to Make Perfect Tasty Sweet & Spicy stuffed dosa using same batter"
+title: "Step-by-Step Guide to Make Perfect Tasty Sweet & Spicy stuffed dosa using same batter"
 slug: 408-step-by-step-guide-to-make-perfect-tasty-sweet-and-amp-spicy-stuffed-dosa-using-same-batter
 date: 2022-03-29T19:19:39.664Z
 image: https://img-global.cpcdn.com/recipes/cf8f5453868c6326/680x482cq70/tasty-sweet-spicy-stuffed-dosa-using-same-batter-recipe-main-photo.jpg
@@ -66,20 +66,20 @@ recipecategory: Dessert
 ---
 
 
-![Tasty Sweet &amp; Spicy stuffed dosa using same batter](https://img-global.cpcdn.com/recipes/cf8f5453868c6326/680x482cq70/tasty-sweet-spicy-stuffed-dosa-using-same-batter-recipe-main-photo.jpg)
+![Tasty Sweet & Spicy stuffed dosa using same batter](https://img-global.cpcdn.com/recipes/cf8f5453868c6326/680x482cq70/tasty-sweet-spicy-stuffed-dosa-using-same-batter-recipe-main-photo.jpg)
 
-Hello everybody, I hope you're having an amazing day today. Today, I will show you a way to prepare a special dish, tasty sweet &amp; spicy stuffed dosa using same batter. One of my favorites. For mine, I will make it a bit tasty. This will be really delicious.
-
-
-
-Tasty Sweet &amp; Spicy stuffed dosa using same batter is one of the most popular of recent trending foods on earth. It is simple, it is fast, it tastes yummy. It is appreciated by millions daily. Tasty Sweet &amp; Spicy stuffed dosa using same batter is something that I have loved my whole life. They're fine and they look fantastic.
+Hello everybody, I hope you're having an amazing day today. Today, I will show you a way to prepare a special dish, tasty sweet & spicy stuffed dosa using same batter. One of my favorites. For mine, I will make it a bit tasty. This will be really delicious.
 
 
-To begin with this recipe, we have to prepare a few components. You can cook tasty sweet &amp; spicy stuffed dosa using same batter using 26 ingredients and 7 steps. Here is how you cook that.
+
+Tasty Sweet & Spicy stuffed dosa using same batter is one of the most popular of recent trending foods on earth. It is simple, it is fast, it tastes yummy. It is appreciated by millions daily. Tasty Sweet & Spicy stuffed dosa using same batter is something that I have loved my whole life. They're fine and they look fantastic.
+
+
+To begin with this recipe, we have to prepare a few components. You can cook tasty sweet & spicy stuffed dosa using same batter using 26 ingredients and 7 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Tasty Sweet &amp; Spicy stuffed dosa using same batter:
+##### The ingredients needed to make Tasty Sweet & Spicy stuffed dosa using same batter:
 
 1. Prepare  Batter preparation:
 1. Make ready 2 cups plain flour/wheat flour
@@ -113,7 +113,7 @@ To begin with this recipe, we have to prepare a few components. You can cook tas
 
 <!--inarticleads2-->
 
-##### Instructions to make Tasty Sweet &amp; Spicy stuffed dosa using same batter:
+##### Instructions to make Tasty Sweet & Spicy stuffed dosa using same batter:
 
 1. Mix plain flour, salt, turmeric powder and egg well. Add water little by little. Mix well without lumps. It should be running consistency like dosa batter
 1. Sweet stuffing: mix all ingredients well
@@ -126,4 +126,4 @@ To begin with this recipe, we have to prepare a few components. You can cook tas
 
 
 
-So that's going to wrap it up with this special food tasty sweet &amp; spicy stuffed dosa using same batter recipe. Thank you very much for your time. I am sure that you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!
+So that's going to wrap it up with this special food tasty sweet & spicy stuffed dosa using same batter recipe. Thank you very much for your time. I am sure that you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

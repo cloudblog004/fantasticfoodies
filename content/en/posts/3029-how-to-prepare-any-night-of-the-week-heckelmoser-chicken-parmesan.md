@@ -138,7 +138,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 1. Make ready 1 box pasta noodles (boiled al dente)
 
 
-Chicken parmesan is one of the most common Italian-American dishes and a ubiquitous menu item at family-style Italian restaurants. Chicken Parmesan and chicken Parmigiana are just different names for the same exact recipe. And, with a name like &#34;chicken Parmigiana&#34;, you might assume that this recipe is Italian. Chicken Parmesan is made of components I love, like juicy chicken, savory Parmesan cheese, tangy tomato sauce, and spaghetti. 
+Chicken parmesan is one of the most common Italian-American dishes and a ubiquitous menu item at family-style Italian restaurants. Chicken Parmesan and chicken Parmigiana are just different names for the same exact recipe. And, with a name like *chicken Parmigiana*, you might assume that this recipe is Italian. Chicken Parmesan is made of components I love, like juicy chicken, savory Parmesan cheese, tangy tomato sauce, and spaghetti. 
 
 <!--inarticleads2-->
 
@@ -166,6 +166,6 @@ Chicken parmesan is one of the most common Italian-American dishes and a ubiquit
 1. eat as much as possible
 1. Ready to serve and ENJOY!
 
-And, with a name like &#34;chicken Parmigiana&#34;, you might assume that this recipe is Italian. Chicken Parmesan is made of components I love, like juicy chicken, savory Parmesan cheese, tangy tomato sauce, and spaghetti. So, in theory, I should love Chicken Parm as well, but for all its promise. My recipe for chicken parmesan: Cook one box of spaghetti noodles in salted boiling water, until On top of the sauce add mozzarella cheese and parmesan cheese. Now put the saucy, cheesy chicken. 
+And, with a name like *chicken Parmigiana*, you might assume that this recipe is Italian. Chicken Parmesan is made of components I love, like juicy chicken, savory Parmesan cheese, tangy tomato sauce, and spaghetti. So, in theory, I should love Chicken Parm as well, but for all its promise. My recipe for chicken parmesan: Cook one box of spaghetti noodles in salted boiling water, until On top of the sauce add mozzarella cheese and parmesan cheese. Now put the saucy, cheesy chicken. 
 
 So that is going to wrap it up with this special food heckelmoser chicken parmesan recipe. Thanks so much for reading. I am sure you will make this at home. There's gonna be interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

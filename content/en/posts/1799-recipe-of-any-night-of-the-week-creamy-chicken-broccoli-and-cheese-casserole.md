@@ -82,6 +82,6 @@ Reviews for Photos of Creamy Broccoli and Cheese Casserole. My family loves this
 1. Enjoy!!  I hope you love it!!  Great for low carb diets!
 1. Ready to serve and ENJOY!
 
-I threw this one into our dinner rotation and they loved it. Nothing beats being able to throw a What could I replace the cream cheese in this Creamy Chicken Broccoli Casserole with? This recipe calls for fat free cream cheese, however, if. Low-Carb Chicken &amp; Broccoli Casserole - Cheesy, Creamy and Keto-Dreamy! In a large bowl, using a hand mixer, blend sour cream, softened cream cheese, mayonnaise, egg, and spices (salt through pepper) until thoroughly combined. 
+I threw this one into our dinner rotation and they loved it. Nothing beats being able to throw a What could I replace the cream cheese in this Creamy Chicken Broccoli Casserole with? This recipe calls for fat free cream cheese, however, if. Low-Carb Chicken & Broccoli Casserole - Cheesy, Creamy and Keto-Dreamy! In a large bowl, using a hand mixer, blend sour cream, softened cream cheese, mayonnaise, egg, and spices (salt through pepper) until thoroughly combined. 
 
 So that is going to wrap this up for this special food creamy chicken, broccoli and cheese casserole recipe. Thank you very much for reading. I'm confident you can make this at home. There's gonna be interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

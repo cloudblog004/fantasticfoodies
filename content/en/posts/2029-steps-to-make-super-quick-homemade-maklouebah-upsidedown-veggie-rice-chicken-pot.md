@@ -82,7 +82,7 @@ To get started with this recipe, we must prepare a few components. You can cook 
 1. Take  canola oil for frying vegetables
 
 
-Makloubeh (which translates literally into upside Today I am sharing my favorite version, cauliflower chicken makloubeh but you can use. Makloubeh, a Middle Eastern upside down rice dish with spiced rice cooked in meat broth, meat pieces, eggplant and cauliflower. It has many spellings that basically mean the same thing. Makloubeh literally translates to &#34;upside down&#34;. 
+Makloubeh (which translates literally into upside Today I am sharing my favorite version, cauliflower chicken makloubeh but you can use. Makloubeh, a Middle Eastern upside down rice dish with spiced rice cooked in meat broth, meat pieces, eggplant and cauliflower. It has many spellings that basically mean the same thing. Makloubeh literally translates to *upside down*. 
 
 <!--inarticleads2-->
 
@@ -100,6 +100,6 @@ Makloubeh (which translates literally into upside Today I am sharing my favorite
 1. After its done take the pot off the stove and get a large round tray and carefully place the tray on top of the pot. This is the hard part. The FLIP. You want to make sure you have a tight hold of the pot. Place one hand on the pot handle and the other above the tray and quickly flip the pot. And remove the pot and now you have maklouebah.  Enjoy :)
 1. Ready to serve and ENJOY!
 
-It has many spellings that basically mean the same thing. Makloubeh literally translates to &#34;upside down&#34;. When the rice is ready, the pot is flipped over, revealing the tempting toppings. This upside-down cake is known by many names and spelled in a variety of ways including Maglooba, Makloubi, Maqluba. This Middle Eastern rice dish known for flipping upside down and sometimes maintaining its shape is a very popular traditional meal. 
+It has many spellings that basically mean the same thing. Makloubeh literally translates to *upside down*. When the rice is ready, the pot is flipped over, revealing the tempting toppings. This upside-down cake is known by many names and spelled in a variety of ways including Maglooba, Makloubi, Maqluba. This Middle Eastern rice dish known for flipping upside down and sometimes maintaining its shape is a very popular traditional meal. 
 
 So that is going to wrap this up for this special food maklouebah (upsidedown veggie/rice/chicken pot) recipe. Thank you very much for reading. I am sure you can make this at home. There's gonna be interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

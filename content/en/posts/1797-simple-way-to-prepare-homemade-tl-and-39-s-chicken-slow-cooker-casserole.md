@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Prepare Homemade TL&amp;#39;s chicken slow cooker casserole"
-title: "Simple Way to Prepare Homemade TL&amp;#39;s chicken slow cooker casserole"
+description: "Simple Way to Prepare Homemade TL's chicken slow cooker casserole"
+title: "Simple Way to Prepare Homemade TL's chicken slow cooker casserole"
 slug: 1797-simple-way-to-prepare-homemade-tl-and-39-s-chicken-slow-cooker-casserole
 date: 2022-05-12T09:22:15.867Z
 image: https://img-global.cpcdn.com/recipes/5107017382363136/680x482cq70/tls-chicken-slow-cooker-casserole-recipe-main-photo.jpg

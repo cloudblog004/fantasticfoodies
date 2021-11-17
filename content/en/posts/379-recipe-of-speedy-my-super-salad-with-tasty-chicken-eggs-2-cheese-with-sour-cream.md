@@ -84,7 +84,7 @@ To begin with this recipe, we have to first prepare a few components. You can ha
 1. Make ready  Hard boiled egg
 1. Get  Red Onion
 1. Prepare  Cucumber
-1. Get  Salt &amp; Pepper
+1. Get  Salt & Pepper
 1. Prepare 1 tsp Balsamic vinegar
 1. Get 1 Squeeze a Lemon
 

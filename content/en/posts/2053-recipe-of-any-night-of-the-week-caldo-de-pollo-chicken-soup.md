@@ -36,7 +36,7 @@ recipeinstructions:
 - "fill pot with water"
 - "add boneless skinless chicken breast, onion and boil"
 - "while boiling chicken, begin peeling and dicing potatoes.. they can be as big or small as you want.. remember the bigger the potatoes the longer to cook... rinse cut potatoes and set aside until chicken is half way cooked.."
-- "once chicken is almost completely white add raw potatoes, sazon, chicken cubes, &amp; tomato sauce... begin to make rice.. put oil in pot add rice.. brown rice then add 4 cups water.. add sazon and chicken cube.. boil..when water is almost completely obsorbed, cover rice and turn off flame.. set aside"
+- "once chicken is almost completely white add raw potatoes, sazon, chicken cubes, & tomato sauce... begin to make rice.. put oil in pot add rice.. brown rice then add 4 cups water.. add sazon and chicken cube.. boil..when water is almost completely obsorbed, cover rice and turn off flame.. set aside"
 - "if you have raw carrots.. skin them and cut them in fours.. rinse and set aside.. clean corn off and break in halves.. set aside.  slice zucchini rinse.. rinse cilantro"
 - "when potatoes are soft but still a bit raw..add carrots.. let carrots boil for about five minutes then add corn, zucchini and cilantro"
 - "its done when carrots and potatoes are soft"
@@ -105,7 +105,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can h
 1. fill pot with water
 1. add boneless skinless chicken breast, onion and boil
 1. while boiling chicken, begin peeling and dicing potatoes.. they can be as big or small as you want.. remember the bigger the potatoes the longer to cook... rinse cut potatoes and set aside until chicken is half way cooked..
-1. once chicken is almost completely white add raw potatoes, sazon, chicken cubes, &amp; tomato sauce... begin to make rice.. put oil in pot add rice.. brown rice then add 4 cups water.. add sazon and chicken cube.. boil..when water is almost completely obsorbed, cover rice and turn off flame.. set aside
+1. once chicken is almost completely white add raw potatoes, sazon, chicken cubes, & tomato sauce... begin to make rice.. put oil in pot add rice.. brown rice then add 4 cups water.. add sazon and chicken cube.. boil..when water is almost completely obsorbed, cover rice and turn off flame.. set aside
 1. if you have raw carrots.. skin them and cut them in fours.. rinse and set aside.. clean corn off and break in halves.. set aside.  slice zucchini rinse.. rinse cilantro
 1. when potatoes are soft but still a bit raw..add carrots.. let carrots boil for about five minutes then add corn, zucchini and cilantro
 1. its done when carrots and potatoes are soft

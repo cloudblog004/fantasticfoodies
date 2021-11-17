@@ -44,7 +44,7 @@ recipeingredient:
 - " Roasted crushed peanuts"
 recipeinstructions:
 - "Prepare all the ingredients. In a bowl add the ingredients for the dough and knead smoothly. Cover and let it sit in a warm place for about 2 hrs. After 2 hrs, knead the dough for 2 mnts to release the air."
-- "Roll out the dough upto 1 cm thick. Using a round cutter, cut out circles, place them on a tray lined with cupcake liners. Lift up each circle, fold such that it forms a &#34;The&#34; shape but do not press. Be as gentle as you can. Keep the tray covered with a cloth in a warm place for the buns to proof for 30 mnts."
+- "Roll out the dough upto 1 cm thick. Using a round cutter, cut out circles, place them on a tray lined with cupcake liners. Lift up each circle, fold such that it forms a *The* shape but do not press. Be as gentle as you can. Keep the tray covered with a cloth in a warm place for the buns to proof for 30 mnts."
 - "Transfer to a steamer and let them steam for 12 to 15 minutes. Your buns will look like as shown in the picture."
 - "In a wok add ginger garlic paste, Sizzle till fragrant. Add in the sauces and simmer till bubbles appear. Turn the flame to high and add the chicken strips. Stir and cook on high only so the chicken does not release water and remains tender. No water should remain. Turn off the heat and start assembling."
 - "To assemble the bao buns, open the bun as shown in the picture above. Put in the chicken strips, cabbage, cucumber, carrot, sprinkle coriander, peanuts, sesame seeds and enjoy. This is comfort food for me, I hope you like it too."
@@ -119,7 +119,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 ##### Steps to make Bao Buns:
 
 1. Prepare all the ingredients. In a bowl add the ingredients for the dough and knead smoothly. Cover and let it sit in a warm place for about 2 hrs. After 2 hrs, knead the dough for 2 mnts to release the air.
-1. Roll out the dough upto 1 cm thick. Using a round cutter, cut out circles, place them on a tray lined with cupcake liners. Lift up each circle, fold such that it forms a &#34;The&#34; shape but do not press. Be as gentle as you can. Keep the tray covered with a cloth in a warm place for the buns to proof for 30 mnts.
+1. Roll out the dough upto 1 cm thick. Using a round cutter, cut out circles, place them on a tray lined with cupcake liners. Lift up each circle, fold such that it forms a *The* shape but do not press. Be as gentle as you can. Keep the tray covered with a cloth in a warm place for the buns to proof for 30 mnts.
 1. Transfer to a steamer and let them steam for 12 to 15 minutes. Your buns will look like as shown in the picture.
 1. In a wok add ginger garlic paste, Sizzle till fragrant. Add in the sauces and simmer till bubbles appear. Turn the flame to high and add the chicken strips. Stir and cook on high only so the chicken does not release water and remains tender. No water should remain. Turn off the heat and start assembling.
 1. To assemble the bao buns, open the bun as shown in the picture above. Put in the chicken strips, cabbage, cucumber, carrot, sprinkle coriander, peanuts, sesame seeds and enjoy. This is comfort food for me, I hope you like it too.

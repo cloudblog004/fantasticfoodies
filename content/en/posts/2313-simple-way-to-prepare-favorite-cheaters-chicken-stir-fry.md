@@ -20,9 +20,9 @@ recipeingredient:
 - "1 Garlic Powder  Pepper"
 - "Package Frozen Shrimp Optional"
 recipeinstructions:
-- "Soak frozen Shrimp in cold water to defrost. Rinse Chicken breast &amp; cube into small pieces. Season to taste both Chicken &amp; Shrimp with pepper &amp; garlic powder. Start cooking in a separate skillet on medium heat. Cook all the way through. Once it&#39;s completely cooked add to the stir fry mixture."
+- "Soak frozen Shrimp in cold water to defrost. Rinse Chicken breast & cube into small pieces. Season to taste both Chicken & Shrimp with pepper & garlic powder. Start cooking in a separate skillet on medium heat. Cook all the way through. Once it&#39;s completely cooked add to the stir fry mixture."
 - "Empty your favorite bag of stir fry mix into wok or non stick pan. Start cooking on medium - high heat. Stir frequently."
-- "Rinse raw rice &amp; place into rice steamer. If you don&#39;t have a steamer, cook rice the old fashioned way on the stove."
+- "Rinse raw rice & place into rice steamer. If you don&#39;t have a steamer, cook rice the old fashioned way on the stove."
 - "Once rice is done the stir fry mix should be fully cooked. Serve over the rice with a splash of soy sauce if you like. Enjoy!"
 - "Ready to serve and ENJOY!"
 categories:
@@ -62,7 +62,7 @@ To begin with this recipe, we have to first prepare a few components. You can co
 1. Prepare 4 cup Raw Rice
 1. Take 1 packages Frozen Stir Fry Mix
 1. Take 1 Soy Sauce
-1. Get 1 Garlic Powder &amp; Pepper
+1. Get 1 Garlic Powder & Pepper
 1. Take Package Frozen Shrimp Optional
 
 
@@ -72,9 +72,9 @@ To begin with this recipe, we have to first prepare a few components. You can co
 
 ##### Steps to make Cheaters Chicken Stir Fry:
 
-1. Soak frozen Shrimp in cold water to defrost. Rinse Chicken breast &amp; cube into small pieces. Season to taste both Chicken &amp; Shrimp with pepper &amp; garlic powder. Start cooking in a separate skillet on medium heat. Cook all the way through. Once it&#39;s completely cooked add to the stir fry mixture.
+1. Soak frozen Shrimp in cold water to defrost. Rinse Chicken breast & cube into small pieces. Season to taste both Chicken & Shrimp with pepper & garlic powder. Start cooking in a separate skillet on medium heat. Cook all the way through. Once it&#39;s completely cooked add to the stir fry mixture.
 1. Empty your favorite bag of stir fry mix into wok or non stick pan. Start cooking on medium - high heat. Stir frequently.
-1. Rinse raw rice &amp; place into rice steamer. If you don&#39;t have a steamer, cook rice the old fashioned way on the stove.
+1. Rinse raw rice & place into rice steamer. If you don&#39;t have a steamer, cook rice the old fashioned way on the stove.
 1. Once rice is done the stir fry mix should be fully cooked. Serve over the rice with a splash of soy sauce if you like. Enjoy!
 1. Ready to serve and ENJOY!
 

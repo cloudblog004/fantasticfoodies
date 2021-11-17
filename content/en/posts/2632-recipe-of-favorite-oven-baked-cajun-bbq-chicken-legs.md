@@ -21,7 +21,7 @@ recipeingredient:
 - "1/2 Tsp. Each of kosher salt  freshly ground pepper"
 recipeinstructions:
 - "Preheat oven to 400 degrees"
-- "Blend together Cajun seasoning, BBQ seasoning, salt &amp; freshly ground black pepper."
+- "Blend together Cajun seasoning, BBQ seasoning, salt & freshly ground black pepper."
 - "Coat chicken legs on all sides with Olive oil."
 - "Season chicken legs on all side with seasoning mixture."
 - "Place chicken legs skin side down on a baking sheet pan."
@@ -74,7 +74,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Get 21/2 Tbsp. Holy Smoke bbq rub seasoning;(can only buy it in Tenn
 1. Get  (You can use whatever bbq. Rub seasoning you want too.)
 1. Make ready 1 Tbsp. Slap Ya Mama Cajun seasoning
-1. Take 1/2 Tsp. Each of kosher salt &amp; freshly ground pepper
+1. Take 1/2 Tsp. Each of kosher salt & freshly ground pepper
 
 
 
@@ -84,7 +84,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 ##### Instructions to make Oven Baked cajun BBQ Chicken Legs:
 
 1. Preheat oven to 400 degrees
-1. Blend together Cajun seasoning, BBQ seasoning, salt &amp; freshly ground black pepper.
+1. Blend together Cajun seasoning, BBQ seasoning, salt & freshly ground black pepper.
 1. Coat chicken legs on all sides with Olive oil.
 1. Season chicken legs on all side with seasoning mixture.
 1. Place chicken legs skin side down on a baking sheet pan.

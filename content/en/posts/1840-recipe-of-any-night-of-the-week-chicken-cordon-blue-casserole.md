@@ -24,9 +24,9 @@ recipeingredient:
 recipeinstructions:
 - "Pre-heat oven to 450°"
 - "PREP: Shred rotisserie chicken into bite size pieces."
-- "PREP: Microwave frozen rice &amp; broccoli according to package instructions."
-- "Cover the bottom of the dish with the rice , even out as much as possible. Season rice with garlic salt &amp; pepper to liking."
-- "Next layer is the broccoli, even out over rice &amp; season to liking."
+- "PREP: Microwave frozen rice & broccoli according to package instructions."
+- "Cover the bottom of the dish with the rice , even out as much as possible. Season rice with garlic salt & pepper to liking."
+- "Next layer is the broccoli, even out over rice & season to liking."
 - "Pour cream of chicken evenly over broccoli and rice."
 - "Place chicken pieces evenly over casserole."
 - "Arrange 6 slices of cheese over chicken."
@@ -86,9 +86,9 @@ Keto Low Carb Chicken Cordon Bleu Casserole. Low Carb Chicken Cordon Bleu Casser
 
 1. Pre-heat oven to 450°
 1. PREP: Shred rotisserie chicken into bite size pieces.
-1. PREP: Microwave frozen rice &amp; broccoli according to package instructions.
-1. Cover the bottom of the dish with the rice , even out as much as possible. Season rice with garlic salt &amp; pepper to liking.
-1. Next layer is the broccoli, even out over rice &amp; season to liking.
+1. PREP: Microwave frozen rice & broccoli according to package instructions.
+1. Cover the bottom of the dish with the rice , even out as much as possible. Season rice with garlic salt & pepper to liking.
+1. Next layer is the broccoli, even out over rice & season to liking.
 1. Pour cream of chicken evenly over broccoli and rice.
 1. Place chicken pieces evenly over casserole.
 1. Arrange 6 slices of cheese over chicken.

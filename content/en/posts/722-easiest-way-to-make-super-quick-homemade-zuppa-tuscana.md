@@ -50,7 +50,7 @@ recipecategory: Dessert
 
 Hey everyone, it's me again, Dan, welcome to my recipe site. Today, we're going to make a distinctive dish, zuppa tuscana. It is one of my favorites. This time, I will make it a little bit unique. This will be really delicious.
 
-Zuppa toscana is a broad based term, literally meaning &#34;Tuscan soup&#34; but in Italy it is called &#34;Minestra di Pane&#34; meaning &#34;Bread Soup&#34;. Classic zuppa toscana normally is a soup made from kale, zucchini, cannellini beans, potatoes, celery, carrots, onion, tomato pulp, extra virgin olive oil, salt. If you love the Zuppa Toscana at your local chain Italian restaurant, you will adore this soup. The rich soup is made with Italian sausage, potatoes, cream, and crushed red pepper. Тосканский суп (zuppa toscana).
+Zuppa toscana is a broad based term, literally meaning *Tuscan soup* but in Italy it is called *Minestra di Pane* meaning *Bread Soup*. Classic zuppa toscana normally is a soup made from kale, zucchini, cannellini beans, potatoes, celery, carrots, onion, tomato pulp, extra virgin olive oil, salt. If you love the Zuppa Toscana at your local chain Italian restaurant, you will adore this soup. The rich soup is made with Italian sausage, potatoes, cream, and crushed red pepper. Тосканский суп (zuppa toscana).
 
 Zuppa Tuscana is one of the most favored of current trending foods on earth. It's easy, it's fast, it tastes delicious. It's appreciated by millions daily. They are nice and they look fantastic. Zuppa Tuscana is something which I have loved my whole life.
 

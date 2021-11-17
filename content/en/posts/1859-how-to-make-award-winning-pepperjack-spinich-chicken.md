@@ -68,7 +68,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can have pe
 1. Make ready 4 slice bacon fryed and crumbled
 
 
-Rub olive oil and seasonings on the outside of the chicken. I try to make all my recipes simple, quick and easy to follow. Chicken, spinach &amp; pepper jack roulades are thin chicken breasts wrapped around a spinach pepper-jack cheese filling and baked in a breadcrumb coating. This roulade is SO delicious, and it makes an impressive entree to serve at a special meal or for company. 
+Rub olive oil and seasonings on the outside of the chicken. I try to make all my recipes simple, quick and easy to follow. Chicken, spinach & pepper jack roulades are thin chicken breasts wrapped around a spinach pepper-jack cheese filling and baked in a breadcrumb coating. This roulade is SO delicious, and it makes an impressive entree to serve at a special meal or for company. 
 
 <!--inarticleads2-->
 
@@ -80,6 +80,6 @@ Rub olive oil and seasonings on the outside of the chicken. I try to make all my
 1. Place back in oven and bake for the remainder of the hour
 1. Ready to serve and ENJOY!
 
-Chicken, spinach &amp; pepper jack roulades are thin chicken breasts wrapped around a spinach pepper-jack cheese filling and baked in a breadcrumb coating. This roulade is SO delicious, and it makes an impressive entree to serve at a special meal or for company. Cajun Roasted Chicken Breast stuffed with a hearty blend of spinach and pepper jack cheese- amazingly easy to recreate. It&#39;s fine though because I&#39;ll use the leftover spinach/cheese mix in an omlette and that&#39;s my only complaint with the recipe. Hasselback Chicken with Spinach and Pepper Jack. 
+Chicken, spinach & pepper jack roulades are thin chicken breasts wrapped around a spinach pepper-jack cheese filling and baked in a breadcrumb coating. This roulade is SO delicious, and it makes an impressive entree to serve at a special meal or for company. Cajun Roasted Chicken Breast stuffed with a hearty blend of spinach and pepper jack cheese- amazingly easy to recreate. It&#39;s fine though because I&#39;ll use the leftover spinach/cheese mix in an omlette and that&#39;s my only complaint with the recipe. Hasselback Chicken with Spinach and Pepper Jack. 
 
 So that's going to wrap this up with this special food pepperjack spinich chicken recipe. Thanks so much for your time. I am sure you will make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

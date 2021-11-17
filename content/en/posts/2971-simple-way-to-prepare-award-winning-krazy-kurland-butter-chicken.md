@@ -90,7 +90,7 @@ To begin with this recipe, we have to prepare a few components. You can cook kra
 1. Make ready 1/2 tsp garam masala (optional)
 
 
-Chunks of grilled chicken (tandoori chicken) cooked in a smooth buttery &amp; creamy tomato based gravy is known as Butter chicken or murgh. Butter Chicken (Murgh Makhani) is one of the most popular curries in the world and yet happens to be one of the easiest! Butter Chicken - a Chef recipe! As someone who loves food with big, BIG flavours, it&#39;s no surprise that Indian is one of my favourite foods. 
+Chunks of grilled chicken (tandoori chicken) cooked in a smooth buttery & creamy tomato based gravy is known as Butter chicken or murgh. Butter Chicken (Murgh Makhani) is one of the most popular curries in the world and yet happens to be one of the easiest! Butter Chicken - a Chef recipe! As someone who loves food with big, BIG flavours, it&#39;s no surprise that Indian is one of my favourite foods. 
 
 <!--inarticleads2-->
 
@@ -106,6 +106,6 @@ Chunks of grilled chicken (tandoori chicken) cooked in a smooth buttery &amp; cr
 1. Freezes well. Frozen and leftover portions shown.
 1. Ready to serve and ENJOY!
 
-Butter Chicken - a Chef recipe! As someone who loves food with big, BIG flavours, it&#39;s no surprise that Indian is one of my favourite foods. This Butter Chicken Masala Recipe is an explosion of flavour, plus the ingredients are easy to find. Murgh, in the Punjabi language, means &#34;chicken&#34; and Makhani means &#34;with butter&#34;, so Murgh Makhani became internationally known as Butter Chicken Masala. Join the thousands who have made and loved this very popular recipe! 
+Butter Chicken - a Chef recipe! As someone who loves food with big, BIG flavours, it&#39;s no surprise that Indian is one of my favourite foods. This Butter Chicken Masala Recipe is an explosion of flavour, plus the ingredients are easy to find. Murgh, in the Punjabi language, means *chicken* and Makhani means *with butter*, so Murgh Makhani became internationally known as Butter Chicken Masala. Join the thousands who have made and loved this very popular recipe! 
 
 So that's going to wrap this up with this special food krazy kurland butter chicken recipe. Thanks so much for your time. I am sure you will make this at home. There is gonna be more interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

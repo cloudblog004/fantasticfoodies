@@ -22,8 +22,8 @@ recipeingredient:
 - "1/2 onion chopped"
 - "1 red bell pepper"
 recipeinstructions:
-- "Melt butter or use olive oil in large skillet over med/low heat.  Add bell pepper, onion &amp; spices.   Brown chicken on both sides.  Place in crock pot."
-- "Combine cans of soup &amp; milk.  Mix thoroughly."
+- "Melt butter or use olive oil in large skillet over med/low heat.  Add bell pepper, onion & spices.   Brown chicken on both sides.  Place in crock pot."
+- "Combine cans of soup & milk.  Mix thoroughly."
 - "Prepare stuffing according to package.  decrease liquid by half."
 - "Place chicken in crockpot.  Pour soup over chicken."
 - "Arrange stuffing over chicken.  Cook on high 3-4 hours"
@@ -61,7 +61,7 @@ To begin with this particular recipe, we have to first prepare a few components.
 
 ##### The ingredients needed to make Crockpot chicken and stuffing:
 
-1. Get 3/4 tsp garlic powder, bacon &amp; molasses seasoning and basil
+1. Get 3/4 tsp garlic powder, bacon & molasses seasoning and basil
 1. Take 3 pounds boneless chicken breast tenders
 1. Make ready 1/4 cup of butter=1/2 stick of butter  (i used olive oil instead)
 1. Get 2 can campbells cream of mushroom soup...(i used 1 can cream of mushroom and 1 can cream of chicken) undiluted
@@ -77,8 +77,8 @@ This is one of my go-to easy weeknight meals that I am constantly making time an
 
 ##### Instructions to make Crockpot chicken and stuffing:
 
-1. Melt butter or use olive oil in large skillet over med/low heat.  Add bell pepper, onion &amp; spices.   Brown chicken on both sides.  Place in crock pot.
-1. Combine cans of soup &amp; milk.  Mix thoroughly.
+1. Melt butter or use olive oil in large skillet over med/low heat.  Add bell pepper, onion & spices.   Brown chicken on both sides.  Place in crock pot.
+1. Combine cans of soup & milk.  Mix thoroughly.
 1. Prepare stuffing according to package.  decrease liquid by half.
 1. Place chicken in crockpot.  Pour soup over chicken.
 1. Arrange stuffing over chicken.  Cook on high 3-4 hours

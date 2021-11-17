@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Make Speedy Vickys Chargrilled Chicken, Potato &amp;amp; Chorizo Salad with Paprika Dressing"
-title: "Simple Way to Make Speedy Vickys Chargrilled Chicken, Potato &amp;amp; Chorizo Salad with Paprika Dressing"
+description: "Simple Way to Make Speedy Vickys Chargrilled Chicken, Potato & Chorizo Salad with Paprika Dressing"
+title: "Simple Way to Make Speedy Vickys Chargrilled Chicken, Potato & Chorizo Salad with Paprika Dressing"
 slug: 299-simple-way-to-make-speedy-vickys-chargrilled-chicken-potato-and-amp-chorizo-salad-with-paprika-dressing
 date: 2022-01-08T10:57:47.085Z
 image: https://img-global.cpcdn.com/recipes/50178299/680x482cq70/vickys-chargrilled-chicken-potato-chorizo-salad-with-paprika-dressing-recipe-main-photo.jpg
@@ -57,20 +57,20 @@ recipecategory: Dinner
 ---
 
 
-![Vickys Chargrilled Chicken, Potato &amp; Chorizo Salad with Paprika Dressing](https://img-global.cpcdn.com/recipes/50178299/680x482cq70/vickys-chargrilled-chicken-potato-chorizo-salad-with-paprika-dressing-recipe-main-photo.jpg)
+![Vickys Chargrilled Chicken, Potato & Chorizo Salad with Paprika Dressing](https://img-global.cpcdn.com/recipes/50178299/680x482cq70/vickys-chargrilled-chicken-potato-chorizo-salad-with-paprika-dressing-recipe-main-photo.jpg)
 
-Hey everyone, hope you're having an amazing day today. Today, we're going to make a special dish, vickys chargrilled chicken, potato &amp; chorizo salad with paprika dressing. It is one of my favorites food recipes. For mine, I am going to make it a little bit tasty. This will be really delicious.
+Hey everyone, hope you're having an amazing day today. Today, we're going to make a special dish, vickys chargrilled chicken, potato & chorizo salad with paprika dressing. It is one of my favorites food recipes. For mine, I am going to make it a little bit tasty. This will be really delicious.
 
-Vickys Chargrilled Chicken, Potato &amp; Chorizo Salad with Paprika Dressing is one of the most popular of recent trending foods on earth. It's enjoyed by millions every day. It's easy, it is quick, it tastes delicious. Vickys Chargrilled Chicken, Potato &amp; Chorizo Salad with Paprika Dressing is something which I have loved my whole life. They're fine and they look wonderful.
-
-
+Vickys Chargrilled Chicken, Potato & Chorizo Salad with Paprika Dressing is one of the most popular of recent trending foods on earth. It's enjoyed by millions every day. It's easy, it is quick, it tastes delicious. Vickys Chargrilled Chicken, Potato & Chorizo Salad with Paprika Dressing is something which I have loved my whole life. They're fine and they look wonderful.
 
 
-To get started with this recipe, we must prepare a few ingredients. You can have vickys chargrilled chicken, potato &amp; chorizo salad with paprika dressing using 18 ingredients and 6 steps. Here is how you cook that.
+
+
+To get started with this recipe, we must prepare a few ingredients. You can have vickys chargrilled chicken, potato & chorizo salad with paprika dressing using 18 ingredients and 6 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Vickys Chargrilled Chicken, Potato &amp; Chorizo Salad with Paprika Dressing:
+##### The ingredients needed to make Vickys Chargrilled Chicken, Potato & Chorizo Salad with Paprika Dressing:
 
 1. Get 200 grams pre-boiled potatoes, cut into chunks
 1. Take 200 grams cold chargrilled chicken, sliced
@@ -96,7 +96,7 @@ To get started with this recipe, we must prepare a few ingredients. You can have
 
 <!--inarticleads2-->
 
-##### Instructions to make Vickys Chargrilled Chicken, Potato &amp; Chorizo Salad with Paprika Dressing:
+##### Instructions to make Vickys Chargrilled Chicken, Potato & Chorizo Salad with Paprika Dressing:
 
 1. To make the dressing, combine all ingredients in a small bowl, whisking the oil in last and slowly. Adjust to suit your taste and leave in the fridge to chill
 1. Place the salad leaves on plates with half of the sliced chicken. Add the sundried tomatoes, slice them if you like or leave them whole
@@ -108,4 +108,4 @@ To get started with this recipe, we must prepare a few ingredients. You can have
 
 
 
-So that's going to wrap this up with this exceptional food vickys chargrilled chicken, potato &amp; chorizo salad with paprika dressing recipe. Thanks so much for your time. I am confident you can make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
+So that's going to wrap this up with this exceptional food vickys chargrilled chicken, potato & chorizo salad with paprika dressing recipe. Thanks so much for your time. I am confident you can make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

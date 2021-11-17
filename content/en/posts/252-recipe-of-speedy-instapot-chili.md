@@ -48,7 +48,7 @@ Hey everyone, it is Jim, welcome to my recipe site. Today, we're going to prepar
 
 Instapot chili is one of the most popular of current trending foods in the world. It's appreciated by millions daily. It is simple, it's fast, it tastes yummy. Instapot chili is something which I have loved my entire life. They are fine and they look wonderful.
 
-Make this Instant Pot Chili (Pressure Cooker Chili) under an hour. Loaded with layers of umami &amp; spicy flavors &amp; textures, this easy beef and beans chili will satisfy your hearty comfort food cravings. Instant Pot Chili is the quick weeknight dinner you&#39;ve been missing. Return insert to Instant Pot and add broth, beans, tomatoes, chili powder, cumin, oregano and cayenne.
+Make this Instant Pot Chili (Pressure Cooker Chili) under an hour. Loaded with layers of umami & spicy flavors & textures, this easy beef and beans chili will satisfy your hearty comfort food cravings. Instant Pot Chili is the quick weeknight dinner you&#39;ve been missing. Return insert to Instant Pot and add broth, beans, tomatoes, chili powder, cumin, oregano and cayenne.
 
 
 To get started with this particular recipe, we must first prepare a few components. You can cook instapot chili using 7 ingredients and 3 steps. Here is how you can achieve it.

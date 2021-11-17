@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Ultimate Heidi&amp;#39;s Sensational Motherload Lasagne"
-title: "Steps to Prepare Ultimate Heidi&amp;#39;s Sensational Motherload Lasagne"
+description: "Steps to Prepare Ultimate Heidi's Sensational Motherload Lasagne"
+title: "Steps to Prepare Ultimate Heidi's Sensational Motherload Lasagne"
 slug: 326-steps-to-prepare-ultimate-heidi-and-39-s-sensational-motherload-lasagne
 date: 2021-11-14T16:35:14.959Z
 image: https://img-global.cpcdn.com/recipes/5769622190030848/680x482cq70/heidis-sensational-motherload-lasagne-recipe-main-photo.jpg

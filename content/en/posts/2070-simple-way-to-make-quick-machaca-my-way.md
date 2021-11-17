@@ -74,7 +74,7 @@ To get started with this recipe, we must prepare a few ingredients. You can have
 1. Get 1 bunch of Cilantro
 1. Take 1 Anaheim Pepper
 1. Make ready 1 water
-1. Take 1 packages Sazon Goya(Tomatoe &amp; Cilantro Flavor)
+1. Take 1 packages Sazon Goya(Tomatoe & Cilantro Flavor)
 1. Prepare 1 white onion
 
 

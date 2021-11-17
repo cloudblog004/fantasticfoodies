@@ -30,7 +30,7 @@ recipeinstructions:
 - "Debone Thighs to Strips/Bite size pieces, if you don&#39;t have boneless."
 - "Place pieces in dry mix bowl -- cover chicken completely, all sides and under skin if possible."
 - "Shake off excess dry mix over bowl, then put into frying pot."
-- "Mix Sauce in separate bowl. The ginger I just skinned it, left it as is but pounded it a bit to release flavor &amp;it&#39;s easier to control the ginger taste this way."
+- "Mix Sauce in separate bowl. The ginger I just skinned it, left it as is but pounded it a bit to release flavor &it&#39;s easier to control the ginger taste this way."
 - "When chicken is fried to a brown, place on the rack to do excess oil off."
 - "Place choke chicken into sauce bowl. Coat chicken then place on rack again or plate to serve! *don&#39;t leave chicken in sauce because it&#39;ll get soggy."
 - "Ready to serve and ENJOY!"
@@ -78,7 +78,7 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 1. Make ready 1 Cup Aloha Shoyu
 1. Make ready 1/3 Cup Sesame Oil
 1. Take 6 Cloves Fresh Garlic
-1. Take 4 &#34; Ginger piece
+1. Take 4 * Ginger piece
 
 
 
@@ -91,7 +91,7 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 1. Debone Thighs to Strips/Bite size pieces, if you don&#39;t have boneless.
 1. Place pieces in dry mix bowl -- cover chicken completely, all sides and under skin if possible.
 1. Shake off excess dry mix over bowl, then put into frying pot.
-1. Mix Sauce in separate bowl. The ginger I just skinned it, left it as is but pounded it a bit to release flavor &amp;it&#39;s easier to control the ginger taste this way.
+1. Mix Sauce in separate bowl. The ginger I just skinned it, left it as is but pounded it a bit to release flavor &it&#39;s easier to control the ginger taste this way.
 1. When chicken is fried to a brown, place on the rack to do excess oil off.
 1. Place choke chicken into sauce bowl. Coat chicken then place on rack again or plate to serve! *don&#39;t leave chicken in sauce because it&#39;ll get soggy.
 1. Ready to serve and ENJOY!

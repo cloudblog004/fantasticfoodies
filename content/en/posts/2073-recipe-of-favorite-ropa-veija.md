@@ -34,7 +34,7 @@ recipeinstructions:
 - "this recipe is great in a slow cooker or big enough crock pot. its a great dish to leave overnight cooking on low.the longer it cooks the better it taste."
 - "start by adding your roast, water, all seasonings,chopped garlic, bay leaves, and achote paste. cook time Is usually 4-10hrs depending on how high or low you cook it."
 - "slice your veggies and set aside."
-- "check your meat every so often.once its starts shredding abit you can help it out by shredding with 2 forks, check for seasoning. Now add in vegtables, drained olives &amp; 2tbspn of tomatoe paste.  let cook another 30min. you can serve with or without the stock juice your choice. the name translates to old dirty clothes.lol shredded beef."
+- "check your meat every so often.once its starts shredding abit you can help it out by shredding with 2 forks, check for seasoning. Now add in vegtables, drained olives & 2tbspn of tomatoe paste.  let cook another 30min. you can serve with or without the stock juice your choice. the name translates to old dirty clothes.lol shredded beef."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -96,7 +96,7 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 1. this recipe is great in a slow cooker or big enough crock pot. its a great dish to leave overnight cooking on low.the longer it cooks the better it taste.
 1. start by adding your roast, water, all seasonings,chopped garlic, bay leaves, and achote paste. cook time Is usually 4-10hrs depending on how high or low you cook it.
 1. slice your veggies and set aside.
-1. check your meat every so often.once its starts shredding abit you can help it out by shredding with 2 forks, check for seasoning. Now add in vegtables, drained olives &amp; 2tbspn of tomatoe paste.  let cook another 30min. you can serve with or without the stock juice your choice. the name translates to old dirty clothes.lol shredded beef.
+1. check your meat every so often.once its starts shredding abit you can help it out by shredding with 2 forks, check for seasoning. Now add in vegtables, drained olives & 2tbspn of tomatoe paste.  let cook another 30min. you can serve with or without the stock juice your choice. the name translates to old dirty clothes.lol shredded beef.
 1. Ready to serve and ENJOY!
 
 

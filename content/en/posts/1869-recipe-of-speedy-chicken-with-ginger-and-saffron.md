@@ -52,7 +52,7 @@ Hello everybody, it is John, welcome to my recipe site. Today, I will show you a
 
 Chicken with Ginger and Saffron is one of the most favored of current trending meals on earth. It's enjoyed by millions daily. It's simple, it is fast, it tastes yummy. Chicken with Ginger and Saffron is something that I've loved my whole life. They're nice and they look wonderful.
 
-This easy baked chicken recipe is perfect for entertaining because you can mix most of the ingredients together ahead of time. While the chicken is baking, you can throw together a salad and make couscous or rice to sop up the delicious All Reviews for Rhubarb, Ginger &amp; Saffron Baked Chicken. Season the chicken all over then brown all over in a large frying pan in sunflower oil over a medium heat. Peel the ginger and garlic then pulse together Pour over the almond milk (and ground almonds if using), add the dates and scatter over the strands of saffron.
+This easy baked chicken recipe is perfect for entertaining because you can mix most of the ingredients together ahead of time. While the chicken is baking, you can throw together a salad and make couscous or rice to sop up the delicious All Reviews for Rhubarb, Ginger & Saffron Baked Chicken. Season the chicken all over then brown all over in a large frying pan in sunflower oil over a medium heat. Peel the ginger and garlic then pulse together Pour over the almond milk (and ground almonds if using), add the dates and scatter over the strands of saffron.
 
 
 To begin with this particular recipe, we must prepare a few components. You can have chicken with ginger and saffron using 7 ingredients and 6 steps. Here is how you cook it.

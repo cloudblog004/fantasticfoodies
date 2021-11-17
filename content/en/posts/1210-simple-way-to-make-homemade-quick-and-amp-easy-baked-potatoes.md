@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Make Homemade Quick &amp;amp; easy BAKED POTATOES"
-title: "Simple Way to Make Homemade Quick &amp;amp; easy BAKED POTATOES"
+description: "Simple Way to Make Homemade Quick & easy BAKED POTATOES"
+title: "Simple Way to Make Homemade Quick & easy BAKED POTATOES"
 slug: 1210-simple-way-to-make-homemade-quick-and-amp-easy-baked-potatoes
 date: 2022-04-01T14:35:39.731Z
 image: https://img-global.cpcdn.com/recipes/6666066106253312/680x482cq70/quick-easy-baked-potatoes-recipe-main-photo.jpg
@@ -29,7 +29,7 @@ recipeinstructions:
 - "cook potatoes one at a time 5 minutes each or until done"
 - "Chop onions and tomato set a side"
 - "Once potatoes are done season to your taste"
-- "Top with butter , chicken,  cheese,  onion , &amp; tomato microwave for 2 minutes  or until cheese is melted"
+- "Top with butter , chicken,  cheese,  onion , & tomato microwave for 2 minutes  or until cheese is melted"
 - "Top with sour cream and enjoy!  I also had a spinach and tomato salad on the side."
 - "Ready to serve and ENJOY!"
 categories:
@@ -50,20 +50,20 @@ recipecategory: Lunch
 ---
 
 
-![Quick &amp; easy BAKED POTATOES](https://img-global.cpcdn.com/recipes/6666066106253312/680x482cq70/quick-easy-baked-potatoes-recipe-main-photo.jpg)
+![Quick & easy BAKED POTATOES](https://img-global.cpcdn.com/recipes/6666066106253312/680x482cq70/quick-easy-baked-potatoes-recipe-main-photo.jpg)
 
-Hello everybody, it's Louise, welcome to my recipe site. Today, we're going to make a special dish, quick &amp; easy baked potatoes. One of my favorites food recipes. For mine, I'm gonna make it a bit unique. This is gonna smell and look delicious.
+Hello everybody, it's Louise, welcome to my recipe site. Today, we're going to make a special dish, quick & easy baked potatoes. One of my favorites food recipes. For mine, I'm gonna make it a bit unique. This is gonna smell and look delicious.
 
 Перевод слова quick, американское и британское произношение, транскрипция, словосочетания, однокоренные слова, примеры использования. Quick, as an adjective, refers to something moving with high speed. Quick may also refer to: Quick (restaurant), a Belgian fast-food restaurant chain. Quick (sportswear), a Dutch manufacturer of sportswear.
 
-Quick &amp; easy BAKED POTATOES is one of the most well liked of current trending meals on earth. It's appreciated by millions every day. It's simple, it's fast, it tastes delicious. They're nice and they look wonderful. Quick &amp; easy BAKED POTATOES is something which I've loved my entire life.
+Quick & easy BAKED POTATOES is one of the most well liked of current trending meals on earth. It's appreciated by millions every day. It's simple, it's fast, it tastes delicious. They're nice and they look wonderful. Quick & easy BAKED POTATOES is something which I've loved my entire life.
 
 
-To begin with this particular recipe, we must prepare a few ingredients. You can cook quick &amp; easy baked potatoes using 12 ingredients and 5 steps. Here is how you can achieve that.
+To begin with this particular recipe, we must prepare a few ingredients. You can cook quick & easy baked potatoes using 12 ingredients and 5 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Quick &amp; easy BAKED POTATOES:
+##### The ingredients needed to make Quick & easy BAKED POTATOES:
 
 1. Make ready  main
 1. Prepare 4 medium baking potatoes
@@ -83,15 +83,15 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 
 <!--inarticleads2-->
 
-##### Instructions to make Quick &amp; easy BAKED POTATOES:
+##### Instructions to make Quick & easy BAKED POTATOES:
 
 1. cook potatoes one at a time 5 minutes each or until done
 1. Chop onions and tomato set a side
 1. Once potatoes are done season to your taste
-1. Top with butter , chicken,  cheese,  onion , &amp; tomato microwave for 2 minutes  or until cheese is melted
+1. Top with butter , chicken,  cheese,  onion , & tomato microwave for 2 minutes  or until cheese is melted
 1. Top with sour cream and enjoy!  I also had a spinach and tomato salad on the side.
 1. Ready to serve and ENJOY!
 
 
 
-So that's going to wrap it up with this exceptional food quick &amp; easy baked potatoes recipe. Thank you very much for your time. I am confident that you can make this at home. There's gonna be interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
+So that's going to wrap it up with this exceptional food quick & easy baked potatoes recipe. Thank you very much for your time. I am confident that you can make this at home. There's gonna be interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

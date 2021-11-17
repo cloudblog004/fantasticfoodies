@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Homemade Super Quick Chicken &amp;amp; Tomatoes"
-title: "Recipe of Homemade Super Quick Chicken &amp;amp; Tomatoes"
+description: "Recipe of Homemade Super Quick Chicken & Tomatoes"
+title: "Recipe of Homemade Super Quick Chicken & Tomatoes"
 slug: 1165-recipe-of-homemade-super-quick-chicken-and-amp-tomatoes
 date: 2021-11-23T09:14:51.292Z
 image: https://img-global.cpcdn.com/recipes/6003245165051904/680x482cq70/super-quick-chicken-tomatoes-recipe-main-photo.jpg
@@ -54,20 +54,20 @@ recipecategory: Lunch
 ---
 
 
-![Super Quick Chicken &amp; Tomatoes](https://img-global.cpcdn.com/recipes/6003245165051904/680x482cq70/super-quick-chicken-tomatoes-recipe-main-photo.jpg)
+![Super Quick Chicken & Tomatoes](https://img-global.cpcdn.com/recipes/6003245165051904/680x482cq70/super-quick-chicken-tomatoes-recipe-main-photo.jpg)
 
-Hey everyone, I hope you're having an incredible day today. Today, I'm gonna show you how to prepare a distinctive dish, super quick chicken &amp; tomatoes. One of my favorites food recipes. This time, I am going to make it a bit unique. This will be really delicious.
-
-
-
-Super Quick Chicken &amp; Tomatoes is one of the most well liked of recent trending foods on earth. It's simple, it is quick, it tastes yummy. It is appreciated by millions every day. They're fine and they look fantastic. Super Quick Chicken &amp; Tomatoes is something which I've loved my entire life.
+Hey everyone, I hope you're having an incredible day today. Today, I'm gonna show you how to prepare a distinctive dish, super quick chicken & tomatoes. One of my favorites food recipes. This time, I am going to make it a bit unique. This will be really delicious.
 
 
-To begin with this particular recipe, we have to first prepare a few components. You can have super quick chicken &amp; tomatoes using 13 ingredients and 8 steps. Here is how you can achieve that.
+
+Super Quick Chicken & Tomatoes is one of the most well liked of recent trending foods on earth. It's simple, it is quick, it tastes yummy. It is appreciated by millions every day. They're fine and they look fantastic. Super Quick Chicken & Tomatoes is something which I've loved my entire life.
+
+
+To begin with this particular recipe, we have to first prepare a few components. You can have super quick chicken & tomatoes using 13 ingredients and 8 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Super Quick Chicken &amp; Tomatoes:
+##### The ingredients needed to make Super Quick Chicken & Tomatoes:
 
 1. Make ready 200 grams Chicken breast
 1. Prepare 1 medium Onion
@@ -88,7 +88,7 @@ To begin with this particular recipe, we have to first prepare a few components.
 
 <!--inarticleads2-->
 
-##### Instructions to make Super Quick Chicken &amp; Tomatoes:
+##### Instructions to make Super Quick Chicken & Tomatoes:
 
 1. Cut vegetables into bite sizes.  Cut the chicken into cubes. Sprinkle on salt, pepper and sake.
 1. Add 1 tablespoon of olive oil in a wok, and fry the finely chopped garlic over low heat.  Be sure not to burn it.
@@ -102,4 +102,4 @@ To begin with this particular recipe, we have to first prepare a few components.
 
 
 
-So that is going to wrap it up with this exceptional food super quick chicken &amp; tomatoes recipe. Thank you very much for reading. I am confident that you will make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
+So that is going to wrap it up with this exceptional food super quick chicken & tomatoes recipe. Thank you very much for reading. I am confident that you will make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

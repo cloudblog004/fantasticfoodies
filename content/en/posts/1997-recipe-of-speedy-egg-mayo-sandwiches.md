@@ -20,8 +20,8 @@ recipeingredient:
 - "1 pinch Salt"
 - "3 Boil egg"
 recipeinstructions:
-- "Take a bowl add shreded chicken and add mayonise,black pepper &amp;salt mix it well"
-- "Cut edges of bread.Now apply mayo chicken and cover slice with boil egg pieces sprinkle some black pepper.Serve &amp;enjoy yum yum sandwiches"
+- "Take a bowl add shreded chicken and add mayonise,black pepper &salt mix it well"
+- "Cut edges of bread.Now apply mayo chicken and cover slice with boil egg pieces sprinkle some black pepper.Serve &enjoy yum yum sandwiches"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -70,8 +70,8 @@ Try this tasty open sandwich - perfect for lunch. Egg mayonnaise sandwiches shou
 
 ##### Steps to make Egg mayo sandwiches:
 
-1. Take a bowl add shreded chicken and add mayonise,black pepper &amp;salt mix it well
-1. Cut edges of bread.Now apply mayo chicken and cover slice with boil egg pieces sprinkle some black pepper.Serve &amp;enjoy yum yum sandwiches
+1. Take a bowl add shreded chicken and add mayonise,black pepper &salt mix it well
+1. Cut edges of bread.Now apply mayo chicken and cover slice with boil egg pieces sprinkle some black pepper.Serve &enjoy yum yum sandwiches
 1. Ready to serve and ENJOY!
 
 Here I show you some game changing tips I like my egg mayo fairly mayo heavy, but work to preference. Egg Mayo Sandwich Recipes on Yummly Caribbean Pork Sandwich, Cheesy Egg Salad Chicken Sandwich with Mango ChutneySobre Dulce y Salado. lime juice, ground ginger, chicken. Use up the end of a jar of curry paste to make these spiced egg mayo sandwiches - we&#39;ve used korma paste, but you can experiment with. Egg Mayo Sandwich is a fairly easy to make preparation that does not require much offhand preparations. 

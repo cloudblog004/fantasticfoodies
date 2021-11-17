@@ -52,7 +52,7 @@ recipecategory: Dinner
 
 Hey everyone, it's me again, Dan, welcome to my recipe site. Today, I will show you a way to make a distinctive dish, rolled smashed chicken with ham and cheese. One of my favorites food recipes. This time, I will make it a little bit unique. This will be really delicious.
 
-Notes: You can replace the ham with bacon to make this a rolled hunters chicken. Use cheese slices that do not disintegrate when cooked. How to make Chicken Fillet Breaded Roll with Ham and CheeseWelcome to my channel &#34;Loukas Cooking Show&#34;My name is Loukas and i am from this beautiful island. I place the non-breaded chicken, ham and cheese roll ups in a baking pan, seam side down, and dump the sour cream/soup/mushroom mixture all over the chicken.
+Notes: You can replace the ham with bacon to make this a rolled hunters chicken. Use cheese slices that do not disintegrate when cooked. How to make Chicken Fillet Breaded Roll with Ham and CheeseWelcome to my channel *Loukas Cooking Show*My name is Loukas and i am from this beautiful island. I place the non-breaded chicken, ham and cheese roll ups in a baking pan, seam side down, and dump the sour cream/soup/mushroom mixture all over the chicken.
 
 Rolled smashed chicken with ham and cheese is one of the most favored of current trending foods on earth. It is easy, it is fast, it tastes delicious. It's enjoyed by millions daily. Rolled smashed chicken with ham and cheese is something which I've loved my whole life. They are nice and they look fantastic.
 

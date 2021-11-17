@@ -20,7 +20,7 @@ recipeingredient:
 - "2 cup cooked chopped chicken"
 recipeinstructions:
 - "Mix yogurt, grapes, apples, and nuts."
-- "Combine chicken &amp; yogurt mixture and place on top of salad."
+- "Combine chicken & yogurt mixture and place on top of salad."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -69,7 +69,7 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 ##### Steps to make Healthy Chicken Salad:
 
 1. Mix yogurt, grapes, apples, and nuts.
-1. Combine chicken &amp; yogurt mixture and place on top of salad.
+1. Combine chicken & yogurt mixture and place on top of salad.
 1. Ready to serve and ENJOY!
 
 

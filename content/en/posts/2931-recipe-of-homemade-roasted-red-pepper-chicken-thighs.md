@@ -92,6 +92,6 @@ You can have Roasted Red Pepper Chicken ? Meanwhile, heat roasted red pepper mix
 1. Serve with your favorite side dish and enjoy 😉!! I served mine with chicken flavored parsley white rice 🍚!!!
 1. Ready to serve and ENJOY!
 
-This Creamy Roasted Red Pepper Sauce with Chicken Thighs is made with real red peppers, cream, and chicken thighs. Here is how you cook that. A one-pan meal that is loaded with flavor and great for busy weeknights or relaxing weekends. Prep the glaze ahead of time for extra ease. Easy, juicy, flavorful roasted pepper chicken recipe seasoned with herbs &amp; spices and roasted with fresh red bell pepper, green bell peppers, celery, and onions. 
+This Creamy Roasted Red Pepper Sauce with Chicken Thighs is made with real red peppers, cream, and chicken thighs. Here is how you cook that. A one-pan meal that is loaded with flavor and great for busy weeknights or relaxing weekends. Prep the glaze ahead of time for extra ease. Easy, juicy, flavorful roasted pepper chicken recipe seasoned with herbs & spices and roasted with fresh red bell pepper, green bell peppers, celery, and onions. 
 
 So that's going to wrap this up with this exceptional food roasted red pepper chicken 🐔 thighs recipe. Thanks so much for reading. I am sure you will make this at home. There's gonna be interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

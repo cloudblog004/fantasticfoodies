@@ -65,7 +65,7 @@ Hello everybody, I hope you are having an incredible day today. Today, I'm gonna
 
 Oven baked marinated chicken is one of the most well liked of recent trending foods in the world. It is easy, it is quick, it tastes yummy. It is appreciated by millions every day. Oven baked marinated chicken is something which I have loved my whole life. They are fine and they look wonderful.
 
-Balsamic Marinated Chicken Breasts (Oven &amp; Grill Method Included). More Ways to Search: Recipe Index. Quick chicken recipes, whether baked or grilled, are serious hanger life-savers, and this chicken dinner is one of my absolute summer din din finest. Tandoori chicken - baked in the oven!
+Balsamic Marinated Chicken Breasts (Oven & Grill Method Included). More Ways to Search: Recipe Index. Quick chicken recipes, whether baked or grilled, are serious hanger life-savers, and this chicken dinner is one of my absolute summer din din finest. Tandoori chicken - baked in the oven!
 
 
 To get started with this recipe, we have to prepare a few components. You can have oven baked marinated chicken using 17 ingredients and 9 steps. Here is how you cook that.

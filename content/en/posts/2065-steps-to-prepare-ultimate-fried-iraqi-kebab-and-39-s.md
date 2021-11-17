@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Ultimate Fried Iraqi Kebab&amp;#39;s"
-title: "Steps to Prepare Ultimate Fried Iraqi Kebab&amp;#39;s"
+description: "Steps to Prepare Ultimate Fried Iraqi Kebab's"
+title: "Steps to Prepare Ultimate Fried Iraqi Kebab's"
 slug: 2065-steps-to-prepare-ultimate-fried-iraqi-kebab-and-39-s
 date: 2022-05-10T22:54:46.304Z
 image: https://img-global.cpcdn.com/recipes/6227067072413696/680x482cq70/fried-iraqi-kebabs-recipe-main-photo.jpg

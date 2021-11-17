@@ -47,7 +47,7 @@ recipecategory: Dessert
 
 Hello everybody, it's me again, Dan, welcome to my recipe site. Today, I will show you a way to prepare a special dish, tasty green peas. It is one of my favorites food recipes. For mine, I am going to make it a bit unique. This will be really delicious.
 
-Green peas and avocados are best buddies in Julie Van den Kerchove&#39;s Green Pea Avocado It&#39;s made with green peas, lemongrass, yellow curry, and coconut milk. The color is amazing and makes. Simple &amp; Very Tasty Green Peas Masala Fry/ Green Peas Fry. Air Fryer Green Peas Recipe - Easy, Yummy &amp; Healthy (recipe link in description).
+Green peas and avocados are best buddies in Julie Van den Kerchove&#39;s Green Pea Avocado It&#39;s made with green peas, lemongrass, yellow curry, and coconut milk. The color is amazing and makes. Simple & Very Tasty Green Peas Masala Fry/ Green Peas Fry. Air Fryer Green Peas Recipe - Easy, Yummy & Healthy (recipe link in description).
 
 Tasty Green Peas is one of the most popular of current trending foods in the world. It's enjoyed by millions every day. It is simple, it's quick, it tastes delicious. They're nice and they look fantastic. Tasty Green Peas is something which I've loved my entire life.
 

@@ -21,8 +21,8 @@ recipeingredient:
 - " Garlic powder"
 - " Sazon"
 recipeinstructions:
-- "Pre-heat oven to 450. Rinse &amp; clean chicken with hot water and a splash of vinegar. Pat dry."
-- "Season chicken with Old Bay, garlic powder, salt, pepper &amp; one packet of sazon. Mix together."
+- "Pre-heat oven to 450. Rinse & clean chicken with hot water and a splash of vinegar. Pat dry."
+- "Season chicken with Old Bay, garlic powder, salt, pepper & one packet of sazon. Mix together."
 - "Put s luttle bit of oil on the pan. For juicier chicken, cover pan with aluminum foil, for crispier chicken do not cover. Cook for about 50 minutes. Enjoy!"
 - "Ready to serve and ENJOY!"
 categories:
@@ -62,7 +62,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Prepare  Oil
 1. Make ready  Aluminum foil
 1. Get  Old bay seasoning
-1. Prepare  Salt &amp; pepper
+1. Prepare  Salt & pepper
 1. Get  Garlic powder
 1. Make ready  Sazon
 
@@ -73,8 +73,8 @@ Baked chicken wings are so easy to make, and they come out of the oven crispy an
 
 ##### Steps to make Oven baked chicken wings:
 
-1. Pre-heat oven to 450. Rinse &amp; clean chicken with hot water and a splash of vinegar. Pat dry.
-1. Season chicken with Old Bay, garlic powder, salt, pepper &amp; one packet of sazon. Mix together.
+1. Pre-heat oven to 450. Rinse & clean chicken with hot water and a splash of vinegar. Pat dry.
+1. Season chicken with Old Bay, garlic powder, salt, pepper & one packet of sazon. Mix together.
 1. Put s luttle bit of oil on the pan. For juicier chicken, cover pan with aluminum foil, for crispier chicken do not cover. Cook for about 50 minutes. Enjoy!
 1. Ready to serve and ENJOY!
 

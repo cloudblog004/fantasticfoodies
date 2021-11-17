@@ -74,7 +74,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 
 1. Make ready 1 and half cup basmatirice (cooked)
 1. Make ready  Boneless chicken(cut into cubes)
-1. Make ready 3 medium carrots (peeled &amp; cut into desire)
+1. Make ready 3 medium carrots (peeled & cut into desire)
 1. Get 1 medium onion(chopped)
 1. Prepare 1 medium spring onion(thinly sliced)
 1. Make ready 1/2 cup corn

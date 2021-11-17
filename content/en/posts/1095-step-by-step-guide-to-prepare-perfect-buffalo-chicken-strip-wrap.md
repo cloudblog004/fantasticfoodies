@@ -27,7 +27,7 @@ recipeinstructions:
 - "Heat up tortilla 30 second"
 - "Add all ingredients to tortilla"
 - "Wrap ingredients in tortilla"
-- "Eat and be Fat &amp; Happy"
+- "Eat and be Fat & Happy"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -83,7 +83,7 @@ Oven-fried chicken strips make a delicious meal with soup or salad, or serve the
 1. Heat up tortilla 30 second
 1. Add all ingredients to tortilla
 1. Wrap ingredients in tortilla
-1. Eat and be Fat &amp; Happy
+1. Eat and be Fat & Happy
 1. Ready to serve and ENJOY!
 
 Flour tortilla with diced chicken strips, shredded lettuce, shredded cheddar jack cheese, diced tomato and ranch. This Buffalo Chicken Folded Wrap is made with Greek yogurt, shredded chicken, buffalo sauce steak strips, onions, provolone, peppers, light chipotle mayo. taco lean ground truly or beef meat How do I make this Buffalo Chicken Folded Wrap? In a small mixing bowl, combine the cooked. Buffalo Chicken Tenders are strips of marinated chicken breasts coated and deep-fried to a crispy golden brown and smothered in a homemade buffalo These Buffalo Chicken Strips are loaded with spicy Buffalo flavors. These Buffalo strips are perfect as an appetizer, on a sandwich, in a wrap or. 

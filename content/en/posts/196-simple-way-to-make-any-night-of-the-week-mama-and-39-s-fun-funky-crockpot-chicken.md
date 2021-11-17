@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Make Any-night-of-the-week Mama&amp;#39;s Fun Funky Crockpot Chicken"
-title: "Simple Way to Make Any-night-of-the-week Mama&amp;#39;s Fun Funky Crockpot Chicken"
+description: "Simple Way to Make Any-night-of-the-week Mama's Fun Funky Crockpot Chicken"
+title: "Simple Way to Make Any-night-of-the-week Mama's Fun Funky Crockpot Chicken"
 slug: 196-simple-way-to-make-any-night-of-the-week-mama-and-39-s-fun-funky-crockpot-chicken
 date: 2022-02-20T13:01:43.616Z
 image: https://img-global.cpcdn.com/recipes/5997862918815744/680x482cq70/mamas-fun-funky-crockpot-chicken-recipe-main-photo.jpg

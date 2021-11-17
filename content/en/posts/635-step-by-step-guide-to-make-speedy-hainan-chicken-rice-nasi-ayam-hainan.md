@@ -27,8 +27,8 @@ recipeingredient:
 - " grounded ginger"
 - " salt  hot oil"
 recipeinstructions:
-- "Wash the rice &amp; drain well, fry the garlic until smell fragrant add in the rice stir fried for 3 minutes then put in Rice cooker"
-- "A.After the rice put in add chicken broth &amp; pandan leafs press button cook as usually cook rice.  The chicken broth made from: chicken bone, ginger, spring onion boil 30minutes then add salt.  B. marinade the chicken with:sand ginger powder, ginger juice, salt keep in the fridge for 3hours. then take out put to stem 30 minutes"
+- "Wash the rice & drain well, fry the garlic until smell fragrant add in the rice stir fried for 3 minutes then put in Rice cooker"
+- "A.After the rice put in add chicken broth & pandan leafs press button cook as usually cook rice.  The chicken broth made from: chicken bone, ginger, spring onion boil 30minutes then add salt.  B. marinade the chicken with:sand ginger powder, ginger juice, salt keep in the fridge for 3hours. then take out put to stem 30 minutes"
 - "Ready to serve With :chilli sauce, sweet dark sauce,ginger spring onion sauce.   origin resep chili sauce for chicken rice is: lemon juice, sugar, chili, garlic,a little water blender until finely.  But I only us sesame chili oil  Sweet dark sauce made from: dark sauce, sugar, drinking water"
 - "Ready to serve and ENJOY!"
 categories:
@@ -85,8 +85,8 @@ To begin with this recipe, we have to prepare a few ingredients. You can cook ha
 
 ##### Steps to make Hainan Chicken Rice (Nasi Ayam Hainan):
 
-1. Wash the rice &amp; drain well, fry the garlic until smell fragrant add in the rice stir fried for 3 minutes then put in Rice cooker
-1. A.After the rice put in add chicken broth &amp; pandan leafs press button cook as usually cook rice.  The chicken broth made from: chicken bone, ginger, spring onion boil 30minutes then add salt.  B. marinade the chicken with:sand ginger powder, ginger juice, salt keep in the fridge for 3hours. then take out put to stem 30 minutes
+1. Wash the rice & drain well, fry the garlic until smell fragrant add in the rice stir fried for 3 minutes then put in Rice cooker
+1. A.After the rice put in add chicken broth & pandan leafs press button cook as usually cook rice.  The chicken broth made from: chicken bone, ginger, spring onion boil 30minutes then add salt.  B. marinade the chicken with:sand ginger powder, ginger juice, salt keep in the fridge for 3hours. then take out put to stem 30 minutes
 1. Ready to serve With :chilli sauce, sweet dark sauce,ginger spring onion sauce.   origin resep chili sauce for chicken rice is: lemon juice, sugar, chili, garlic,a little water blender until finely.  But I only us sesame chili oil  Sweet dark sauce made from: dark sauce, sugar, drinking water
 1. Ready to serve and ENJOY!
 

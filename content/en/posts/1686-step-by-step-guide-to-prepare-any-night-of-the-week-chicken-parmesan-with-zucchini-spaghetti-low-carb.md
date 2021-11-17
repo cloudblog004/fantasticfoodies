@@ -36,10 +36,10 @@ recipeinstructions:
 - "Bake: chicken at 375 degrees for 10-12 minutes."
 - "Remove: chicken from oven, top with fresh mozarella, return to oven for 3 minutes (or until cheese is melted)."
 - "While chicken is in the oven, heat spaghetti sauce of your choice on stove, seasoning if desired."
-- "Use: spiralizer or julienne peeler to make zucchini &#34;noodles.&#34;"
+- "Use: spiralizer or julienne peeler to make zucchini *noodles.*"
 - "Sauté: zucchini noodles in 1 tsp olive oil, minced garlic, remaining garlic seasoning, and butter until cooked but slightly firm, stirring often."
 - "Add: spaghetti sauce to zucchini and stir, saving some sauce for topping."
-- "Plate: Zucchini &#34;noodles&#34;, chicken, additional sauce if desired."
+- "Plate: Zucchini *noodles*, chicken, additional sauce if desired."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -104,10 +104,10 @@ To begin with this recipe, we must first prepare a few components. You can have 
 1. Bake: chicken at 375 degrees for 10-12 minutes.
 1. Remove: chicken from oven, top with fresh mozarella, return to oven for 3 minutes (or until cheese is melted).
 1. While chicken is in the oven, heat spaghetti sauce of your choice on stove, seasoning if desired.
-1. Use: spiralizer or julienne peeler to make zucchini &#34;noodles.&#34;
+1. Use: spiralizer or julienne peeler to make zucchini *noodles.*
 1. Sauté: zucchini noodles in 1 tsp olive oil, minced garlic, remaining garlic seasoning, and butter until cooked but slightly firm, stirring often.
 1. Add: spaghetti sauce to zucchini and stir, saving some sauce for topping.
-1. Plate: Zucchini &#34;noodles&#34;, chicken, additional sauce if desired.
+1. Plate: Zucchini *noodles*, chicken, additional sauce if desired.
 1. Ready to serve and ENJOY!
 
 

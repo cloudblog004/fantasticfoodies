@@ -53,7 +53,7 @@ Hello everybody, it's me again, Dan, welcome to our recipe site. Today, I'm gonn
 
 Pasta w/pork sausage, chicken and veggies is one of the most favored of recent trending foods in the world. It is simple, it is fast, it tastes yummy. It's appreciated by millions every day. They're nice and they look fantastic. Pasta w/pork sausage, chicken and veggies is something which I have loved my whole life.
 
-All Reviews for Low-Fat Chicken Sausage Veggie Pasta. Cooking Pasta w/pork sausage, chicken and veggies is a fun thing, additionally it comes to be extra unique value if you cook it yourself. Hi Friends,Try out our another way of preparing &#34;Tasty Macaroni Pasta&#34;. This recipe is really tasty and easy to prepare.
+All Reviews for Low-Fat Chicken Sausage Veggie Pasta. Cooking Pasta w/pork sausage, chicken and veggies is a fun thing, additionally it comes to be extra unique value if you cook it yourself. Hi Friends,Try out our another way of preparing *Tasty Macaroni Pasta*. This recipe is really tasty and easy to prepare.
 
 
 To get started with this particular recipe, we must first prepare a few components. You can have pasta w/pork sausage, chicken and veggies using 8 ingredients and 6 steps. Here is how you can achieve that.
@@ -69,10 +69,10 @@ To get started with this particular recipe, we must first prepare a few componen
 1. Get  chopped tomatoe
 1. Prepare box penne pasta
 1. Get jar Ragu roasted garlic parmesan
-1. Get  salt &amp; pepper
+1. Get  salt & pepper
 
 
-Quick and easy weeknight meal, that is also I used some spinach &amp; artichoke chicken sausage I had in the freezer, and just a few veggies. This balsamic pasta is a huge hit at my house. chicken sausage: replaces traditional pork sausage. I like to use chicken and apple or Italian style sausage links here. broccoli: adds freshness and lots of dark green, cruciferous veggie nutrition. You can also try broccoli rabe or even fresh spinach or kale. parmesan cheese: for that deliciously salty. 
+Quick and easy weeknight meal, that is also I used some spinach & artichoke chicken sausage I had in the freezer, and just a few veggies. This balsamic pasta is a huge hit at my house. chicken sausage: replaces traditional pork sausage. I like to use chicken and apple or Italian style sausage links here. broccoli: adds freshness and lots of dark green, cruciferous veggie nutrition. You can also try broccoli rabe or even fresh spinach or kale. parmesan cheese: for that deliciously salty. 
 
 <!--inarticleads2-->
 

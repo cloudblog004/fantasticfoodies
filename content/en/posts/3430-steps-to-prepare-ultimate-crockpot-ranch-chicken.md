@@ -75,7 +75,7 @@ To begin with this recipe, we have to prepare a few components. You can cook cro
 1. Take 3 heaping tablespoons of butter (or 1 stick margarine)
 
 
-A Tasty Keto Chicken Recipe with perfect ranch flavor, moist chicken &amp; cooked right in the crockpot for a simple dinner! Easy Crock Pot BBQ Ranch Chicken Recipe. This is a super easy crockpot chicken dinner with a nice thick sauce. You will have this all prepped and thrown in the crockpot in no time at all. 
+A Tasty Keto Chicken Recipe with perfect ranch flavor, moist chicken & cooked right in the crockpot for a simple dinner! Easy Crock Pot BBQ Ranch Chicken Recipe. This is a super easy crockpot chicken dinner with a nice thick sauce. You will have this all prepped and thrown in the crockpot in no time at all. 
 
 <!--inarticleads2-->
 

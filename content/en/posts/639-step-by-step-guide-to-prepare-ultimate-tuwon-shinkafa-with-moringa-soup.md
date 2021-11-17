@@ -82,7 +82,7 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 1. Get  Veg oil
 
 
-After which the corn is cooked, parboiled, blended with seasoned pepper, and served hot with either spinach, pumpkin leaves, or moringa. Tuwo shinkafa (Tuwon shinkafa) is a rice meal, popular in the northern parts of Nigeria. It is usually served as an accompaniment for soups and stews Tuwo shinkafa is usually prepared from scratch with short grain rice (local rice), but it can also be prepared with rice flour (which is the easiest&amp;fastest. Tuwon shinkafa with miyar zogale(moringa soup) Recipe by. from img-global.cpcdn.com. 
+After which the corn is cooked, parboiled, blended with seasoned pepper, and served hot with either spinach, pumpkin leaves, or moringa. Tuwo shinkafa (Tuwon shinkafa) is a rice meal, popular in the northern parts of Nigeria. It is usually served as an accompaniment for soups and stews Tuwo shinkafa is usually prepared from scratch with short grain rice (local rice), but it can also be prepared with rice flour (which is the easiest&fastest. Tuwon shinkafa with miyar zogale(moringa soup) Recipe by. from img-global.cpcdn.com. 
 
 <!--inarticleads2-->
 
@@ -94,6 +94,6 @@ After which the corn is cooked, parboiled, blended with seasoned pepper, and ser
 1. Dilute your grounded groundnut pasta with water and add in then stir well, add the chicken stock to adjust the thickness cover and allow it to cook 10-15mnts then add in moringa leaves
 1. Ready to serve and ENJOY!
 
-It is usually served as an accompaniment for soups and stews Tuwo shinkafa is usually prepared from scratch with short grain rice (local rice), but it can also be prepared with rice flour (which is the easiest&amp;fastest. Tuwon shinkafa with miyar zogale(moringa soup) Recipe by. from img-global.cpcdn.com. Tuwon shinkafa is a type of nigerian and niger dish from niger How to prepare tuwon shinkafa rice swallow african food recipe. It is usually served as an accompaniment for soups and stews and is quite easy. Tuwon shinkafa is a type of Nigerian and Niger dish from Niger and the northern part of Nigeria. 
+It is usually served as an accompaniment for soups and stews Tuwo shinkafa is usually prepared from scratch with short grain rice (local rice), but it can also be prepared with rice flour (which is the easiest&fastest. Tuwon shinkafa with miyar zogale(moringa soup) Recipe by. from img-global.cpcdn.com. Tuwon shinkafa is a type of nigerian and niger dish from niger How to prepare tuwon shinkafa rice swallow african food recipe. It is usually served as an accompaniment for soups and stews and is quite easy. Tuwon shinkafa is a type of Nigerian and Niger dish from Niger and the northern part of Nigeria. 
 
 So that is going to wrap this up for this exceptional food tuwon shinkafa with moringa soup recipe. Thank you very much for your time. I'm sure you can make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

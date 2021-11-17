@@ -30,7 +30,7 @@ recipeinstructions:
 - "In a bowl,add potatoes and mash well with the help of the masher.  Add breadcrumbs,cornflour,cumin seeds,chicken shreded dried mango powder,red chili powder,garlic powder,black pepper powder,salt,egg,onion,fresh parsley and mix until well combined,cover and let it rest for 10 minutes."
 - "Grease hands with oil,take a mixture In a bowl,add all-purpose flour,dried parsley,paprika powder,salt,gradually add water and whisk well to make a paste.  Add eggs and whisk well."
 - "Now dip into prepared batter and coat with breadcrumbs (makes 10-12)."
-- "In frying pan,heat cooking oil and fry donuts on medium flame until golden brown.  Drizzle cheese sauce,fresh parsley &amp; serve!"
+- "In frying pan,heat cooking oil and fry donuts on medium flame until golden brown.  Drizzle cheese sauce,fresh parsley & serve!"
 - ""
 - "Ready to serve and ENJOY!"
 categories:
@@ -66,7 +66,7 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 
 ##### The ingredients needed to make Crispy chicken doughnuts:
 
-1. Prepare ½ kg Potatoes peeled &amp; boiled
+1. Prepare ½ kg Potatoes peeled & boiled
 1. Take 1 Cup Breadcrumbs
 1. Take 3tbsp Cornflour
 1. Take 1 tbsp .Cumin seeds   roasted and crushed.
@@ -90,7 +90,7 @@ Chicken Donuts are soft from inside and crunchy from outside. this is a perfect 
 1. In a bowl,add potatoes and mash well with the help of the masher.  Add breadcrumbs,cornflour,cumin seeds,chicken shreded dried mango powder,red chili powder,garlic powder,black pepper powder,salt,egg,onion,fresh parsley and mix until well combined,cover and let it rest for 10 minutes.
 1. Grease hands with oil,take a mixture In a bowl,add all-purpose flour,dried parsley,paprika powder,salt,gradually add water and whisk well to make a paste.  Add eggs and whisk well.
 1. Now dip into prepared batter and coat with breadcrumbs (makes 10-12).
-1. In frying pan,heat cooking oil and fry donuts on medium flame until golden brown.  Drizzle cheese sauce,fresh parsley &amp; serve!
+1. In frying pan,heat cooking oil and fry donuts on medium flame until golden brown.  Drizzle cheese sauce,fresh parsley & serve!
 1. 
 1. Ready to serve and ENJOY!
 

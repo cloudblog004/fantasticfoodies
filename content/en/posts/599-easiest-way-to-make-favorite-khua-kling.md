@@ -86,7 +86,7 @@ To begin with this recipe, we must prepare a few components. You can cook khua k
 1. Make ready 1/2 tsp Salt
 
 
-Then add the meat, such as pig, beef, pork ribs, or fish, and toss everything together before seasoning with your favorite condiment. Note: your question will be posted publicly on the Questions &amp; Answers page. This southern Thai variety of dry curry combines spicy curry paste and ground pork. The fragrant paste consists of red chili peppers, lemongrass, garlic, turmeric, cilantro, galangal, and shrimp paste, while the whole dish is seasoned with palm sugar and fish sauce. 
+Then add the meat, such as pig, beef, pork ribs, or fish, and toss everything together before seasoning with your favorite condiment. Note: your question will be posted publicly on the Questions & Answers page. This southern Thai variety of dry curry combines spicy curry paste and ground pork. The fragrant paste consists of red chili peppers, lemongrass, garlic, turmeric, cilantro, galangal, and shrimp paste, while the whole dish is seasoned with palm sugar and fish sauce. 
 
 <!--inarticleads2-->
 

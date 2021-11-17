@@ -27,7 +27,7 @@ recipeingredient:
 recipeinstructions:
 - "In a large mixing bowl, mix together all the ingredients except the onion, making sure to incorporate all of them thoroughly."
 - "Cover the bowl and set in the fridge to marinate (about 1 hour ideally, and not more than 2). Remember to take the meat out of the fridge about 30 minutes before you&#39;re ready to grill.  If you&#39;re using a charcoal grill, start your coals about 20 to 25 minutes before you want to grill. You want a gentle, medium low heat over which to cook these kebabs.  If gas, just pre-heat your grill to medium low 5 to 7 minutes before cooking."
-- "Skewer your kabobs so they look like this.  6 single layers of onion with 5 roughly 1&#34;layers of chicken skewered between them. As you&#39;ve probably discovered by now, it&#39;s a little challenging to get 1&#34; cubes of meat from chicken thighs, but you generally want a 1&#34; thickness of meat between veg, so you might have to add odd pieces of chicken to the bigger ones to achieve this thickness.  I used only onions mostly because I think it tastes simple and delicious this way."
+- "Skewer your kabobs so they look like this.  6 single layers of onion with 5 roughly 1*layers of chicken skewered between them. As you&#39;ve probably discovered by now, it&#39;s a little challenging to get 1* cubes of meat from chicken thighs, but you generally want a 1* thickness of meat between veg, so you might have to add odd pieces of chicken to the bigger ones to achieve this thickness.  I used only onions mostly because I think it tastes simple and delicious this way."
 - "Over a medium low grill, cook the kebabs about 15 minutes, covered, turning them every 5 minutes."
 - "Enjoy!"
 - "Ready to serve and ENJOY!"
@@ -74,7 +74,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can cook
 1. Prepare 1/8 cup low sodium soy sauce
 1. Prepare 1 teaspoon kosher salt
 1. Make ready 1.5 Tablespoons neutral oil (like vegetable, canola, grapeseed)
-1. Get 1 large onion, cut into 1&#34; pieces for skewering and tossed with 2 teaspoonfuls of oil
+1. Get 1 large onion, cut into 1* pieces for skewering and tossed with 2 teaspoonfuls of oil
 
 
 
@@ -85,7 +85,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can cook
 
 1. In a large mixing bowl, mix together all the ingredients except the onion, making sure to incorporate all of them thoroughly.
 1. Cover the bowl and set in the fridge to marinate (about 1 hour ideally, and not more than 2). Remember to take the meat out of the fridge about 30 minutes before you&#39;re ready to grill.  If you&#39;re using a charcoal grill, start your coals about 20 to 25 minutes before you want to grill. You want a gentle, medium low heat over which to cook these kebabs.  If gas, just pre-heat your grill to medium low 5 to 7 minutes before cooking.
-1. Skewer your kabobs so they look like this.  6 single layers of onion with 5 roughly 1&#34;layers of chicken skewered between them. As you&#39;ve probably discovered by now, it&#39;s a little challenging to get 1&#34; cubes of meat from chicken thighs, but you generally want a 1&#34; thickness of meat between veg, so you might have to add odd pieces of chicken to the bigger ones to achieve this thickness.  I used only onions mostly because I think it tastes simple and delicious this way.
+1. Skewer your kabobs so they look like this.  6 single layers of onion with 5 roughly 1*layers of chicken skewered between them. As you&#39;ve probably discovered by now, it&#39;s a little challenging to get 1* cubes of meat from chicken thighs, but you generally want a 1* thickness of meat between veg, so you might have to add odd pieces of chicken to the bigger ones to achieve this thickness.  I used only onions mostly because I think it tastes simple and delicious this way.
 1. Over a medium low grill, cook the kebabs about 15 minutes, covered, turning them every 5 minutes.
 1. Enjoy!
 1. Ready to serve and ENJOY!

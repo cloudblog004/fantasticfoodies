@@ -1,6 +1,6 @@
 ---
-description: "How to Make Perfect Taisen&amp;#39;s cheesey chicken, bacon ranch casserole"
-title: "How to Make Perfect Taisen&amp;#39;s cheesey chicken, bacon ranch casserole"
+description: "How to Make Perfect Taisen's cheesey chicken, bacon ranch casserole"
+title: "How to Make Perfect Taisen's cheesey chicken, bacon ranch casserole"
 slug: 1782-how-to-make-perfect-taisen-and-39-s-cheesey-chicken-bacon-ranch-casserole
 date: 2022-02-16T15:11:58.260Z
 image: https://img-global.cpcdn.com/recipes/5345861475762176/680x482cq70/taisens-cheesey-chicken-bacon-ranch-casserole-recipe-main-photo.jpg
@@ -116,6 +116,6 @@ Best of all this it&#39;s a quick and easy dinner meal for those busy nights at 
 1. Serve hot with bread, salad, or any other side you like.  Enjoy !!
 1. Ready to serve and ENJOY!
 
-This Chicken Bacon Ranch Casserole is your answer to a busy weeknight dinner. We&#39;re talking creamy, cheesy rice casserole loaded with Ranch chicken and bacon! Baked chicken is mixed with Alfredo sauce and layered with cheese and pasta in this chicken bacon ranch casserole, a warm comfort food. Our chicken bacon ranch casserole will soon become your family\&#39;s favorite dish. Bold &amp; creamy flavors melt in your mouth leaving you wanting seconds and thirds. 
+This Chicken Bacon Ranch Casserole is your answer to a busy weeknight dinner. We&#39;re talking creamy, cheesy rice casserole loaded with Ranch chicken and bacon! Baked chicken is mixed with Alfredo sauce and layered with cheese and pasta in this chicken bacon ranch casserole, a warm comfort food. Our chicken bacon ranch casserole will soon become your family\&#39;s favorite dish. Bold & creamy flavors melt in your mouth leaving you wanting seconds and thirds. 
 
 So that's going to wrap it up with this special food taisen&#39;s cheesey chicken, bacon ranch casserole recipe. Thanks so much for your time. I'm sure that you can make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

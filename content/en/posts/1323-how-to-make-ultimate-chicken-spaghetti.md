@@ -26,7 +26,7 @@ recipeingredient:
 recipeinstructions:
 - "boil spaghetti in seasoned chicken broth"
 - "drain spaghetti but save juice-will use some in mixing"
-- "mix all microwave ingredients together &amp; microwave until done"
+- "mix all microwave ingredients together & microwave until done"
 - "add ingredients from last group to microwaved group"
 - "add all ingredients, including broth to make creamy"
 - "keep warm in crock pot"
@@ -54,7 +54,7 @@ Hey everyone, it is me, Dave, welcome to my recipe page. Today, I will show you 
 
 chicken spaghetti is one of the most favored of recent trending foods on earth. It's enjoyed by millions every day. It is easy, it is fast, it tastes yummy. They are nice and they look wonderful. chicken spaghetti is something that I have loved my whole life.
 
-This simple and delicious recipe for chicken spaghetti features chicken in the sauce instead of beef, making for Add the chicken, spaghetti sauce, water, undrained mushrooms, and Italian seasoning. Chicken pasta recipe - A basic tomato spaghetti recipe made with chicken. Quick to make and tastes delicious. It can be served with a soup &amp; toast.
+This simple and delicious recipe for chicken spaghetti features chicken in the sauce instead of beef, making for Add the chicken, spaghetti sauce, water, undrained mushrooms, and Italian seasoning. Chicken pasta recipe - A basic tomato spaghetti recipe made with chicken. Quick to make and tastes delicious. It can be served with a soup & toast.
 
 
 To begin with this recipe, we have to prepare a few components. You can cook chicken spaghetti using 10 ingredients and 6 steps. Here is how you can achieve it.
@@ -83,7 +83,7 @@ This Chicken Spaghetti recipe is destined to become a family favorite! Juicy chi
 
 1. boil spaghetti in seasoned chicken broth
 1. drain spaghetti but save juice-will use some in mixing
-1. mix all microwave ingredients together &amp; microwave until done
+1. mix all microwave ingredients together & microwave until done
 1. add ingredients from last group to microwaved group
 1. add all ingredients, including broth to make creamy
 1. keep warm in crock pot

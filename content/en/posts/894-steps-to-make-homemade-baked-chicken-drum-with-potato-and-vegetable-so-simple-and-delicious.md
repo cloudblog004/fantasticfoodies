@@ -65,7 +65,7 @@ To get started with this recipe, we have to prepare a few components. You can co
 ##### The ingredients needed to make Baked Chicken Drum with Potato and Vegetable | So simple and delicious!!!:
 
 1. Take 600 gr chicken drum
-1. Make ready 2 tbsp mixture of garlic paste &amp; onion paste (can be replaced with powder)
+1. Make ready 2 tbsp mixture of garlic paste & onion paste (can be replaced with powder)
 1. Get 2 tbsp Paprika powder
 1. Prepare 1 tbsp honey
 1. Make ready 1 tbsp olive oil

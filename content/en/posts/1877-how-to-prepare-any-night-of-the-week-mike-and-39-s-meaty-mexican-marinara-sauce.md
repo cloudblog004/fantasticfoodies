@@ -1,6 +1,6 @@
 ---
-description: "How to Prepare Any-night-of-the-week Mike&amp;#39;s Meaty Mexican Marinara Sauce"
-title: "How to Prepare Any-night-of-the-week Mike&amp;#39;s Meaty Mexican Marinara Sauce"
+description: "How to Prepare Any-night-of-the-week Mike's Meaty Mexican Marinara Sauce"
+title: "How to Prepare Any-night-of-the-week Mike's Meaty Mexican Marinara Sauce"
 slug: 1877-how-to-prepare-any-night-of-the-week-mike-and-39-s-meaty-mexican-marinara-sauce
 date: 2022-02-22T19:51:22.999Z
 image: https://img-global.cpcdn.com/recipes/ae66a11d4b19e0b7/680x482cq70/mikes-meaty-mexican-marinara-sauce-recipe-main-photo.jpg

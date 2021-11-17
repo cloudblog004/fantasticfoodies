@@ -36,7 +36,7 @@ recipeinstructions:
 - "Put all the patties ingredients in a bowl. Mix and knead it well. Cover with cling film and leave it to rest in the fridge.  Shape the chicken mince into balls about a small ball size, then flatten them."
 - "If you cook them in the oven, you can arrange the patties on the lightly sprayed with oil baking tray. Then cook the petties at 350° F/ 180° C for about half an hour or until the kebabs are cooked through."
 - "If you cook the patties on the griddle pan, you can spray the pan with a little bit of oil. Cook the patties on each side for about 6-7 minutes. Until the meat is cooked through. You can also cook the chicken kebabs in the air fryer.  Last but not least, you can cook the meat on the barbecue according to however you like. Enjoy !!!"
-- "This is my French fries recipe link 👇   https://cookpad.com/uk/recipes/14819147-french-fries-with-cheesy-sauce?invite_token=V8w7xEbsmkiEAoiLG88pvUJB&amp;shared_at=1627415070"
+- "This is my French fries recipe link 👇   https://cookpad.com/uk/recipes/14819147-french-fries-with-cheesy-sauce?invite_token=V8w7xEbsmkiEAoiLG88pvUJB&shared_at=1627415070"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -60,7 +60,7 @@ recipecategory: Dessert
 
 Hey everyone, it is Drew, welcome to my recipe page. Today, I'm gonna show you how to prepare a special dish, burger and fries. One of my favorites. This time, I am going to make it a bit tasty. This is gonna smell and look delicious.
 
-Burger &amp; Frights is a short horror game in which the player rides a bike throughout a dark forest. The game was inspired by games such as Rides with Strangers, and a certain horror movie by John. &#34;Burgers and Fries&#34; is a song written by Ben Peters and recorded by American country music artist Charley Pride. Download the perfect burger and fries pictures. Free for commercial use No attribution required Copyright-free.
+Burger & Frights is a short horror game in which the player rides a bike throughout a dark forest. The game was inspired by games such as Rides with Strangers, and a certain horror movie by John. *Burgers and Fries* is a song written by Ben Peters and recorded by American country music artist Charley Pride. Download the perfect burger and fries pictures. Free for commercial use No attribution required Copyright-free.
 
 Burger and Fries is one of the most well liked of current trending meals in the world. It's easy, it's fast, it tastes delicious. It is enjoyed by millions daily. Burger and Fries is something that I have loved my whole life. They are nice and they look fantastic.
 
@@ -92,7 +92,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 1. Prepare  Your Favourite sauces
 
 
-Use them in commercial designs under lifetime, perpetual &amp; worldwide rights. Free for commercial use No attribution required High quality images. C&#39;est ça les valeurs Burger &amp; Fries ! See more ideas about cooking recipes, burger, recipes. 
+Use them in commercial designs under lifetime, perpetual & worldwide rights. Free for commercial use No attribution required High quality images. C&#39;est ça les valeurs Burger & Fries ! See more ideas about cooking recipes, burger, recipes. 
 
 <!--inarticleads2-->
 
@@ -101,9 +101,9 @@ Use them in commercial designs under lifetime, perpetual &amp; worldwide rights.
 1. Put all the patties ingredients in a bowl. Mix and knead it well. Cover with cling film and leave it to rest in the fridge.  Shape the chicken mince into balls about a small ball size, then flatten them.
 1. If you cook them in the oven, you can arrange the patties on the lightly sprayed with oil baking tray. Then cook the petties at 350° F/ 180° C for about half an hour or until the kebabs are cooked through.
 1. If you cook the patties on the griddle pan, you can spray the pan with a little bit of oil. Cook the patties on each side for about 6-7 minutes. Until the meat is cooked through. You can also cook the chicken kebabs in the air fryer.  Last but not least, you can cook the meat on the barbecue according to however you like. Enjoy !!!
-1. This is my French fries recipe link 👇   https://cookpad.com/uk/recipes/14819147-french-fries-with-cheesy-sauce?invite_token=V8w7xEbsmkiEAoiLG88pvUJB&amp;shared_at=1627415070
+1. This is my French fries recipe link 👇   https://cookpad.com/uk/recipes/14819147-french-fries-with-cheesy-sauce?invite_token=V8w7xEbsmkiEAoiLG88pvUJB&shared_at=1627415070
 1. Ready to serve and ENJOY!
 
-C&#39;est ça les valeurs Burger &amp; Fries ! See more ideas about cooking recipes, burger, recipes. The burger looks great, and it looks very photorealistic. Only criticism is that the fries look a bit This is REALLY good. Although, I think the onions, tomato and cheese could use. 
+C&#39;est ça les valeurs Burger & Fries ! See more ideas about cooking recipes, burger, recipes. The burger looks great, and it looks very photorealistic. Only criticism is that the fries look a bit This is REALLY good. Although, I think the onions, tomato and cheese could use. 
 
 So that's going to wrap it up for this exceptional food burger and fries recipe. Thank you very much for your time. I'm confident that you will make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

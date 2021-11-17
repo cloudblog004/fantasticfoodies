@@ -95,13 +95,13 @@ To begin with this recipe, we have to first prepare a few components. You can ha
 1. Take 2 Tbsps Olive oil
 1. Take 2 tbsps Butter (optional)
 1. Prepare  For white sauce (optional)
-1. Take as needed Remaining oil &amp; butter in the Pan
+1. Take as needed Remaining oil & butter in the Pan
 1. Take 2 tbsps Maida/ All-purpose Flour
 1. Get 1 Cup Milk
 1. Prepare as per taste Salt
 1. Take as needed Black pepper crushed
 1. Prepare  For Salad / Insalata (mix and match fruits of your choice)
-1. Get 1 Mango Peeled &amp; Chopped
+1. Get 1 Mango Peeled & Chopped
 1. Make ready 1 Nectarine Chopped
 1. Take 1 Apple Chopped
 1. Make ready 1 Kiwi peeled and chopped

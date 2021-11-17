@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Prepare Award-winning Quick &amp;amp; Easy Chicken Florentine Pizzas"
-title: "Easiest Way to Prepare Award-winning Quick &amp;amp; Easy Chicken Florentine Pizzas"
+description: "Easiest Way to Prepare Award-winning Quick & Easy Chicken Florentine Pizzas"
+title: "Easiest Way to Prepare Award-winning Quick & Easy Chicken Florentine Pizzas"
 slug: 1126-easiest-way-to-prepare-award-winning-quick-and-amp-easy-chicken-florentine-pizzas
 date: 2022-02-26T18:26:36.690Z
 image: https://img-global.cpcdn.com/recipes/8713e880dc176c07/680x482cq70/quick-easy-chicken-florentine-pizzas-recipe-main-photo.jpg
@@ -43,20 +43,20 @@ recipecategory: Dinner
 ---
 
 
-![Quick &amp; Easy Chicken Florentine Pizzas](https://img-global.cpcdn.com/recipes/8713e880dc176c07/680x482cq70/quick-easy-chicken-florentine-pizzas-recipe-main-photo.jpg)
+![Quick & Easy Chicken Florentine Pizzas](https://img-global.cpcdn.com/recipes/8713e880dc176c07/680x482cq70/quick-easy-chicken-florentine-pizzas-recipe-main-photo.jpg)
 
-Hello everybody, it is me, Dave, welcome to our recipe page. Today, we're going to make a distinctive dish, quick &amp; easy chicken florentine pizzas. It is one of my favorites food recipes. For mine, I'm gonna make it a little bit unique. This is gonna smell and look delicious.
+Hello everybody, it is me, Dave, welcome to our recipe page. Today, we're going to make a distinctive dish, quick & easy chicken florentine pizzas. It is one of my favorites food recipes. For mine, I'm gonna make it a little bit unique. This is gonna smell and look delicious.
 
 Перевод слова quick, американское и британское произношение, транскрипция, словосочетания, однокоренные слова, примеры использования. Quick, as an adjective, refers to something moving with high speed. Quick may also refer to: Quick (restaurant), a Belgian fast-food restaurant chain. Quick (sportswear), a Dutch manufacturer of sportswear.
 
-Quick &amp; Easy Chicken Florentine Pizzas is one of the most favored of recent trending foods on earth. It's appreciated by millions daily. It is easy, it is fast, it tastes delicious. Quick &amp; Easy Chicken Florentine Pizzas is something which I've loved my whole life. They're nice and they look fantastic.
+Quick & Easy Chicken Florentine Pizzas is one of the most favored of recent trending foods on earth. It's appreciated by millions daily. It is easy, it is fast, it tastes delicious. Quick & Easy Chicken Florentine Pizzas is something which I've loved my whole life. They're nice and they look fantastic.
 
 
-To begin with this particular recipe, we have to first prepare a few components. You can cook quick &amp; easy chicken florentine pizzas using 7 ingredients and 3 steps. Here is how you cook that.
+To begin with this particular recipe, we have to first prepare a few components. You can cook quick & easy chicken florentine pizzas using 7 ingredients and 3 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Quick &amp; Easy Chicken Florentine Pizzas:
+##### The ingredients needed to make Quick & Easy Chicken Florentine Pizzas:
 
 1. Take 2 (10 inch) pre-cooked flatbread
 1. Prepare 6 tbs jarred Alfredo sauce (such as Bertolli)
@@ -71,7 +71,7 @@ To begin with this particular recipe, we have to first prepare a few components.
 
 <!--inarticleads2-->
 
-##### Instructions to make Quick &amp; Easy Chicken Florentine Pizzas:
+##### Instructions to make Quick & Easy Chicken Florentine Pizzas:
 
 1. Preheat oven to 400°F.
 1. Lay flatbread out on a baking sheet. Spread 3 tbs Alfredo sauce in an even layer on each flatbread. Divide and arrange mozzarella, then chopped chicken, and spinach evenly over both. Sprinkle lightly with basil. Drizzle with olive oil.
@@ -80,4 +80,4 @@ To begin with this particular recipe, we have to first prepare a few components.
 
 
 
-So that's going to wrap this up for this special food quick &amp; easy chicken florentine pizzas recipe. Thank you very much for your time. I'm confident that you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
+So that's going to wrap this up for this special food quick & easy chicken florentine pizzas recipe. Thank you very much for your time. I'm confident that you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

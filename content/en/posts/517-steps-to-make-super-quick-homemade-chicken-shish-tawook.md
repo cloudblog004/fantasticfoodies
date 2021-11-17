@@ -75,7 +75,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Prepare  Maggi and salt as required
 1. Take 1/2 tsp Dry grounded yaji
 1. Take  I tsp tomato paste(optional)
-1. Prepare 1/2 tsp paprika &amp; cayenne
+1. Prepare 1/2 tsp paprika & cayenne
 1. Take 1/4 black pepper
 1. Prepare 1/2 oregano
 1. Take 1/2 ground ginger
@@ -83,7 +83,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Get  Sauce: mayonnaise, sweet chilli sauce, salad cream, black pepper,ketchup, yaji
 
 
-It is widely eaten in Armenia, Turkey, Azerbaijan, Lebanon, Egypt, Jordan. Back to Lebanon, Shish Tawook can be found in most fast food restaurants. It is usually ordered as a sandwich of grilled chicken rolled in a &#34;pita&#34; bread with some Lebanese Garlic Sauce and some salty. Shish tawook is a grilled chicken kebab with a Turkish origin. 
+It is widely eaten in Armenia, Turkey, Azerbaijan, Lebanon, Egypt, Jordan. Back to Lebanon, Shish Tawook can be found in most fast food restaurants. It is usually ordered as a sandwich of grilled chicken rolled in a *pita* bread with some Lebanese Garlic Sauce and some salty. Shish tawook is a grilled chicken kebab with a Turkish origin. 
 
 <!--inarticleads2-->
 
@@ -96,6 +96,6 @@ It is widely eaten in Armenia, Turkey, Azerbaijan, Lebanon, Egypt, Jordan. Back 
 1. Grill each sides 5minutes on medium heat. Serve with naan bread, sauce, lettuce/ cabbage (optional)
 1. Ready to serve and ENJOY!
 
-It is usually ordered as a sandwich of grilled chicken rolled in a &#34;pita&#34; bread with some Lebanese Garlic Sauce and some salty. Shish tawook is a grilled chicken kebab with a Turkish origin. Many foods in the Middle East have a connection to Turkey due to the Ottoman Empire. The word tawook is derived from an old Turkish. Shish means skewers and tawook (tavuk) means chicken. 
+It is usually ordered as a sandwich of grilled chicken rolled in a *pita* bread with some Lebanese Garlic Sauce and some salty. Shish tawook is a grilled chicken kebab with a Turkish origin. Many foods in the Middle East have a connection to Turkey due to the Ottoman Empire. The word tawook is derived from an old Turkish. Shish means skewers and tawook (tavuk) means chicken. 
 
 So that is going to wrap it up for this special food chicken shish tawook recipe. Thank you very much for reading. I am sure you can make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

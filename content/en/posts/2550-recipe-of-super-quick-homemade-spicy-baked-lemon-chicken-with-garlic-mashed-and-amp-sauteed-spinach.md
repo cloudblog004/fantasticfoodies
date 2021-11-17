@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Super Quick Homemade Spicy baked Lemon Chicken with Garlic Mashed &amp;amp; Sauteed Spinach"
-title: "Recipe of Super Quick Homemade Spicy baked Lemon Chicken with Garlic Mashed &amp;amp; Sauteed Spinach"
+description: "Recipe of Super Quick Homemade Spicy baked Lemon Chicken with Garlic Mashed & Sauteed Spinach"
+title: "Recipe of Super Quick Homemade Spicy baked Lemon Chicken with Garlic Mashed & Sauteed Spinach"
 slug: 2550-recipe-of-super-quick-homemade-spicy-baked-lemon-chicken-with-garlic-mashed-and-amp-sauteed-spinach
 date: 2021-12-10T14:21:30.166Z
 image: https://img-global.cpcdn.com/recipes/52eaae198e869635/680x482cq70/spicy-baked-lemon-chicken-with-garlic-mashed-sauteed-spinach-recipe-main-photo.jpg
@@ -50,20 +50,20 @@ recipecategory: Lunch
 ---
 
 
-![Spicy baked Lemon Chicken with Garlic Mashed &amp; Sauteed Spinach](https://img-global.cpcdn.com/recipes/52eaae198e869635/680x482cq70/spicy-baked-lemon-chicken-with-garlic-mashed-sauteed-spinach-recipe-main-photo.jpg)
+![Spicy baked Lemon Chicken with Garlic Mashed & Sauteed Spinach](https://img-global.cpcdn.com/recipes/52eaae198e869635/680x482cq70/spicy-baked-lemon-chicken-with-garlic-mashed-sauteed-spinach-recipe-main-photo.jpg)
 
-Hello everybody, it's Brad, welcome to my recipe page. Today, we're going to prepare a distinctive dish, spicy baked lemon chicken with garlic mashed &amp; sauteed spinach. One of my favorites. This time, I am going to make it a bit unique. This will be really delicious.
-
-
-
-Spicy baked Lemon Chicken with Garlic Mashed &amp; Sauteed Spinach is one of the most well liked of current trending foods on earth. It is simple, it is fast, it tastes delicious. It's enjoyed by millions daily. Spicy baked Lemon Chicken with Garlic Mashed &amp; Sauteed Spinach is something which I have loved my entire life. They are fine and they look fantastic.
+Hello everybody, it's Brad, welcome to my recipe page. Today, we're going to prepare a distinctive dish, spicy baked lemon chicken with garlic mashed & sauteed spinach. One of my favorites. This time, I am going to make it a bit unique. This will be really delicious.
 
 
-To get started with this particular recipe, we must first prepare a few components. You can cook spicy baked lemon chicken with garlic mashed &amp; sauteed spinach using 13 ingredients and 4 steps. Here is how you can achieve it.
+
+Spicy baked Lemon Chicken with Garlic Mashed & Sauteed Spinach is one of the most well liked of current trending foods on earth. It is simple, it is fast, it tastes delicious. It's enjoyed by millions daily. Spicy baked Lemon Chicken with Garlic Mashed & Sauteed Spinach is something which I have loved my entire life. They are fine and they look fantastic.
+
+
+To get started with this particular recipe, we must first prepare a few components. You can cook spicy baked lemon chicken with garlic mashed & sauteed spinach using 13 ingredients and 4 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Spicy baked Lemon Chicken with Garlic Mashed &amp; Sauteed Spinach:
+##### The ingredients needed to make Spicy baked Lemon Chicken with Garlic Mashed & Sauteed Spinach:
 
 1. Take 6 Drum sticks or whatever type of Chicken you have
 1. Make ready 1 yellow onion sliced
@@ -84,7 +84,7 @@ To get started with this particular recipe, we must first prepare a few componen
 
 <!--inarticleads2-->
 
-##### Instructions to make Spicy baked Lemon Chicken with Garlic Mashed &amp; Sauteed Spinach:
+##### Instructions to make Spicy baked Lemon Chicken with Garlic Mashed & Sauteed Spinach:
 
 1. Pre-heat your oven to 350 degrees, in a baking casserole dish put sliced onions, garlic and cut 1 lemon into slices put chicken pieces in a bowl and salt and pepper on all sides and place in casserole dish add cherry peppers and juice of cherry peppers cover with foil and put in oven for 40 minutes at 30 minutes remove foil and bake for additional 10 minutes to get skin crispy.
 1. Put potatoes in medium sauce pan with 4 cups of water add 1Tbsp of salt cook potatoes for about 20 minutes or until fork tender strain and put back in pan add milk and 1 Tbsp of juice from chicken casserole dish add butter salt and pepper and mash yo your creamy consistency I used a potato ricer.
@@ -94,4 +94,4 @@ To get started with this particular recipe, we must first prepare a few componen
 
 
 
-So that is going to wrap it up with this special food spicy baked lemon chicken with garlic mashed &amp; sauteed spinach recipe. Thank you very much for reading. I am sure that you can make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
+So that is going to wrap it up with this special food spicy baked lemon chicken with garlic mashed & sauteed spinach recipe. Thank you very much for reading. I am sure that you can make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

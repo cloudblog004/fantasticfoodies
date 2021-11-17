@@ -78,7 +78,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 1. Get  Cooked pasta
 
 
-They make ideal finger food for a buffet, but don&#39;t forget the napkins. From creamy chicken casseroles to stuffed baked chicken breasts to super-simple chicken and potato combos, these top-rated picks are Chicken thighs, spicy sausage, sweet bell peppers, and potatoes bake in a hot oven to a rich, caramelized finish. &#34;You&#39;ll need a large, heavy-duty roasting pan. Add chicken and toss to coat. These baked split chicken breasts get their great flavor from a tasty mixture of honey, spicy mustard, and curry powder. 
+They make ideal finger food for a buffet, but don&#39;t forget the napkins. From creamy chicken casseroles to stuffed baked chicken breasts to super-simple chicken and potato combos, these top-rated picks are Chicken thighs, spicy sausage, sweet bell peppers, and potatoes bake in a hot oven to a rich, caramelized finish. *You&#39;ll need a large, heavy-duty roasting pan. Add chicken and toss to coat. These baked split chicken breasts get their great flavor from a tasty mixture of honey, spicy mustard, and curry powder. 
 
 <!--inarticleads2-->
 
@@ -96,6 +96,6 @@ They make ideal finger food for a buffet, but don&#39;t forget the napkins. From
 1. Serve over cooked pasta and enjoy 😉!!
 1. Ready to serve and ENJOY!
 
-Add chicken and toss to coat. These baked split chicken breasts get their great flavor from a tasty mixture of honey, spicy mustard, and curry powder. A spicy pepper jelly and mustard mixture glaze these flavorful oven-roasted chicken breasts. Serve the chicken with rice and a tossed salad for a delicious everyday family meal. That is just how flexible roasted/baked chicken can be and the sort of &#34;blank canvas&#34; many cooks see it as. 
+Add chicken and toss to coat. These baked split chicken breasts get their great flavor from a tasty mixture of honey, spicy mustard, and curry powder. A spicy pepper jelly and mustard mixture glaze these flavorful oven-roasted chicken breasts. Serve the chicken with rice and a tossed salad for a delicious everyday family meal. That is just how flexible roasted/baked chicken can be and the sort of *blank canvas* many cooks see it as. 
 
 So that is going to wrap this up for this special food spicy 🌶 baked chicken 🍗 recipe. Thanks so much for reading. I'm confident that you can make this at home. There's gonna be interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

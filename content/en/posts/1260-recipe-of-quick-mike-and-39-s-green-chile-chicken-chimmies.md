@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Quick Mike&amp;#39;s Green Chile Chicken Chimmies"
-title: "Recipe of Quick Mike&amp;#39;s Green Chile Chicken Chimmies"
+description: "Recipe of Quick Mike's Green Chile Chicken Chimmies"
+title: "Recipe of Quick Mike's Green Chile Chicken Chimmies"
 slug: 1260-recipe-of-quick-mike-and-39-s-green-chile-chicken-chimmies
 date: 2021-11-18T17:28:53.454Z
 image: https://img-global.cpcdn.com/recipes/5157920517914624/680x482cq70/mikes-green-chile-chicken-chimmies-recipe-main-photo.jpg
@@ -41,17 +41,17 @@ recipeingredient:
 recipeinstructions:
 - "Lightly sprinkle de-thawed and fat trimmed chicken breasts with ground cumin, garlic powder and black pepper. Slit open the thicker areas of your breasts with a knife for even baking."
 - "On no stick tinfoil, bake chicken breasts at 350° for 40 minutes. Slightly cool and chop [or shread] chicken into bite sized pieces. Note: If your chicken is still pink in color or its juices don&#39;t run clear, bake an additional 5 to 10 minutes until fully cooked."
-- "Make sure your veggies in the, &#34;Bean Mixture,&#34; category are chopped finely since they will need to soften [cook] in the microwave."
-- "Mix everything in the, &#34;Bean Mixture,&#34; category together well and microwave for 3 minutes. Stir well and microwave 3 additional minutes. Place back in microwave and heat for 4 more minutes and let it sit until you&#39;re ready to construct your chimichangas."
+- "Make sure your veggies in the, *Bean Mixture,* category are chopped finely since they will need to soften [cook] in the microwave."
+- "Mix everything in the, *Bean Mixture,* category together well and microwave for 3 minutes. Stir well and microwave 3 additional minutes. Place back in microwave and heat for 4 more minutes and let it sit until you&#39;re ready to construct your chimichangas."
 - "Chop all garnishments and place back in fridge."
 - "Re-heat your bean mixture until hot if it has cooled down before the next step."
 - "Slightly warm flour tortillas and place hot beans in the center. Do not over fill tortillas. Place cheese on top of beans."
 - "For even distribution of bean mixture, lay out all of your warmed tortillas on the counter and place beans on top."
 - "Fold down top and bottom of tortilla over beans and then fold in the sides. Secure the middle and edges with toothpicks. Make sure there are no openings for beans or cheeses to escape. Repeat process for all 6 chimichangas."
-- "Heat 2&#34; deep oil on high and place 2 chimichangas in your pan toothpick sides down. Do not overload your pan as it will cool off your oil and saturate your burritos. Your bean mixture is fully cooked so you&#39;re only browning and crisping your tortillas. Fry chimichangas about 1 minute on each side. Be careful not to burn."
+- "Heat 2* deep oil on high and place 2 chimichangas in your pan toothpick sides down. Do not overload your pan as it will cool off your oil and saturate your burritos. Your bean mixture is fully cooked so you&#39;re only browning and crisping your tortillas. Fry chimichangas about 1 minute on each side. Be careful not to burn."
 - "Drain chimichangas on paper towels and serve on a bed of lettuce, [or fresh cabbage if you desire] and top with additional garnishments. These vegetables can also act as a taco salad side dish. REMEMBER TO REMOVE ALL TOOTHPICKS! :0)"
 - "If you choose to oven bake these, follow the same instructions but bake at 350° for 30 minutes [or until browned] turning once."
-- "Why not make my, &#34;Mike&#39;s Easy Chile Verde Sauce,&#34; and serve an unforgettable, &#34;Smothered Green Chile Chicken Chimichanga.&#34;  https://cookpad.com/us/recipes/367872-mikes-easy-chile-verde-sauce           (see recipe)"
+- "Why not make my, *Mike&#39;s Easy Chile Verde Sauce,* and serve an unforgettable, *Smothered Green Chile Chicken Chimichanga.*  https://cookpad.com/us/recipes/367872-mikes-easy-chile-verde-sauce           (see recipe)"
 - "Add Chile Verde sauce just before serving. Serve dish immediately. Enjoy!"
 - "Ready to serve and ENJOY!"
 categories:
@@ -100,7 +100,7 @@ To begin with this recipe, we have to first prepare a few components. You can co
 1. Take 1 tsp Ground Cumin
 1. Prepare 1 tsp Cayenne Pepper [optional]
 1. Get 1/4 tsp Mexican Oregano [crushed]
-1. Prepare 1 packages McCormick Burrito Seasoning [or add 1 tsp each: onion powder - chile powder - black pepper &amp; include optional cayenne]
+1. Prepare 1 packages McCormick Burrito Seasoning [or add 1 tsp each: onion powder - chile powder - black pepper & include optional cayenne]
 1. Prepare  ● For The Tortillas
 1. Get 6 large Flour Tortillas [slightly warmed in microwave]
 1. Take 1 box Wooden Toothpicks
@@ -109,9 +109,9 @@ To begin with this recipe, we have to first prepare a few components. You can co
 1. Take 6 cup Shredded Lettuce
 1. Make ready 2 cup Each: Chopped Cilantro - Tomatoes - White Onions
 1. Make ready 3 large Chopped Jalapeños [de-seeded]
-1. Prepare 1 cup Tub Each: Guacamole &amp; Sour Cream
+1. Prepare 1 cup Tub Each: Guacamole & Sour Cream
 1. Prepare 1 bag Mexican 3 Cheese Or Queso Fresco
-1. Prepare 2 large Jars Red &amp; Green Salsa
+1. Prepare 2 large Jars Red & Green Salsa
 
 
 
@@ -122,17 +122,17 @@ To begin with this recipe, we have to first prepare a few components. You can co
 
 1. Lightly sprinkle de-thawed and fat trimmed chicken breasts with ground cumin, garlic powder and black pepper. Slit open the thicker areas of your breasts with a knife for even baking.
 1. On no stick tinfoil, bake chicken breasts at 350° for 40 minutes. Slightly cool and chop [or shread] chicken into bite sized pieces. Note: If your chicken is still pink in color or its juices don&#39;t run clear, bake an additional 5 to 10 minutes until fully cooked.
-1. Make sure your veggies in the, &#34;Bean Mixture,&#34; category are chopped finely since they will need to soften [cook] in the microwave.
-1. Mix everything in the, &#34;Bean Mixture,&#34; category together well and microwave for 3 minutes. Stir well and microwave 3 additional minutes. Place back in microwave and heat for 4 more minutes and let it sit until you&#39;re ready to construct your chimichangas.
+1. Make sure your veggies in the, *Bean Mixture,* category are chopped finely since they will need to soften [cook] in the microwave.
+1. Mix everything in the, *Bean Mixture,* category together well and microwave for 3 minutes. Stir well and microwave 3 additional minutes. Place back in microwave and heat for 4 more minutes and let it sit until you&#39;re ready to construct your chimichangas.
 1. Chop all garnishments and place back in fridge.
 1. Re-heat your bean mixture until hot if it has cooled down before the next step.
 1. Slightly warm flour tortillas and place hot beans in the center. Do not over fill tortillas. Place cheese on top of beans.
 1. For even distribution of bean mixture, lay out all of your warmed tortillas on the counter and place beans on top.
 1. Fold down top and bottom of tortilla over beans and then fold in the sides. Secure the middle and edges with toothpicks. Make sure there are no openings for beans or cheeses to escape. Repeat process for all 6 chimichangas.
-1. Heat 2&#34; deep oil on high and place 2 chimichangas in your pan toothpick sides down. Do not overload your pan as it will cool off your oil and saturate your burritos. Your bean mixture is fully cooked so you&#39;re only browning and crisping your tortillas. Fry chimichangas about 1 minute on each side. Be careful not to burn.
+1. Heat 2* deep oil on high and place 2 chimichangas in your pan toothpick sides down. Do not overload your pan as it will cool off your oil and saturate your burritos. Your bean mixture is fully cooked so you&#39;re only browning and crisping your tortillas. Fry chimichangas about 1 minute on each side. Be careful not to burn.
 1. Drain chimichangas on paper towels and serve on a bed of lettuce, [or fresh cabbage if you desire] and top with additional garnishments. These vegetables can also act as a taco salad side dish. REMEMBER TO REMOVE ALL TOOTHPICKS! :0)
 1. If you choose to oven bake these, follow the same instructions but bake at 350° for 30 minutes [or until browned] turning once.
-1. Why not make my, &#34;Mike&#39;s Easy Chile Verde Sauce,&#34; and serve an unforgettable, &#34;Smothered Green Chile Chicken Chimichanga.&#34;  https://cookpad.com/us/recipes/367872-mikes-easy-chile-verde-sauce           (see recipe)
+1. Why not make my, *Mike&#39;s Easy Chile Verde Sauce,* and serve an unforgettable, *Smothered Green Chile Chicken Chimichanga.*  https://cookpad.com/us/recipes/367872-mikes-easy-chile-verde-sauce           (see recipe)
 1. Add Chile Verde sauce just before serving. Serve dish immediately. Enjoy!
 1. Ready to serve and ENJOY!
 

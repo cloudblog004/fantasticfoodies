@@ -1,6 +1,6 @@
 ---
-description: "How to Make Quick Chef Zee&amp;#39;s Carne Frita (Dominican fried beef)"
-title: "How to Make Quick Chef Zee&amp;#39;s Carne Frita (Dominican fried beef)"
+description: "How to Make Quick Chef Zee's Carne Frita (Dominican fried beef)"
+title: "How to Make Quick Chef Zee's Carne Frita (Dominican fried beef)"
 slug: 1265-how-to-make-quick-chef-zee-and-39-s-carne-frita-dominican-fried-beef
 date: 2022-05-11T19:22:47.442Z
 image: https://img-global.cpcdn.com/recipes/9b682f17b81fc48c/680x482cq70/chef-zees-carne-frita-dominican-fried-beef-recipe-main-photo.jpg
@@ -25,7 +25,7 @@ recipeingredient:
 recipeinstructions:
 - "Add beef, garlic, black pepper, oregano, and limes. Mix to combine. Let marinade overnight or atleast 2hrs."
 - "On a medium-high setting add olive oil to a Dutch oven or rice pot. Add beef, stirring occasionally (beef will release juices). After 5-10 min (once browned on all sides) add water (I pour water into marinade bowl)."
-- "Boil/simmer until water is dried up &amp; meat is tender (20-45min). In a separate pan heat up oil until it is bubbling when you splash water to it (350 degrees). Carefully add beef &amp; fry about 15seconds on each side. Remove and let paper towel absorb excess oil. Before serving squirt a little lime juice from a lime over. Best dipped in ketchup."
+- "Boil/simmer until water is dried up & meat is tender (20-45min). In a separate pan heat up oil until it is bubbling when you splash water to it (350 degrees). Carefully add beef & fry about 15seconds on each side. Remove and let paper towel absorb excess oil. Before serving squirt a little lime juice from a lime over. Best dipped in ketchup."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -79,7 +79,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can h
 
 1. Add beef, garlic, black pepper, oregano, and limes. Mix to combine. Let marinade overnight or atleast 2hrs.
 1. On a medium-high setting add olive oil to a Dutch oven or rice pot. Add beef, stirring occasionally (beef will release juices). After 5-10 min (once browned on all sides) add water (I pour water into marinade bowl).
-1. Boil/simmer until water is dried up &amp; meat is tender (20-45min). In a separate pan heat up oil until it is bubbling when you splash water to it (350 degrees). Carefully add beef &amp; fry about 15seconds on each side. Remove and let paper towel absorb excess oil. Before serving squirt a little lime juice from a lime over. Best dipped in ketchup.
+1. Boil/simmer until water is dried up & meat is tender (20-45min). In a separate pan heat up oil until it is bubbling when you splash water to it (350 degrees). Carefully add beef & fry about 15seconds on each side. Remove and let paper towel absorb excess oil. Before serving squirt a little lime juice from a lime over. Best dipped in ketchup.
 1. Ready to serve and ENJOY!
 
 

@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Super Quick Homemade Amy&amp;#39;s shredded chilli chicken crockpot"
-title: "Recipe of Super Quick Homemade Amy&amp;#39;s shredded chilli chicken crockpot"
+description: "Recipe of Super Quick Homemade Amy's shredded chilli chicken crockpot"
+title: "Recipe of Super Quick Homemade Amy's shredded chilli chicken crockpot"
 slug: 3549-recipe-of-super-quick-homemade-amy-and-39-s-shredded-chilli-chicken-crockpot
 date: 2022-03-16T08:22:58.686Z
 image: https://img-global.cpcdn.com/recipes/5175163818082304/680x482cq70/amys-shredded-chilli-chicken-crockpot-recipe-main-photo.jpg

@@ -52,7 +52,7 @@ recipecategory: Dessert
 
 Hello everybody, I hope you're having an amazing day today. Today, I will show you a way to make a special dish, sweet and sour chicken (“tang chu” chicken). It is one of my favorites food recipes. For mine, I'm gonna make it a bit tasty. This will be really delicious.
 
-Sweet And Sour Chicken (&#34;tang Chu&#34; Chicken). Easy Vegan Udon Noodle Soup, Made With Shiitake Powder. Sweet and sour chicken tang chu chicken. I like lemon breaded chicken and sweet and sour spare ribs as well as beef chop suey.
+Sweet And Sour Chicken (*tang Chu* Chicken). Easy Vegan Udon Noodle Soup, Made With Shiitake Powder. Sweet and sour chicken tang chu chicken. I like lemon breaded chicken and sweet and sour spare ribs as well as beef chop suey.
 
 Sweet and sour chicken (“tang chu” chicken) is one of the most well liked of current trending foods on earth. It is easy, it's fast, it tastes yummy. It's appreciated by millions daily. They are fine and they look fantastic. Sweet and sour chicken (“tang chu” chicken) is something which I've loved my entire life.
 
@@ -74,7 +74,7 @@ To get started with this particular recipe, we have to prepare a few components.
 1. Take  (b)(sauce) 4 tbsp tomato sauce, 1 tbsp oyster sauce, 1 tbsp sugar, 1/2 tbsp starch, 5 tbsp water
 
 
-The thought of thick sauce , delicate row of flesh and blood, saliva small US must flow out ! Charsiu, roast pork, roast duck, ribs, soy sauce chicken. Recipe: Delicious Sweet and sour chicken (&#34;tang chu&#34; chicken). Recipe: Tasty Garlic White Wine Shrimp Pasta. 
+The thought of thick sauce , delicate row of flesh and blood, saliva small US must flow out ! Charsiu, roast pork, roast duck, ribs, soy sauce chicken. Recipe: Delicious Sweet and sour chicken (*tang chu* chicken). Recipe: Tasty Garlic White Wine Shrimp Pasta. 
 
 <!--inarticleads2-->
 
@@ -88,6 +88,6 @@ The thought of thick sauce , delicate row of flesh and blood, saliva small US mu
 1. Can add some white sesame seed on top (optional)
 1. Ready to serve and ENJOY!
 
-Recipe: Delicious Sweet and sour chicken (&#34;tang chu&#34; chicken). Recipe: Tasty Garlic White Wine Shrimp Pasta. How Make Yummy Boiled chicken and chicken rice. Just how Make Appealing Simple brownies. Recipe: Appealing Simple Peanut Butter Cookies. 
+Recipe: Delicious Sweet and sour chicken (*tang chu* chicken). Recipe: Tasty Garlic White Wine Shrimp Pasta. How Make Yummy Boiled chicken and chicken rice. Just how Make Appealing Simple brownies. Recipe: Appealing Simple Peanut Butter Cookies. 
 
 So that is going to wrap this up for this exceptional food sweet and sour chicken (“tang chu” chicken) recipe. Thanks so much for reading. I'm sure that you can make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

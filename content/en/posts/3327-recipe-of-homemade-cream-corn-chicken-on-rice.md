@@ -72,7 +72,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Take 8 oz seasoned vegetarian chicken, cooked + cubed
 
 
-Looking in my cupboard and fridge for inspiration, I landed on this popular Hong Kong-style comfort dish. Creamy Italian Chicken &amp; Rice Bowl! Top chicken rice corn recipes and other great tasting recipes with a healthy slant from SparkRecipes.com. I served this over rice with homemade creamed corn and some canned yams as another side dish. 
+Looking in my cupboard and fridge for inspiration, I landed on this popular Hong Kong-style comfort dish. Creamy Italian Chicken & Rice Bowl! Top chicken rice corn recipes and other great tasting recipes with a healthy slant from SparkRecipes.com. I served this over rice with homemade creamed corn and some canned yams as another side dish. 
 
 <!--inarticleads2-->
 

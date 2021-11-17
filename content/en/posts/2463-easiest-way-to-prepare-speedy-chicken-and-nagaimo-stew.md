@@ -36,7 +36,7 @@ recipeinstructions:
 - "Keep stirring the chicken now and then till the water from chicken evaporates. Then the meat gets camerelized color and sticky to the wok. It might take 20 minutes cooking to get this point."
 - "Turn to medium heat to prevent burning. Add light soy sauce, dark soy sauce and broad bean chili oil sauce. Stir evenly."
 - "Add water to the level that barely cover the chicken. High heat till it is boiling, add nagaimo."
-- "Add salt. Simmer for 20 minutes or till the dish gets &#34;starchy&#34;. Stir now and then to prevent burning. Serve with some cliantros or green onions. Enjoy!"
+- "Add salt. Simmer for 20 minutes or till the dish gets *starchy*. Stir now and then to prevent burning. Serve with some cliantros or green onions. Enjoy!"
 - "Tips: For gluten free option, replace the dark soy sauce and light soy sauce with the same amount of Tamari gluten free soy sauce.  It takes a while at step 6, but it helps to get the best texture of chicken thighs."
 - "Ready to serve and ENJOY!"
 categories:
@@ -102,7 +102,7 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 1. Keep stirring the chicken now and then till the water from chicken evaporates. Then the meat gets camerelized color and sticky to the wok. It might take 20 minutes cooking to get this point.
 1. Turn to medium heat to prevent burning. Add light soy sauce, dark soy sauce and broad bean chili oil sauce. Stir evenly.
 1. Add water to the level that barely cover the chicken. High heat till it is boiling, add nagaimo.
-1. Add salt. Simmer for 20 minutes or till the dish gets &#34;starchy&#34;. Stir now and then to prevent burning. Serve with some cliantros or green onions. Enjoy!
+1. Add salt. Simmer for 20 minutes or till the dish gets *starchy*. Stir now and then to prevent burning. Serve with some cliantros or green onions. Enjoy!
 1. Tips: For gluten free option, replace the dark soy sauce and light soy sauce with the same amount of Tamari gluten free soy sauce.  It takes a while at step 6, but it helps to get the best texture of chicken thighs.
 1. Ready to serve and ENJOY!
 

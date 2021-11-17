@@ -82,7 +82,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 1. Get 1/4 tsp red pepper flakes
 1. Prepare 1 tbsp cornstarch
 1. Take 1 tsp sesame oil
-1. Get  Salt &amp; Pepper
+1. Get  Salt & Pepper
 1. Prepare  Sesame seeds for garnish
 
 

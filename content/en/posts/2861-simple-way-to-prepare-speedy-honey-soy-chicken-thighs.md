@@ -27,7 +27,7 @@ recipeinstructions:
 - "Next, rinse and trim off all the fat from the chicken, then place it in the bowl with the marinade."
 - "Marinate chicken for at least 1 hour!!!"
 - "Pre heat oven to 400 degrees."
-- "After, place chicken thighs and marinade in your cast iron or baking dish and bake for 45-60 minutes or until chicken is cooked thru, make sure to flip the chicken 1-2 times, that way the chicken will be juicy &amp; tender without dry top. After flip the chicken on the other side and broil on high for 5 minutes or until beautiful dark brown color."
+- "After, place chicken thighs and marinade in your cast iron or baking dish and bake for 45-60 minutes or until chicken is cooked thru, make sure to flip the chicken 1-2 times, that way the chicken will be juicy & tender without dry top. After flip the chicken on the other side and broil on high for 5 minutes or until beautiful dark brown color."
 - "Finally, garnish with chopped parsley, serve with rice or mashed potato, and make sure to pour the sauce over the chicken when serving."
 - "Ready to serve and ENJOY!"
 categories:
@@ -84,7 +84,7 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 1. Next, rinse and trim off all the fat from the chicken, then place it in the bowl with the marinade.
 1. Marinate chicken for at least 1 hour!!!
 1. Pre heat oven to 400 degrees.
-1. After, place chicken thighs and marinade in your cast iron or baking dish and bake for 45-60 minutes or until chicken is cooked thru, make sure to flip the chicken 1-2 times, that way the chicken will be juicy &amp; tender without dry top. After flip the chicken on the other side and broil on high for 5 minutes or until beautiful dark brown color.
+1. After, place chicken thighs and marinade in your cast iron or baking dish and bake for 45-60 minutes or until chicken is cooked thru, make sure to flip the chicken 1-2 times, that way the chicken will be juicy & tender without dry top. After flip the chicken on the other side and broil on high for 5 minutes or until beautiful dark brown color.
 1. Finally, garnish with chopped parsley, serve with rice or mashed potato, and make sure to pour the sauce over the chicken when serving.
 1. Ready to serve and ENJOY!
 

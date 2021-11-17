@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Award-winning Coco&amp;#39;s Crazy Microwave Oven Teriyaki Chicken"
-title: "Step-by-Step Guide to Make Award-winning Coco&amp;#39;s Crazy Microwave Oven Teriyaki Chicken"
+description: "Step-by-Step Guide to Make Award-winning Coco's Crazy Microwave Oven Teriyaki Chicken"
+title: "Step-by-Step Guide to Make Award-winning Coco's Crazy Microwave Oven Teriyaki Chicken"
 slug: 1037-step-by-step-guide-to-make-award-winning-coco-and-39-s-crazy-microwave-oven-teriyaki-chicken
 date: 2021-11-28T23:40:58.280Z
 image: https://img-global.cpcdn.com/recipes/faca45f6ef2a0abf/680x482cq70/cocos-crazy-microwave-oven-teriyaki-chicken-recipe-main-photo.jpg

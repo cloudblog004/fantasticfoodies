@@ -70,7 +70,7 @@ To begin with this particular recipe, we have to first prepare a few components.
 1. Get 2 stalks scallions, chopped
 1. Get 1 red potato, peeled + diced
 1. Make ready 1 butter baby squash, peeled + diced
-1. Get 1 package S&amp;B Japanese curry block
+1. Get 1 package S&B Japanese curry block
 1. Take 2 cups water
 1. Prepare 1.5 tbsp honey
 1. Make ready 3 tbsp milk

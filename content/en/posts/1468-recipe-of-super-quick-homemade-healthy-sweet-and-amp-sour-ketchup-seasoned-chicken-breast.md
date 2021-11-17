@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Super Quick Homemade Healthy Sweet &amp;amp; Sour Ketchup Seasoned Chicken Breast"
-title: "Recipe of Super Quick Homemade Healthy Sweet &amp;amp; Sour Ketchup Seasoned Chicken Breast"
+description: "Recipe of Super Quick Homemade Healthy Sweet & Sour Ketchup Seasoned Chicken Breast"
+title: "Recipe of Super Quick Homemade Healthy Sweet & Sour Ketchup Seasoned Chicken Breast"
 slug: 1468-recipe-of-super-quick-homemade-healthy-sweet-and-amp-sour-ketchup-seasoned-chicken-breast
 date: 2022-01-02T04:58:48.576Z
 image: https://img-global.cpcdn.com/recipes/5260367555985408/680x482cq70/healthy-sweet-sour-ketchup-seasoned-chicken-breast-recipe-main-photo.jpg
@@ -60,20 +60,20 @@ recipecategory: Dessert
 ---
 
 
-![Healthy Sweet &amp; Sour Ketchup Seasoned Chicken Breast](https://img-global.cpcdn.com/recipes/5260367555985408/680x482cq70/healthy-sweet-sour-ketchup-seasoned-chicken-breast-recipe-main-photo.jpg)
+![Healthy Sweet & Sour Ketchup Seasoned Chicken Breast](https://img-global.cpcdn.com/recipes/5260367555985408/680x482cq70/healthy-sweet-sour-ketchup-seasoned-chicken-breast-recipe-main-photo.jpg)
 
-Hello everybody, I hope you're having an amazing day today. Today, I will show you a way to make a special dish, healthy sweet &amp; sour ketchup seasoned chicken breast. One of my favorites food recipes. For mine, I am going to make it a little bit unique. This will be really delicious.
-
-
-
-Healthy Sweet &amp; Sour Ketchup Seasoned Chicken Breast is one of the most popular of current trending meals in the world. It is appreciated by millions daily. It's easy, it is quick, it tastes delicious. Healthy Sweet &amp; Sour Ketchup Seasoned Chicken Breast is something that I have loved my entire life. They're nice and they look fantastic.
+Hello everybody, I hope you're having an amazing day today. Today, I will show you a way to make a special dish, healthy sweet & sour ketchup seasoned chicken breast. One of my favorites food recipes. For mine, I am going to make it a little bit unique. This will be really delicious.
 
 
-To begin with this recipe, we must first prepare a few ingredients. You can cook healthy sweet &amp; sour ketchup seasoned chicken breast using 20 ingredients and 7 steps. Here is how you can achieve it.
+
+Healthy Sweet & Sour Ketchup Seasoned Chicken Breast is one of the most popular of current trending meals in the world. It is appreciated by millions daily. It's easy, it is quick, it tastes delicious. Healthy Sweet & Sour Ketchup Seasoned Chicken Breast is something that I have loved my entire life. They're nice and they look fantastic.
+
+
+To begin with this recipe, we must first prepare a few ingredients. You can cook healthy sweet & sour ketchup seasoned chicken breast using 20 ingredients and 7 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Healthy Sweet &amp; Sour Ketchup Seasoned Chicken Breast:
+##### The ingredients needed to make Healthy Sweet & Sour Ketchup Seasoned Chicken Breast:
 
 1. Get 1 Chicken breast
 1. Make ready  For the Marinade:
@@ -101,7 +101,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can cook
 
 <!--inarticleads2-->
 
-##### Instructions to make Healthy Sweet &amp; Sour Ketchup Seasoned Chicken Breast:
+##### Instructions to make Healthy Sweet & Sour Ketchup Seasoned Chicken Breast:
 
 1. Remove the skin from the chicken breast and cut the chicken into bite-sized pieces. Put the chicken into a plastic bag along with all of the marinade ingredients except the katakuriko. Rub the bag well to rub in the marinade. Marinate for 30 minutes.
 1. Mix together the ☆ seasoning ingredients and set aside. Cut the onion into wedges and the green bell peppers and red bell pepper into bite-size pieces. Thinly slice the carrots into half-moons.
@@ -114,4 +114,4 @@ To begin with this recipe, we must first prepare a few ingredients. You can cook
 
 
 
-So that's going to wrap this up with this special food healthy sweet &amp; sour ketchup seasoned chicken breast recipe. Thank you very much for reading. I'm confident you will make this at home. There's gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+So that's going to wrap this up with this special food healthy sweet & sour ketchup seasoned chicken breast recipe. Thank you very much for reading. I'm confident you will make this at home. There's gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

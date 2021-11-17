@@ -32,7 +32,7 @@ recipeingredient:
 - "as required Few Curry Leaves"
 - "1 pinch or two of freshly grounded black peppercorns"
 recipeinstructions:
-- "Mix all ingredients except the oil, rice flour, Cornflour and All-purpose flour &amp; tempering ingredients with the chicken pieces and let it marinate for 2 hours. Then Heat oil in a kadai for deep frying."
+- "Mix all ingredients except the oil, rice flour, Cornflour and All-purpose flour & tempering ingredients with the chicken pieces and let it marinate for 2 hours. Then Heat oil in a kadai for deep frying."
 - "Mix in the flours too and deep fry till it&#39;s crisp and golden brown in colour. Fry it in batches. Do not overcrowd the oil. Once all chicken pieces are fried, take a pan and heat oil, add in the garlic and chillies and once it starts becoming nutty brown add in the curry leaves and grounded black pepper saute for few seconds, then add in the fried chicken and toss it. Put it in a serving plate and serve hot !"
 - "Ready to serve and ENJOY!"
 categories:
@@ -93,7 +93,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can cook
 
 ##### Steps to make Chicken 65:
 
-1. Mix all ingredients except the oil, rice flour, Cornflour and All-purpose flour &amp; tempering ingredients with the chicken pieces and let it marinate for 2 hours. Then Heat oil in a kadai for deep frying.
+1. Mix all ingredients except the oil, rice flour, Cornflour and All-purpose flour & tempering ingredients with the chicken pieces and let it marinate for 2 hours. Then Heat oil in a kadai for deep frying.
 1. Mix in the flours too and deep fry till it&#39;s crisp and golden brown in colour. Fry it in batches. Do not overcrowd the oil. Once all chicken pieces are fried, take a pan and heat oil, add in the garlic and chillies and once it starts becoming nutty brown add in the curry leaves and grounded black pepper saute for few seconds, then add in the fried chicken and toss it. Put it in a serving plate and serve hot !
 1. Ready to serve and ENJOY!
 

@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Perfect Alices&amp;#39; Chicken Divan"
-title: "Recipe of Perfect Alices&amp;#39; Chicken Divan"
+description: "Recipe of Perfect Alices' Chicken Divan"
+title: "Recipe of Perfect Alices' Chicken Divan"
 slug: 1304-recipe-of-perfect-alices-and-39-chicken-divan
 date: 2022-02-19T20:05:43.348Z
 image: //assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png

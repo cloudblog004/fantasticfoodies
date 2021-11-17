@@ -58,7 +58,7 @@ Hey everyone, I hope you are having an amazing day today. Today, we're going to 
 
 Chicken 65 - the best combo with daal chawal is one of the most well liked of current trending foods in the world. It is easy, it is fast, it tastes yummy. It is appreciated by millions every day. They're nice and they look fantastic. Chicken 65 - the best combo with daal chawal is something which I've loved my entire life.
 
-Another favorite meal combo of Daal Chawal With Lehsan Chutney and chips. -Sprinkle salt,chaat masala &amp; mix well. -Serve daal with rice,chutney &amp; crispy potato chips. Recipe in Urdu: Directions: Prepare Arhar/Toor Daal: -Pot mein arhar/toor daal aur pani dal dein aur ubal anay ka bad scum ko. For this combo you are going to need Shiver : blaze(last move),senko spirit bomb, senko storm , dunes fate, Light/dark jokei (MAX LV). To start us of use Shindai clones spec followed by Eternal C spec along with gold jokei then shiver and lastly satori blade.
+Another favorite meal combo of Daal Chawal With Lehsan Chutney and chips. -Sprinkle salt,chaat masala & mix well. -Serve daal with rice,chutney & crispy potato chips. Recipe in Urdu: Directions: Prepare Arhar/Toor Daal: -Pot mein arhar/toor daal aur pani dal dein aur ubal anay ka bad scum ko. For this combo you are going to need Shiver : blaze(last move),senko spirit bomb, senko storm , dunes fate, Light/dark jokei (MAX LV). To start us of use Shindai clones spec followed by Eternal C spec along with gold jokei then shiver and lastly satori blade.
 
 
 To begin with this recipe, we have to prepare a few components. You can have chicken 65 - the best combo with daal chawal using 15 ingredients and 4 steps. Here is how you cook it.

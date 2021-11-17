@@ -30,7 +30,7 @@ recipeinstructions:
 - "Use tongs to remove ham hocks to a plate. Use a slotted spoon to transfer about 1 cup of beans to a medium bowl. Mash beans into a paste. Stir bean paste back into beans in pot to help thicken."
 - "If desired, de-bone and chop up ham hocks (meat, fat, skin and all) and stir back in to beans. We do this for added flavor and richness. Stir in desired amounts of salt and pepper. Serve with cornbread and enjoy!"
 - "See notes below ⤵"
-- "Note: If beans still seem to &#34;soupy&#34; for your liking after stirring in the mashed beans (and possibly ham hocks) turn cooker back onto brown/saute to bring beans back to a simmer. Simmer with lid off until desired thickness is achieved."
+- "Note: If beans still seem to *soupy* for your liking after stirring in the mashed beans (and possibly ham hocks) turn cooker back onto brown/saute to bring beans back to a simmer. Simmer with lid off until desired thickness is achieved."
 - "Note: For a tasty cornbread to go along with these beans see one of the 2 recipes on my page!"
 - "Ready to serve and ENJOY!"
 categories:
@@ -90,7 +90,7 @@ To get started with this recipe, we must prepare a few components. You can cook 
 1. Use tongs to remove ham hocks to a plate. Use a slotted spoon to transfer about 1 cup of beans to a medium bowl. Mash beans into a paste. Stir bean paste back into beans in pot to help thicken.
 1. If desired, de-bone and chop up ham hocks (meat, fat, skin and all) and stir back in to beans. We do this for added flavor and richness. Stir in desired amounts of salt and pepper. Serve with cornbread and enjoy!
 1. See notes below ⤵
-1. Note: If beans still seem to &#34;soupy&#34; for your liking after stirring in the mashed beans (and possibly ham hocks) turn cooker back onto brown/saute to bring beans back to a simmer. Simmer with lid off until desired thickness is achieved.
+1. Note: If beans still seem to *soupy* for your liking after stirring in the mashed beans (and possibly ham hocks) turn cooker back onto brown/saute to bring beans back to a simmer. Simmer with lid off until desired thickness is achieved.
 1. Note: For a tasty cornbread to go along with these beans see one of the 2 recipes on my page!
 1. Ready to serve and ENJOY!
 

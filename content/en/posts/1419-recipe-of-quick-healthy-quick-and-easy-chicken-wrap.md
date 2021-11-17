@@ -23,7 +23,7 @@ recipeingredient:
 - "1 chili powder"
 - "1 garlic powder"
 recipeinstructions:
-- "Slice &amp; dice the chicken fillet, avocado, tomato and iceberg lettuce"
+- "Slice & dice the chicken fillet, avocado, tomato and iceberg lettuce"
 - "Heat wok pan and add wok oil"
 - "Season chicken fillet with garlic- and chilipowder"
 - "Add chicken to pan and cook until done"
@@ -74,13 +74,13 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 1. Take 1 garlic powder
 
 
-Harissa is the perfect condiment to keep in your fridge for whenever you want to add a little &#34;something&#34; to a dish. Since this Moroccan wrap recipe is all about being quick and easy, let me give you a brief run-down of the recipe process. You may see pinwheel wrap sandwiches so often at the store or the quick mart you don&#39;t even realize how easy they are to make at home. But this healthy Italian Chicken Wrap sandwich has a few secrets up it&#39;s tortilla that&#39;ll make it so you&#39;ll never want a take-it-with-you lunch any other way again. 
+Harissa is the perfect condiment to keep in your fridge for whenever you want to add a little *something* to a dish. Since this Moroccan wrap recipe is all about being quick and easy, let me give you a brief run-down of the recipe process. You may see pinwheel wrap sandwiches so often at the store or the quick mart you don&#39;t even realize how easy they are to make at home. But this healthy Italian Chicken Wrap sandwich has a few secrets up it&#39;s tortilla that&#39;ll make it so you&#39;ll never want a take-it-with-you lunch any other way again. 
 
 <!--inarticleads2-->
 
 ##### Steps to make Healthy, quick and easy chicken wrap:
 
-1. Slice &amp; dice the chicken fillet, avocado, tomato and iceberg lettuce
+1. Slice & dice the chicken fillet, avocado, tomato and iceberg lettuce
 1. Heat wok pan and add wok oil
 1. Season chicken fillet with garlic- and chilipowder
 1. Add chicken to pan and cook until done

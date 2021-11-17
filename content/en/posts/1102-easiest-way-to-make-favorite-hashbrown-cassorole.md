@@ -21,7 +21,7 @@ recipeingredient:
 - "1 box corn flakes"
 recipeinstructions:
 - "preheat oven to 375°F"
-- "mix sour cream, hashbrowns, cream of chicken, and salt &amp; pepper in a large bowl"
+- "mix sour cream, hashbrowns, cream of chicken, and salt & pepper in a large bowl"
 - "then put the mix into a 13 by 9 pan"
 - "put it in the oven for 45 min."
 - "for the last 5 min, put the corn flakes on top where its just lightly covered and put the melted butter on top of the corn flakes"
@@ -74,7 +74,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 ##### Instructions to make Hashbrown Cassorole:
 
 1. preheat oven to 375°F
-1. mix sour cream, hashbrowns, cream of chicken, and salt &amp; pepper in a large bowl
+1. mix sour cream, hashbrowns, cream of chicken, and salt & pepper in a large bowl
 1. then put the mix into a 13 by 9 pan
 1. put it in the oven for 45 min.
 1. for the last 5 min, put the corn flakes on top where its just lightly covered and put the melted butter on top of the corn flakes

@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Prepare Ultimate Chicky&amp;#39;s Chicken Pesto Pizza"
-title: "Easiest Way to Prepare Ultimate Chicky&amp;#39;s Chicken Pesto Pizza"
+description: "Easiest Way to Prepare Ultimate Chicky's Chicken Pesto Pizza"
+title: "Easiest Way to Prepare Ultimate Chicky's Chicken Pesto Pizza"
 slug: 3030-easiest-way-to-prepare-ultimate-chicky-and-39-s-chicken-pesto-pizza
 date: 2022-01-22T08:14:45.848Z
 image: https://img-global.cpcdn.com/recipes/45476175/680x482cq70/chickys-chicken-pesto-pizza-recipe-main-photo.jpg

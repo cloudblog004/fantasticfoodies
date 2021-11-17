@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Homemade Delicious and Healthy Sweet &amp;amp; Sour Pork With Chicken Tenders"
-title: "Recipe of Homemade Delicious and Healthy Sweet &amp;amp; Sour Pork With Chicken Tenders"
+description: "Recipe of Homemade Delicious and Healthy Sweet & Sour Pork With Chicken Tenders"
+title: "Recipe of Homemade Delicious and Healthy Sweet & Sour Pork With Chicken Tenders"
 slug: 1399-recipe-of-homemade-delicious-and-healthy-sweet-and-amp-sour-pork-with-chicken-tenders
 date: 2022-02-20T21:44:41.006Z
 image: https://img-global.cpcdn.com/recipes/4934578931236864/680x482cq70/delicious-and-healthy-sweet-sour-pork-with-chicken-tenders-recipe-main-photo.jpg
@@ -47,20 +47,20 @@ recipecategory: Dessert
 ---
 
 
-![Delicious and Healthy Sweet &amp; Sour Pork With Chicken Tenders](https://img-global.cpcdn.com/recipes/4934578931236864/680x482cq70/delicious-and-healthy-sweet-sour-pork-with-chicken-tenders-recipe-main-photo.jpg)
+![Delicious and Healthy Sweet & Sour Pork With Chicken Tenders](https://img-global.cpcdn.com/recipes/4934578931236864/680x482cq70/delicious-and-healthy-sweet-sour-pork-with-chicken-tenders-recipe-main-photo.jpg)
 
-Hey everyone, hope you are having an amazing day today. Today, we're going to prepare a special dish, delicious and healthy sweet &amp; sour pork with chicken tenders. One of my favorites food recipes. This time, I am going to make it a bit tasty. This is gonna smell and look delicious.
+Hey everyone, hope you are having an amazing day today. Today, we're going to prepare a special dish, delicious and healthy sweet & sour pork with chicken tenders. One of my favorites food recipes. This time, I am going to make it a bit tasty. This is gonna smell and look delicious.
 
-Delicious and Healthy Sweet &amp; Sour Pork With Chicken Tenders is one of the most favored of current trending meals on earth. It is appreciated by millions every day. It is easy, it is quick, it tastes delicious. They are nice and they look fantastic. Delicious and Healthy Sweet &amp; Sour Pork With Chicken Tenders is something which I've loved my entire life.
-
-
+Delicious and Healthy Sweet & Sour Pork With Chicken Tenders is one of the most favored of current trending meals on earth. It is appreciated by millions every day. It is easy, it is quick, it tastes delicious. They are nice and they look fantastic. Delicious and Healthy Sweet & Sour Pork With Chicken Tenders is something which I've loved my entire life.
 
 
-To get started with this particular recipe, we must prepare a few components. You can have delicious and healthy sweet &amp; sour pork with chicken tenders using 9 ingredients and 5 steps. Here is how you can achieve it.
+
+
+To get started with this particular recipe, we must prepare a few components. You can have delicious and healthy sweet & sour pork with chicken tenders using 9 ingredients and 5 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Delicious and Healthy Sweet &amp; Sour Pork With Chicken Tenders:
+##### The ingredients needed to make Delicious and Healthy Sweet & Sour Pork With Chicken Tenders:
 
 1. Make ready 5 strips Chicken tenders
 1. Take 2 Green peppers
@@ -77,7 +77,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 
 <!--inarticleads2-->
 
-##### Steps to make Delicious and Healthy Sweet &amp; Sour Pork With Chicken Tenders:
+##### Steps to make Delicious and Healthy Sweet & Sour Pork With Chicken Tenders:
 
 1. Cut the chicken tenders into bite sized pieces and soak in unlisted (1 tablespoon sake, 1 teaspoon soy sauce). Let soak until it&#39;s basically time to use the chicken.
 1. Cut the carrots into long, thin strips, cut the onions into 1-2 cm slices, cut the green peppers into chunks, and cut the shiitake mushrooms into bite sized pieces. Mix the ★ ingredients together.
@@ -88,4 +88,4 @@ To get started with this particular recipe, we must prepare a few components. Yo
 
 
 
-So that is going to wrap it up for this special food delicious and healthy sweet &amp; sour pork with chicken tenders recipe. Thank you very much for your time. I'm confident you can make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+So that is going to wrap it up for this special food delicious and healthy sweet & sour pork with chicken tenders recipe. Thank you very much for your time. I'm confident you can make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

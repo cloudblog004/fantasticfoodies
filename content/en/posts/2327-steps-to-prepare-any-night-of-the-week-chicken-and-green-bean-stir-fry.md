@@ -90,7 +90,7 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 1. Take 3 tbsp hoisin sauce
 
 
-Tender chicken, crunchy green beans, fluffy rice and a sweet, tangy, garlicky sauce. It&#39;s not how Chinese grandmas with a capital &#34;C&#34; cook I just tried your &#34;Easy chicken and green bean stir fry&#34; recipe. I noticed in the photos that you use a cast iron skillet when you prepare a stir fry. As I was going through my pots and pans inventory last week, I came across my wok which I had stored away for almost a decade. 
+Tender chicken, crunchy green beans, fluffy rice and a sweet, tangy, garlicky sauce. It&#39;s not how Chinese grandmas with a capital *C* cook I just tried your *Easy chicken and green bean stir fry* recipe. I noticed in the photos that you use a cast iron skillet when you prepare a stir fry. As I was going through my pots and pans inventory last week, I came across my wok which I had stored away for almost a decade. 
 
 <!--inarticleads2-->
 

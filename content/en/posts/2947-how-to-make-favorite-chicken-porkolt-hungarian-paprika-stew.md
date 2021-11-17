@@ -55,7 +55,7 @@ recipecategory: Lunch
 
 Hello everybody, hope you're having an amazing day today. Today, we're going to make a special dish, chicken pörkölt (hungarian paprika stew). It is one of my favorites. For mine, I will make it a little bit tasty. This is gonna smell and look delicious.
 
-Pörkölt is a meat stew which originates from Hungary, but is eaten throughout Central Europe. Pörkölt is a Hungarian stew with boneless meat, paprika, and some vegetables. Authentic Hungarian Pörkölt (Beef &amp; Onion Stew). One of the most famous and beloved of all Hungarian dishes, this authentic Chicken Paprikash features chicken in an unforgettably rich, flavorful and creamy paprika-infused sauce!
+Pörkölt is a meat stew which originates from Hungary, but is eaten throughout Central Europe. Pörkölt is a Hungarian stew with boneless meat, paprika, and some vegetables. Authentic Hungarian Pörkölt (Beef & Onion Stew). One of the most famous and beloved of all Hungarian dishes, this authentic Chicken Paprikash features chicken in an unforgettably rich, flavorful and creamy paprika-infused sauce!
 
 Chicken Pörkölt (Hungarian paprika stew) is one of the most favored of recent trending foods on earth. It's enjoyed by millions every day. It's simple, it's fast, it tastes yummy. Chicken Pörkölt (Hungarian paprika stew) is something that I have loved my whole life. They are nice and they look wonderful.
 

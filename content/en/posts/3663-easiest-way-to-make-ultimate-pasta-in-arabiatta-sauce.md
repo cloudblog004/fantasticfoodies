@@ -62,7 +62,7 @@ Hello everybody, it is Drew, welcome to my recipe page. Today, I will show you a
 
 Pasta in Arabiatta sauce is one of the most popular of recent trending foods in the world. It is enjoyed by millions daily. It is easy, it is quick, it tastes yummy. They are nice and they look fantastic. Pasta in Arabiatta sauce is something that I have loved my entire life.
 
-Pasta Arrabiata literally means &#34;angry pasta&#34; in Italian. Arrabiata sauce (sugo all&#39;arrabbiata) is a spicy (angry) tomato sauce that&#39;s made with plenty of olive oil, garlic, chopped tomatoes, and red pepper flakes to provide the heat. We all know I&#39;m not the biggest spice fan on the planet, but I did really. Arrabbiata sauce, or sugo all&#39;arrabbiata in Italian, (Arabbiata in Romanesco dialect) is a spicy sauce for pasta made from garlic, tomatoes, and dried red chili peppers cooked in olive oil.
+Pasta Arrabiata literally means *angry pasta* in Italian. Arrabiata sauce (sugo all&#39;arrabbiata) is a spicy (angry) tomato sauce that&#39;s made with plenty of olive oil, garlic, chopped tomatoes, and red pepper flakes to provide the heat. We all know I&#39;m not the biggest spice fan on the planet, but I did really. Arrabbiata sauce, or sugo all&#39;arrabbiata in Italian, (Arabbiata in Romanesco dialect) is a spicy sauce for pasta made from garlic, tomatoes, and dried red chili peppers cooked in olive oil.
 
 
 To get started with this particular recipe, we must prepare a few ingredients. You can have pasta in arabiatta sauce using 17 ingredients and 6 steps. Here is how you can achieve that.

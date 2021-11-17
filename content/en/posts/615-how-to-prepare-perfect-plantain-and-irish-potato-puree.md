@@ -71,7 +71,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Make ready 2 table spoon grounded crayfish
 
 
-You can check softness by piercing it with a knife or fork, if it goes through easy - your potatoes are ready. &#34;Variety is the spice of life.&#34;. I&#39;ve heard that phrase countless times in my life but never thought about it in the most literal sense until I learned about the history of Irish potatoes. A significant footnote in this history, the Irish Potato famine, conveys the vital importance of planting genetically diverse crops. A Gerson Therapy version of the traditional Irish dish colcannon. 
+You can check softness by piercing it with a knife or fork, if it goes through easy - your potatoes are ready. *Variety is the spice of life.*. I&#39;ve heard that phrase countless times in my life but never thought about it in the most literal sense until I learned about the history of Irish potatoes. A significant footnote in this history, the Irish Potato famine, conveys the vital importance of planting genetically diverse crops. A Gerson Therapy version of the traditional Irish dish colcannon. 
 
 <!--inarticleads2-->
 

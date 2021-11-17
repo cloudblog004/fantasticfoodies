@@ -22,10 +22,10 @@ recipeingredient:
 - "8 oz bag Mexican Cheese"
 - "1/2 tps black pepper"
 recipeinstructions:
-- "Preheat oven to 350. Combine sour cream, salsa verde, milk &amp; black pepper in a bowl. Whisk together."
+- "Preheat oven to 350. Combine sour cream, salsa verde, milk & black pepper in a bowl. Whisk together."
 - "Pour a layer of the sourcream mixture onto pan. Then cut tortillas in half and layer on top of mixture."
-- "Then take 1-1/2 cansof shredded chicken &amp; layer on top of tortillas. Then dice avocado in shell, scoop out &amp; layer on top of chicken."
-- "Layer more sour cream mixture on top, then add 1/2 the bag of cheese. Repeat- layer tortillas, chicken, avocado, sour cream mixture &amp; rest of cheese."
+- "Then take 1-1/2 cansof shredded chicken & layer on top of tortillas. Then dice avocado in shell, scoop out & layer on top of chicken."
+- "Layer more sour cream mixture on top, then add 1/2 the bag of cheese. Repeat- layer tortillas, chicken, avocado, sour cream mixture & rest of cheese."
 - "Sprinkle black pepper on top if desired. Bake 50 minutes, then let cool for 5-10 minutes before serving."
 - "Ready to serve and ENJOY!"
 categories:
@@ -77,10 +77,10 @@ To begin with this particular recipe, we must prepare a few components. You can 
 
 ##### Steps to make Avocado Chicken Enchilada Casserole:
 
-1. Preheat oven to 350. Combine sour cream, salsa verde, milk &amp; black pepper in a bowl. Whisk together.
+1. Preheat oven to 350. Combine sour cream, salsa verde, milk & black pepper in a bowl. Whisk together.
 1. Pour a layer of the sourcream mixture onto pan. Then cut tortillas in half and layer on top of mixture.
-1. Then take 1-1/2 cansof shredded chicken &amp; layer on top of tortillas. Then dice avocado in shell, scoop out &amp; layer on top of chicken.
-1. Layer more sour cream mixture on top, then add 1/2 the bag of cheese. Repeat- layer tortillas, chicken, avocado, sour cream mixture &amp; rest of cheese.
+1. Then take 1-1/2 cansof shredded chicken & layer on top of tortillas. Then dice avocado in shell, scoop out & layer on top of chicken.
+1. Layer more sour cream mixture on top, then add 1/2 the bag of cheese. Repeat- layer tortillas, chicken, avocado, sour cream mixture & rest of cheese.
 1. Sprinkle black pepper on top if desired. Bake 50 minutes, then let cool for 5-10 minutes before serving.
 1. Ready to serve and ENJOY!
 

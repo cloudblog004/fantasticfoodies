@@ -34,7 +34,7 @@ recipeinstructions:
 - "Chop your spinach, add it on top."
 - "In a bowl, put your soups."
 - "Add water, pepper, salt and hot sauce if using, mix well."
-- "Pour in with the rest. Make sure it soaks down to the rice in all areas, or you could have some &#34;crunchy&#34; sections. Cover, cook 2 hours."
+- "Pour in with the rest. Make sure it soaks down to the rice in all areas, or you could have some *crunchy* sections. Cover, cook 2 hours."
 - "Remove from oven, uncover, let sit 10-15 minutes before serving."
 - "Ready to serve and ENJOY!"
 categories:
@@ -98,7 +98,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 1. Chop your spinach, add it on top.
 1. In a bowl, put your soups.
 1. Add water, pepper, salt and hot sauce if using, mix well.
-1. Pour in with the rest. Make sure it soaks down to the rice in all areas, or you could have some &#34;crunchy&#34; sections. Cover, cook 2 hours.
+1. Pour in with the rest. Make sure it soaks down to the rice in all areas, or you could have some *crunchy* sections. Cover, cook 2 hours.
 1. Remove from oven, uncover, let sit 10-15 minutes before serving.
 1. Ready to serve and ENJOY!
 

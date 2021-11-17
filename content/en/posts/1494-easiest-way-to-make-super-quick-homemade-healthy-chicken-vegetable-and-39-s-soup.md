@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Super Quick Homemade Healthy Chicken Vegetable&amp;#39;s Soup 🍲🍲"
-title: "Easiest Way to Make Super Quick Homemade Healthy Chicken Vegetable&amp;#39;s Soup 🍲🍲"
+description: "Easiest Way to Make Super Quick Homemade Healthy Chicken Vegetable's Soup 🍲🍲"
+title: "Easiest Way to Make Super Quick Homemade Healthy Chicken Vegetable's Soup 🍲🍲"
 slug: 1494-easiest-way-to-make-super-quick-homemade-healthy-chicken-vegetable-and-39-s-soup
 date: 2022-03-12T13:40:55.734Z
 image: https://img-global.cpcdn.com/recipes/20ace141fed09630/680x482cq70/healthy-chicken-vegetables-soup-recipe-main-photo.jpg

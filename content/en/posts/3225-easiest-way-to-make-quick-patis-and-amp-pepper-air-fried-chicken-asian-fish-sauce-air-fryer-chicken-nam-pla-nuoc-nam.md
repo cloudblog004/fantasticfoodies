@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Quick Patis &amp;amp; Pepper Air Fried Chicken • Asian Fish Sauce Air Fryer Chicken | Nam pla | Nuoc nam"
-title: "Easiest Way to Make Quick Patis &amp;amp; Pepper Air Fried Chicken • Asian Fish Sauce Air Fryer Chicken | Nam pla | Nuoc nam"
+description: "Easiest Way to Make Quick Patis & Pepper Air Fried Chicken • Asian Fish Sauce Air Fryer Chicken | Nam pla | Nuoc nam"
+title: "Easiest Way to Make Quick Patis & Pepper Air Fried Chicken • Asian Fish Sauce Air Fryer Chicken | Nam pla | Nuoc nam"
 slug: 3225-easiest-way-to-make-quick-patis-and-amp-pepper-air-fried-chicken-asian-fish-sauce-air-fryer-chicken-nam-pla-nuoc-nam
 date: 2021-12-20T11:35:54.115Z
 image: https://img-global.cpcdn.com/recipes/a9d4828f49dd05b8/680x482cq70/patis-pepper-air-fried-chicken-asian-fish-sauce-air-fryer-chicken-nam-pla-nuoc-nam-recipe-main-photo.jpg
@@ -46,19 +46,19 @@ recipecategory: Dessert
 ---
 
 
-![Patis &amp; Pepper Air Fried Chicken • Asian Fish Sauce Air Fryer Chicken | Nam pla | Nuoc nam](https://img-global.cpcdn.com/recipes/a9d4828f49dd05b8/680x482cq70/patis-pepper-air-fried-chicken-asian-fish-sauce-air-fryer-chicken-nam-pla-nuoc-nam-recipe-main-photo.jpg)
+![Patis & Pepper Air Fried Chicken • Asian Fish Sauce Air Fryer Chicken | Nam pla | Nuoc nam](https://img-global.cpcdn.com/recipes/a9d4828f49dd05b8/680x482cq70/patis-pepper-air-fried-chicken-asian-fish-sauce-air-fryer-chicken-nam-pla-nuoc-nam-recipe-main-photo.jpg)
 
-Hey everyone, I hope you are having an incredible day today. Today, I'm gonna show you how to prepare a distinctive dish, patis &amp; pepper air fried chicken • asian fish sauce air fryer chicken | nam pla | nuoc nam. One of my favorites food recipes. For mine, I will make it a bit unique. This is gonna smell and look delicious.
+Hey everyone, I hope you are having an incredible day today. Today, I'm gonna show you how to prepare a distinctive dish, patis & pepper air fried chicken • asian fish sauce air fryer chicken | nam pla | nuoc nam. One of my favorites food recipes. For mine, I will make it a bit unique. This is gonna smell and look delicious.
  Nuoc nam is one of the most popular of recent trending foods in the world. It's appreciated by millions daily. It is easy, it's fast, it tastes delicious.  Nam pla 
 
 Patis may refer to: Paattinen, a Finnish village. Patis, Minas Gerais, a municipality in the Brazilian state of Minas Gerais. Paṭis, a standard abbreviation for the Buddhist Pali Canon&#39;s Patisambhidamagga. Patis (sauce), a fish sauce used as a cooking ingredient or a condiment in the Philippines.
 
 
-To get started with this particular recipe, we must prepare a few components. You can have patis &amp; pepper air fried chicken • asian fish sauce air fryer chicken | nam pla | nuoc nam using 6 ingredients and 7 steps. Here is how you can achieve that.
+To get started with this particular recipe, we must prepare a few components. You can have patis & pepper air fried chicken • asian fish sauce air fryer chicken | nam pla | nuoc nam using 6 ingredients and 7 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Patis &amp; Pepper Air Fried Chicken • Asian Fish Sauce Air Fryer Chicken | Nam pla | Nuoc nam:
+##### The ingredients needed to make Patis & Pepper Air Fried Chicken • Asian Fish Sauce Air Fryer Chicken | Nam pla | Nuoc nam:
 
 1. Get 2 chicken thighs or your fave part
 1. Take 2 Tbsp cooking oil
@@ -72,7 +72,7 @@ A fish sauce, a byproduct of making bagoong, used as an ingredient or condiment 
 
 <!--inarticleads2-->
 
-##### Steps to make Patis &amp; Pepper Air Fried Chicken • Asian Fish Sauce Air Fryer Chicken | Nam pla | Nuoc nam:
+##### Steps to make Patis & Pepper Air Fried Chicken • Asian Fish Sauce Air Fryer Chicken | Nam pla | Nuoc nam:
 
 1. I boiled the frozen chicken first for 15-20 min. If yours is not frozen, you can opt to marinate it in oil and fish sauce for 30mins-1 hour
 1. After boiling, let it drip while preparing the oil and patis mixture. 1 Tbsp each per piece of thigh, place in a bowl first.
@@ -85,4 +85,4 @@ A fish sauce, a byproduct of making bagoong, used as an ingredient or condiment 
 
 Find all recipes from the show on the recipes page. In the dead of night see the shadows crawl. Darkness come alive sing to sleep my soul. We create and curate a simple, more thoughtful and sustainable way of life using stylish linen, cotton and wool clothes and knitwear garments. Save Kyriad Meaux to your lists. 
 
-So that's going to wrap this up for this exceptional food patis &amp; pepper air fried chicken • asian fish sauce air fryer chicken | nam pla | nuoc nam recipe. Thank you very much for reading. I am confident that you will make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!
+So that's going to wrap this up for this exceptional food patis & pepper air fried chicken • asian fish sauce air fryer chicken | nam pla | nuoc nam recipe. Thank you very much for reading. I am confident that you will make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

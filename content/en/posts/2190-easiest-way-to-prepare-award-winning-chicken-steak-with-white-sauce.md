@@ -83,7 +83,7 @@ To get started with this particular recipe, we must first prepare a few componen
 1. Take  For vegetables (1/2 teaspoon salt or pepper or 1 tablespoon butter)
 
 
-White Sauce, Beef Steak And Juicy Fruit Chaat by Ruby Taj Recipe of White Sauce, Beef Chicken Steak Recipe Chicken Steak is delicious dish. Chicken is marinated with sauce &amp; honey mixture. Then grilled and serve with boiled vegetables and rice or fries or potatoes wedges or mashed potatoes. Village Food Secrets Subscribe for more videos. #legendarycuisine #Chickensteak Recipes combinations to help you level up your cooking skills. 
+White Sauce, Beef Steak And Juicy Fruit Chaat by Ruby Taj Recipe of White Sauce, Beef Chicken Steak Recipe Chicken Steak is delicious dish. Chicken is marinated with sauce & honey mixture. Then grilled and serve with boiled vegetables and rice or fries or potatoes wedges or mashed potatoes. Village Food Secrets Subscribe for more videos. #legendarycuisine #Chickensteak Recipes combinations to help you level up your cooking skills. 
 
 <!--inarticleads2-->
 

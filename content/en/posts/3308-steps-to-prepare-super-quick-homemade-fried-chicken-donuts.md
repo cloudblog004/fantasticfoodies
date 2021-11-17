@@ -65,7 +65,7 @@ Hello everybody, it's me again, Dan, welcome to my recipe site. Today, I'm gonna
 
 Fried chicken donuts is one of the most well liked of recent trending meals in the world. It's appreciated by millions daily. It is simple, it is fast, it tastes yummy. Fried chicken donuts is something which I've loved my whole life. They are fine and they look wonderful.
 
-Ever wondered how you could take fried chicken to the next level? Today, Mythical Chef Josh is making some Donut Fried Chicken AKA Nashville Sweet Chicken. You can also get a Kentucky Fried Chicken &amp; Donuts Sandwich, which is a chicken filet in between two glazed donuts. Which means eating fried chicken atop a fluffy Belgian waffle for breakfast isn&#39;t all that weird to me.
+Ever wondered how you could take fried chicken to the next level? Today, Mythical Chef Josh is making some Donut Fried Chicken AKA Nashville Sweet Chicken. You can also get a Kentucky Fried Chicken & Donuts Sandwich, which is a chicken filet in between two glazed donuts. Which means eating fried chicken atop a fluffy Belgian waffle for breakfast isn&#39;t all that weird to me.
 
 
 To begin with this recipe, we have to first prepare a few components. You can cook fried chicken donuts using 17 ingredients and 9 steps. Here is how you can achieve that.

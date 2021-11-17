@@ -27,12 +27,12 @@ recipeingredient:
 - "1 Pasta Lasasgna      Box"
 - "8 oz Mozzerella Cheese Shredded"
 recipeinstructions:
-- "In the blender or food processor, combine de-seeded roasted green chiles, queso fresco, ricotta cheese, media crema, habanero peppers (de-seeded and chopped) and chicken bouillon until creamy. &amp;nbsp;Add salt, pepper and garlic salt to taste."
+- "In the blender or food processor, combine de-seeded roasted green chiles, queso fresco, ricotta cheese, media crema, habanero peppers (de-seeded and chopped) and chicken bouillon until creamy. &nbsp;Add salt, pepper and garlic salt to taste."
 - "Blend in 2 eggs until combined. Do not over beat. Set mixture aside."
 - "In buttered pan, cook husked corn and chopped squash on medium heat for about 12 minutes. Add pressed garlic when squash is soft. Turn off and set aside to cool."
 - "Pre-boil pasta until al-dente. Drain pasta and cool with water for handling. Quickly arrange lasagna noodles on a flat plate. The half cooked pasta will harden if you don&#39;t move fast!"
-- "Combine creamy green chili mixture with cooked squash and corn. &amp;nbsp;Alternate layers of pasta and creamy chile-cheese filling in 2 small, non-stick spray coated lasagna pans."
-- "Cook for 30 min at 35&#34; degrees and an additional 10 min at 250 degrees. I used 2 pans, a 13x9 inch pan and an 8x8 inch pan."
+- "Combine creamy green chili mixture with cooked squash and corn. &nbsp;Alternate layers of pasta and creamy chile-cheese filling in 2 small, non-stick spray coated lasagna pans."
+- "Cook for 30 min at 35* degrees and an additional 10 min at 250 degrees. I used 2 pans, a 13x9 inch pan and an 8x8 inch pan."
 - "Top with mozzarella and serve with a side of media crema."
 - "Ready to serve and ENJOY!"
 categories:
@@ -88,12 +88,12 @@ This Mexican Lasagna recipe is great if you&#39;re looking to feed a crowd. This
 
 ##### Instructions to make Mexican Lasagna:
 
-1. In the blender or food processor, combine de-seeded roasted green chiles, queso fresco, ricotta cheese, media crema, habanero peppers (de-seeded and chopped) and chicken bouillon until creamy. &amp;nbsp;Add salt, pepper and garlic salt to taste.
+1. In the blender or food processor, combine de-seeded roasted green chiles, queso fresco, ricotta cheese, media crema, habanero peppers (de-seeded and chopped) and chicken bouillon until creamy. &nbsp;Add salt, pepper and garlic salt to taste.
 1. Blend in 2 eggs until combined. Do not over beat. Set mixture aside.
 1. In buttered pan, cook husked corn and chopped squash on medium heat for about 12 minutes. Add pressed garlic when squash is soft. Turn off and set aside to cool.
 1. Pre-boil pasta until al-dente. Drain pasta and cool with water for handling. Quickly arrange lasagna noodles on a flat plate. The half cooked pasta will harden if you don&#39;t move fast!
-1. Combine creamy green chili mixture with cooked squash and corn. &amp;nbsp;Alternate layers of pasta and creamy chile-cheese filling in 2 small, non-stick spray coated lasagna pans.
-1. Cook for 30 min at 35&#34; degrees and an additional 10 min at 250 degrees. I used 2 pans, a 13x9 inch pan and an 8x8 inch pan.
+1. Combine creamy green chili mixture with cooked squash and corn. &nbsp;Alternate layers of pasta and creamy chile-cheese filling in 2 small, non-stick spray coated lasagna pans.
+1. Cook for 30 min at 35* degrees and an additional 10 min at 250 degrees. I used 2 pans, a 13x9 inch pan and an 8x8 inch pan.
 1. Top with mozzarella and serve with a side of media crema.
 1. Ready to serve and ENJOY!
 

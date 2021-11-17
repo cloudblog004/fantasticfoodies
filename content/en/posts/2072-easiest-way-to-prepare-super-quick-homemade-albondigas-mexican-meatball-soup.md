@@ -36,9 +36,9 @@ recipeingredient:
 - "1 tbsp minced garlic"
 - "1 tbsp oil"
 recipeinstructions:
-- "Start by boiling water with achote paste &amp; set aside.Now make meatballs to desired size adding all ingredients, set aside."
-- "Now add cooking oil, tomatoe, garlic &amp; onion to a large pot, fry till onion gets translucent. gently add in meatballs &amp; boiled achote water cook for 45minutes on medium high, skim any fat while u go."
-- "Chop all veggies &amp; add to meatballs except can veggies, add in chicken bullion,salt &amp; tomatoe sauce, cook another 40minutes. Now add in can veggies and taste for seasonings, &amp; water level. Enjoy with a splach of lime or lemon juice &amp; hot sauce."
+- "Start by boiling water with achote paste & set aside.Now make meatballs to desired size adding all ingredients, set aside."
+- "Now add cooking oil, tomatoe, garlic & onion to a large pot, fry till onion gets translucent. gently add in meatballs & boiled achote water cook for 45minutes on medium high, skim any fat while u go."
+- "Chop all veggies & add to meatballs except can veggies, add in chicken bullion,salt & tomatoe sauce, cook another 40minutes. Now add in can veggies and taste for seasonings, & water level. Enjoy with a splach of lime or lemon juice & hot sauce."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -103,9 +103,9 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 
 ##### Steps to make Albondigas` Mexican Meatball soup:
 
-1. Start by boiling water with achote paste &amp; set aside.Now make meatballs to desired size adding all ingredients, set aside.
-1. Now add cooking oil, tomatoe, garlic &amp; onion to a large pot, fry till onion gets translucent. gently add in meatballs &amp; boiled achote water cook for 45minutes on medium high, skim any fat while u go.
-1. Chop all veggies &amp; add to meatballs except can veggies, add in chicken bullion,salt &amp; tomatoe sauce, cook another 40minutes. Now add in can veggies and taste for seasonings, &amp; water level. Enjoy with a splach of lime or lemon juice &amp; hot sauce.
+1. Start by boiling water with achote paste & set aside.Now make meatballs to desired size adding all ingredients, set aside.
+1. Now add cooking oil, tomatoe, garlic & onion to a large pot, fry till onion gets translucent. gently add in meatballs & boiled achote water cook for 45minutes on medium high, skim any fat while u go.
+1. Chop all veggies & add to meatballs except can veggies, add in chicken bullion,salt & tomatoe sauce, cook another 40minutes. Now add in can veggies and taste for seasonings, & water level. Enjoy with a splach of lime or lemon juice & hot sauce.
 1. Ready to serve and ENJOY!
 
 

@@ -23,7 +23,7 @@ recipeingredient:
 recipeinstructions:
 - "Place salad leaves on plate"
 - "I have a bell peppers, asparagus, carrots, and purple cabbage on top"
-- "Please onion &#34;fries&#34; on top"
+- "Please onion *fries* on top"
 - "Place salad dressing on top"
 - "Enjoy!"
 - "Ready to serve and ENJOY!"
@@ -62,7 +62,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 
 1. Get 1/4 cup red and yellow bell pepper, sliced thin and cooked
 1. Get 1/4 cup asparagus, chopped and cooked
-1. Take 1/4 cup onion &#34;fries&#34;
+1. Take 1/4 cup onion *fries*
 1. Make ready 2 tbsp grated carrots
 1. Prepare 2 tbsp purple cabbage
 1. Take 4 tbsp dressing of your choice
@@ -77,7 +77,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 
 1. Place salad leaves on plate
 1. I have a bell peppers, asparagus, carrots, and purple cabbage on top
-1. Please onion &#34;fries&#34; on top
+1. Please onion *fries* on top
 1. Place salad dressing on top
 1. Enjoy!
 1. Ready to serve and ENJOY!

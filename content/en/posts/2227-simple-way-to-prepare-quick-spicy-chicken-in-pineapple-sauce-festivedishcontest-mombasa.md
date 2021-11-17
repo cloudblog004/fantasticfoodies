@@ -80,7 +80,7 @@ To get started with this particular recipe, we have to prepare a few components.
 1. Prepare 2 tbs oil
 
 
-Crispy coconut chicken tenders come with a tropical pineapple sauce. These crispy coconut chicken tenders come with a tropical pineapple sauce that&#39;ll knock your socks off. I know, because they were a huge hit at my house - even the picky eaters were gobbling this up! Be the first to rate &amp; review! 
+Crispy coconut chicken tenders come with a tropical pineapple sauce. These crispy coconut chicken tenders come with a tropical pineapple sauce that&#39;ll knock your socks off. I know, because they were a huge hit at my house - even the picky eaters were gobbling this up! Be the first to rate & review! 
 
 <!--inarticleads2-->
 
@@ -96,6 +96,6 @@ Crispy coconut chicken tenders come with a tropical pineapple sauce. These crisp
 1. Serve when hot with your favourite starch. ie. Ugali,chapati or rice
 1. Ready to serve and ENJOY!
 
-I know, because they were a huge hit at my house - even the picky eaters were gobbling this up! Be the first to rate &amp; review! Grilled Chicken with Spicy Brazilian Tomato and Coconut Sauce. Chicken in Pineapple Sauce. this link is to an external site that may or may not meet accessibility guidelines. Pininyahang Manok sa Gata (Pineapple Chicken in Coconut Milk). 
+I know, because they were a huge hit at my house - even the picky eaters were gobbling this up! Be the first to rate & review! Grilled Chicken with Spicy Brazilian Tomato and Coconut Sauce. Chicken in Pineapple Sauce. this link is to an external site that may or may not meet accessibility guidelines. Pininyahang Manok sa Gata (Pineapple Chicken in Coconut Milk). 
 
 So that is going to wrap it up for this exceptional food spicy chicken in pineapple sauce #festivedishcontest_mombasa recipe. Thanks so much for your time. I am confident that you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

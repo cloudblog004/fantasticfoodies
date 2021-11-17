@@ -1,6 +1,6 @@
 ---
-description: "How to Prepare Any-night-of-the-week Mike&amp;#39;s Mexican Sick Day Soup"
-title: "How to Prepare Any-night-of-the-week Mike&amp;#39;s Mexican Sick Day Soup"
+description: "How to Prepare Any-night-of-the-week Mike's Mexican Sick Day Soup"
+title: "How to Prepare Any-night-of-the-week Mike's Mexican Sick Day Soup"
 slug: 1895-how-to-prepare-any-night-of-the-week-mike-and-39-s-mexican-sick-day-soup
 date: 2021-11-26T09:12:02.442Z
 image: https://img-global.cpcdn.com/recipes/9f1f0be36c08e0c6/680x482cq70/mikes-mexican-sick-day-soup-recipe-main-photo.jpg
@@ -97,7 +97,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 1. Take 1 Cup Chopped Green Onions
 1. Make ready 1/3 Cup Fine Minced Garlic
 1. Get 1 Can Sweet Corn [drained]
-1. Make ready 1 Can Black Or Dark Red Beans [drained &amp; rinsed]
+1. Make ready 1 Can Black Or Dark Red Beans [drained & rinsed]
 1. Prepare 1 Cup Of Your Favorite Red Salsa
 1. Get 1/2 Cup Shredded Mexican 3 Cheese [+ reserves]
 1. Get 1 Can ROTEL Tomatoes

@@ -82,7 +82,7 @@ To begin with this recipe, we have to prepare a few components. You can cook eas
 1. Take 1 cup chopped purple onion
 1. Get 1/2 cup cilantro
 1. Make ready 2 limes
-1. Prepare 1 &amp; 1/2 cup shredded cheese
+1. Prepare 1 & 1/2 cup shredded cheese
 1. Make ready  Flour or corn tortillas
 1. Take 2 tablespoons olive oil
 1. Prepare 1/3 cup light chili powder

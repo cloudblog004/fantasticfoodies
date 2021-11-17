@@ -71,7 +71,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Prepare 2-3 cup chicken stock
 1. Take 2-3 garlic cloves
 1. Make ready to taste Garlic powder
-1. Get to taste Salt &amp; pepper
+1. Get to taste Salt & pepper
 1. Take  Parmesan cheese
 
 

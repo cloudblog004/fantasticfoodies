@@ -20,11 +20,11 @@ recipeingredient:
 - "2 spoons tomato sauce"
 - "1/4 cup olive oil"
 recipeinstructions:
-- "Put chicken in a bowl and add Portuguese chicken spice &amp; barbeque spice"
-- "Add mayonnaise &amp; tomato sauce in bowl and put chicken aside for 40 minutes"
+- "Put chicken in a bowl and add Portuguese chicken spice & barbeque spice"
+- "Add mayonnaise & tomato sauce in bowl and put chicken aside for 40 minutes"
 - "Rub oven pan with olive oil"
 - "Place marinated chicken on oven pan, preheat at 180 degrees"
-- "Keep chicken in oven grill until it&#39;s well cooked &amp; golden brown"
+- "Keep chicken in oven grill until it&#39;s well cooked & golden brown"
 - "Serve with rice, mashed potatoes and gravy"
 - "Ready to serve and ENJOY!"
 categories:
@@ -74,11 +74,11 @@ Chicken thighs are cheaper, tastier, and much easier to cook than chicken breast
 
 ##### Steps to make Tasty grilled chicken with rice and mashed potatoes:
 
-1. Put chicken in a bowl and add Portuguese chicken spice &amp; barbeque spice
-1. Add mayonnaise &amp; tomato sauce in bowl and put chicken aside for 40 minutes
+1. Put chicken in a bowl and add Portuguese chicken spice & barbeque spice
+1. Add mayonnaise & tomato sauce in bowl and put chicken aside for 40 minutes
 1. Rub oven pan with olive oil
 1. Place marinated chicken on oven pan, preheat at 180 degrees
-1. Keep chicken in oven grill until it&#39;s well cooked &amp; golden brown
+1. Keep chicken in oven grill until it&#39;s well cooked & golden brown
 1. Serve with rice, mashed potatoes and gravy
 1. Ready to serve and ENJOY!
 

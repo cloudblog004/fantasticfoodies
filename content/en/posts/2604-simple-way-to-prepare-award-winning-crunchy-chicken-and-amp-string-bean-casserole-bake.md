@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Prepare Award-winning Crunchy Chicken &amp;amp; String Bean Casserole Bake"
-title: "Simple Way to Prepare Award-winning Crunchy Chicken &amp;amp; String Bean Casserole Bake"
+description: "Simple Way to Prepare Award-winning Crunchy Chicken & String Bean Casserole Bake"
+title: "Simple Way to Prepare Award-winning Crunchy Chicken & String Bean Casserole Bake"
 slug: 2604-simple-way-to-prepare-award-winning-crunchy-chicken-and-amp-string-bean-casserole-bake
 date: 2021-11-22T20:29:14.192Z
 image: https://img-global.cpcdn.com/recipes/70a8381629216b03/680x482cq70/crunchy-chicken-string-bean-casserole-bake-recipe-main-photo.jpg
@@ -50,20 +50,20 @@ recipecategory: Lunch
 ---
 
 
-![Crunchy Chicken &amp; String Bean Casserole Bake](https://img-global.cpcdn.com/recipes/70a8381629216b03/680x482cq70/crunchy-chicken-string-bean-casserole-bake-recipe-main-photo.jpg)
+![Crunchy Chicken & String Bean Casserole Bake](https://img-global.cpcdn.com/recipes/70a8381629216b03/680x482cq70/crunchy-chicken-string-bean-casserole-bake-recipe-main-photo.jpg)
 
-Hey everyone, it's John, welcome to our recipe page. Today, we're going to prepare a distinctive dish, crunchy chicken &amp; string bean casserole bake. One of my favorites. For mine, I will make it a bit tasty. This is gonna smell and look delicious.
-
-
-
-Crunchy Chicken &amp; String Bean Casserole Bake is one of the most popular of current trending foods in the world. It is simple, it's fast, it tastes yummy. It is enjoyed by millions daily. Crunchy Chicken &amp; String Bean Casserole Bake is something which I have loved my whole life. They are nice and they look fantastic.
+Hey everyone, it's John, welcome to our recipe page. Today, we're going to prepare a distinctive dish, crunchy chicken & string bean casserole bake. One of my favorites. For mine, I will make it a bit tasty. This is gonna smell and look delicious.
 
 
-To get started with this recipe, we must prepare a few ingredients. You can cook crunchy chicken &amp; string bean casserole bake using 12 ingredients and 5 steps. Here is how you cook it.
+
+Crunchy Chicken & String Bean Casserole Bake is one of the most popular of current trending foods in the world. It is simple, it's fast, it tastes yummy. It is enjoyed by millions daily. Crunchy Chicken & String Bean Casserole Bake is something which I have loved my whole life. They are nice and they look fantastic.
+
+
+To get started with this recipe, we must prepare a few ingredients. You can cook crunchy chicken & string bean casserole bake using 12 ingredients and 5 steps. Here is how you cook it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Crunchy Chicken &amp; String Bean Casserole Bake:
+##### The ingredients needed to make Crunchy Chicken & String Bean Casserole Bake:
 
 1. Make ready 1-2 pounds chicken
 1. Take 1 can water chestnuts
@@ -83,7 +83,7 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 
 <!--inarticleads2-->
 
-##### Instructions to make Crunchy Chicken &amp; String Bean Casserole Bake:
+##### Instructions to make Crunchy Chicken & String Bean Casserole Bake:
 
 1. Preheat oven to 425°. Boil chicken in a large pot until theres no more pink. If using chicken on the bone do not over boil or the meat will fall off, and all over!
 1. Meanwhile, drain green and wax beans and place in a casserole/baking dish. Drain water chestnuts and slice or chop as many as desired for extra crunch! Chop and add onion.
@@ -94,4 +94,4 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 
 
 
-So that is going to wrap it up for this special food crunchy chicken &amp; string bean casserole bake recipe. Thanks so much for your time. I am confident you can make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
+So that is going to wrap it up for this special food crunchy chicken & string bean casserole bake recipe. Thanks so much for your time. I am confident you can make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

@@ -30,13 +30,13 @@ recipeingredient:
 recipeinstructions:
 - "Marinate the chicken for a couple minute while preparing the rice."
 - "Rinse the rice until the water clear then drain it."
-- "Push the &#34;COOK&#34; button of rice cooker."
+- "Push the *COOK* button of rice cooker."
 - "Heat sesame oil into rice cooker bowl."
 - "Add minced garlic and ginger."
 - "Saute until fragrance."
 - "Add the rice, water, soy sauce, oyster sauce and pepper. Stir it well."
 - "Arrange the chicken and sausage on top of the rice."
-- "Close the lid of the rice cooker. Make sure the button &#34;COOK&#34; is on."
+- "Close the lid of the rice cooker. Make sure the button *COOK* is on."
 - "After the rice is cooked, sprinkle with green onion."
 - "Ready to serve and ENJOY!"
 categories:
@@ -96,13 +96,13 @@ To begin with this recipe, we must prepare a few ingredients. You can have chick
 
 1. Marinate the chicken for a couple minute while preparing the rice.
 1. Rinse the rice until the water clear then drain it.
-1. Push the &#34;COOK&#34; button of rice cooker.
+1. Push the *COOK* button of rice cooker.
 1. Heat sesame oil into rice cooker bowl.
 1. Add minced garlic and ginger.
 1. Saute until fragrance.
 1. Add the rice, water, soy sauce, oyster sauce and pepper. Stir it well.
 1. Arrange the chicken and sausage on top of the rice.
-1. Close the lid of the rice cooker. Make sure the button &#34;COOK&#34; is on.
+1. Close the lid of the rice cooker. Make sure the button *COOK* is on.
 1. After the rice is cooked, sprinkle with green onion.
 1. Ready to serve and ENJOY!
 

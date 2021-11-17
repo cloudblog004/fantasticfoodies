@@ -54,7 +54,7 @@ recipecategory: Dessert
 
 Hello everybody, it's Jim, welcome to my recipe site. Today, I'm gonna show you how to prepare a special dish, chicken karhaee. It is one of my favorites food recipes. This time, I am going to make it a little bit unique. This is gonna smell and look delicious.
 
-Please subscribe my channel for encouraging me. Best wishes for all of you. chicken karhaee - Get some unique flavor to your daily cuisine. Prepare the chicken karhaee recipe online from this dedicated page. Kadai chicken is a delicious, spicy &amp; flavorful dish made with chicken, onions, tomatoes, ginger, garlic &amp; fresh ground spices known as kadai masala.
+Please subscribe my channel for encouraging me. Best wishes for all of you. chicken karhaee - Get some unique flavor to your daily cuisine. Prepare the chicken karhaee recipe online from this dedicated page. Kadai chicken is a delicious, spicy & flavorful dish made with chicken, onions, tomatoes, ginger, garlic & fresh ground spices known as kadai masala.
 
 chicken karhaee is one of the most well liked of recent trending meals in the world. It is simple, it's quick, it tastes yummy. It's enjoyed by millions daily. chicken karhaee is something which I've loved my entire life. They're nice and they look wonderful.
 

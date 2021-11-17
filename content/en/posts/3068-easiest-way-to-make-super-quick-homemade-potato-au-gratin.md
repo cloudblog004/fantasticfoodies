@@ -56,7 +56,7 @@ recipecategory: Lunch
 
 Hello everybody, it's Louise, welcome to our recipe page. Today, we're going to make a distinctive dish, potato au gratin. One of my favorites. This time, I'm gonna make it a bit unique. This will be really delicious.
 
-TESTED &amp; PERFECTED RECIPE - Potatoes Au Gratin is the ultimate comfort food with sliced potatoes, heavy cream &amp; grated cheese. Potatoes au Gratin - forget scalloped potatoes, THIS is the creme de la creme of all potato recipes!! Also known as Dauphinoise Potatoes, this French classic is made with layers upon layers of finely. I will not make Au Gratin Potatoes from a box mix again!
+TESTED & PERFECTED RECIPE - Potatoes Au Gratin is the ultimate comfort food with sliced potatoes, heavy cream & grated cheese. Potatoes au Gratin - forget scalloped potatoes, THIS is the creme de la creme of all potato recipes!! Also known as Dauphinoise Potatoes, this French classic is made with layers upon layers of finely. I will not make Au Gratin Potatoes from a box mix again!
 
 Potato au gratin is one of the most well liked of recent trending foods on earth. It is easy, it is fast, it tastes delicious. It's appreciated by millions every day. Potato au gratin is something which I have loved my entire life. They're nice and they look fantastic.
 

@@ -78,7 +78,7 @@ To begin with this recipe, we have to first prepare a few components. You can co
 1. Take 1 tsp dried oregano
 1. Make ready 1 tsp paprika
 1. Prepare 1 tsp ground cumin
-1. Get 1 dash Salt &amp; Pepper
+1. Get 1 dash Salt & Pepper
 1. Make ready 2 cup Chicken Broth
 1. Get 4 oz can of fire roasted green chiles
 1. Make ready 4 medium tomatoes, diced

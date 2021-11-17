@@ -85,7 +85,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 1. Get 4 cup boiling water
 
 
-Egyptian mashi cosa (stuffed squash) with Autumn, Poultry, Spring, Summer, Winter Egyptian Roasted Chicken &amp; Potatoes. One of the simplest and tastiest ways to enjoy chicken and without. Broiled white fish over rice and vegetables. Cream of potato and mushroom soup. 
+Egyptian mashi cosa (stuffed squash) with Autumn, Poultry, Spring, Summer, Winter Egyptian Roasted Chicken & Potatoes. One of the simplest and tastiest ways to enjoy chicken and without. Broiled white fish over rice and vegetables. Cream of potato and mushroom soup. 
 
 <!--inarticleads2-->
 

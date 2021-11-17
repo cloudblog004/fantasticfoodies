@@ -55,7 +55,7 @@ Hello everybody, it is Jim, welcome to my recipe page. Today, we're going to pre
 
 California pizza kitchen BBQ chicken pizza :-) is one of the most popular of recent trending meals in the world. It's easy, it is quick, it tastes delicious. It is enjoyed by millions daily. They're nice and they look wonderful. California pizza kitchen BBQ chicken pizza :-) is something which I've loved my entire life.
 
-Featuring hand-tossed pizzas, a seasonally-inspired menu, hand-shaken cocktails, premium wines &amp; craft beers and more! Cauliflower bbq chicken pizza, meaty sausage/pepperoni, wedge salad all good. My wife and I decided to go to California Pizza Kitchen for our anniversary dinner and we had a wonderful time! Our waitress, Tensha, was amazing and went above and beyond to make it extra special for us!
+Featuring hand-tossed pizzas, a seasonally-inspired menu, hand-shaken cocktails, premium wines & craft beers and more! Cauliflower bbq chicken pizza, meaty sausage/pepperoni, wedge salad all good. My wife and I decided to go to California Pizza Kitchen for our anniversary dinner and we had a wonderful time! Our waitress, Tensha, was amazing and went above and beyond to make it extra special for us!
 
 
 To begin with this recipe, we have to first prepare a few components. You can cook california pizza kitchen bbq chicken pizza :-) using 6 ingredients and 10 steps. Here is how you cook that.

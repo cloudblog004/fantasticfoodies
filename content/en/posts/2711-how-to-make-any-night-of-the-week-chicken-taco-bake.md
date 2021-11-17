@@ -28,10 +28,10 @@ recipeingredient:
 - " Sour cream"
 - "2 roma tomatos diced"
 recipeinstructions:
-- "Boil chicken &amp; shred."
-- "Sautée onion in butter. Then add shredded chicken, seasonings, nacho cheese, chilis &amp; tomato juice. Cook for 7 mins."
-- "Now place 1/2 your chicken mix in a oven safe dish, layer on top 3 flour tortillas ripped up into medium size pieces. Then layer onto the tortillas a 1/2 cup cheese. Repeat the 2nd layer with the rest of the chicken, then tortillas &amp; the cheese again. *DO NOT START YOUR LAYERS WITH THE TORTILLAS ON THE BOTTOM BECAUSE THEY WILL STICK*"
-- "Bake at 350° until cheese melts. When finished garnish with diced roma tomatoes, olives &amp; sour cream...ENJOY! 😉"
+- "Boil chicken & shred."
+- "Sautée onion in butter. Then add shredded chicken, seasonings, nacho cheese, chilis & tomato juice. Cook for 7 mins."
+- "Now place 1/2 your chicken mix in a oven safe dish, layer on top 3 flour tortillas ripped up into medium size pieces. Then layer onto the tortillas a 1/2 cup cheese. Repeat the 2nd layer with the rest of the chicken, then tortillas & the cheese again. *DO NOT START YOUR LAYERS WITH THE TORTILLAS ON THE BOTTOM BECAUSE THEY WILL STICK*"
+- "Bake at 350° until cheese melts. When finished garnish with diced roma tomatoes, olives & sour cream...ENJOY! 😉"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -66,7 +66,7 @@ To get started with this recipe, we have to first prepare a few ingredients. You
 
 ##### The ingredients needed to make Chicken Taco Bake:
 
-1. Take 3 chicken breasts (boiled &amp; shredded)
+1. Take 3 chicken breasts (boiled & shredded)
 1. Make ready 1 can nacho cheese
 1. Take 2 cups tomato juice
 1. Make ready 1 tsp chili powder
@@ -88,10 +88,10 @@ To get started with this recipe, we have to first prepare a few ingredients. You
 
 ##### Steps to make Chicken Taco Bake:
 
-1. Boil chicken &amp; shred.
-1. Sautée onion in butter. Then add shredded chicken, seasonings, nacho cheese, chilis &amp; tomato juice. Cook for 7 mins.
-1. Now place 1/2 your chicken mix in a oven safe dish, layer on top 3 flour tortillas ripped up into medium size pieces. Then layer onto the tortillas a 1/2 cup cheese. Repeat the 2nd layer with the rest of the chicken, then tortillas &amp; the cheese again. *DO NOT START YOUR LAYERS WITH THE TORTILLAS ON THE BOTTOM BECAUSE THEY WILL STICK*
-1. Bake at 350° until cheese melts. When finished garnish with diced roma tomatoes, olives &amp; sour cream...ENJOY! 😉
+1. Boil chicken & shred.
+1. Sautée onion in butter. Then add shredded chicken, seasonings, nacho cheese, chilis & tomato juice. Cook for 7 mins.
+1. Now place 1/2 your chicken mix in a oven safe dish, layer on top 3 flour tortillas ripped up into medium size pieces. Then layer onto the tortillas a 1/2 cup cheese. Repeat the 2nd layer with the rest of the chicken, then tortillas & the cheese again. *DO NOT START YOUR LAYERS WITH THE TORTILLAS ON THE BOTTOM BECAUSE THEY WILL STICK*
+1. Bake at 350° until cheese melts. When finished garnish with diced roma tomatoes, olives & sour cream...ENJOY! 😉
 1. Ready to serve and ENJOY!
 
 

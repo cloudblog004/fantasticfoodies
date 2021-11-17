@@ -68,7 +68,7 @@ To begin with this recipe, we have to first prepare a few components. You can co
 1. Take To taste salt
 
 
-To make this tasty meal you&#39;ll need just a few simple, easy to find ingredients Ground Beef and Cabbage Step By Step. Chop the cabbage, peel &amp; mince the garlic and chop the ginger. Cook ground beef in a nonstick pan, breaking it apart at medium-high heat. The closer to just simply cabbage and ground beef the better. 
+To make this tasty meal you&#39;ll need just a few simple, easy to find ingredients Ground Beef and Cabbage Step By Step. Chop the cabbage, peel & mince the garlic and chop the ginger. Cook ground beef in a nonstick pan, breaking it apart at medium-high heat. The closer to just simply cabbage and ground beef the better. 
 
 <!--inarticleads2-->
 

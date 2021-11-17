@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Perfect Kiyenyeji chicken soup#4week&amp;#39;s challenge#favouriteeasterdish"
-title: "Recipe of Perfect Kiyenyeji chicken soup#4week&amp;#39;s challenge#favouriteeasterdish"
+description: "Recipe of Perfect Kiyenyeji chicken soup#4week's challenge#favouriteeasterdish"
+title: "Recipe of Perfect Kiyenyeji chicken soup#4week's challenge#favouriteeasterdish"
 slug: 2217-recipe-of-perfect-kiyenyeji-chicken-soup4week-and-39-s-challengefavouriteeasterdish
 date: 2022-01-04T07:49:16.090Z
 image: https://img-global.cpcdn.com/recipes/390a812a0afe0225/680x482cq70/kiyenyeji-chicken-soup4weeks-challengefavouriteeasterdish-recipe-main-photo.jpg

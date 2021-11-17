@@ -91,7 +91,7 @@ To get started with this recipe, we have to first prepare a few ingredients. You
 1. Take  Water to steam the eggplants and carrots (steaming is used to eliminate using a lot of oil in the recipe and to reduce time for sautéing eggplants and carrots in oil)
 
 
-Alternatively, the eggplant could be peeled, and this recipe would make a wonderful casserole supper dish! Remove eggplant and drain on paper towels. If you don&#39;t think Cashew Eggplant Chicken Stir Fry recipe has sesame oil, ginger, garlic &amp; fish sauce. This chicken stir-fry is a little spicy and a little sweet. 
+Alternatively, the eggplant could be peeled, and this recipe would make a wonderful casserole supper dish! Remove eggplant and drain on paper towels. If you don&#39;t think Cashew Eggplant Chicken Stir Fry recipe has sesame oil, ginger, garlic & fish sauce. This chicken stir-fry is a little spicy and a little sweet. 
 
 <!--inarticleads2-->
 
@@ -106,6 +106,6 @@ Alternatively, the eggplant could be peeled, and this recipe would make a wonder
 1. Slice green onions to garnish and serve with white steamed rice. Bon appetit!👌
 1. Ready to serve and ENJOY!
 
-If you don&#39;t think Cashew Eggplant Chicken Stir Fry recipe has sesame oil, ginger, garlic &amp; fish sauce. This chicken stir-fry is a little spicy and a little sweet. Fresh ginger and garlic add a little kick, which is balanced with brown sugar. Though the recipe calls for bell peppers, water chestnuts, and broccoli, try it with any vegetable you like! The eggplant is grilled until crispy and smoky, and then cooked in a rich savory garlic sauce. 
+If you don&#39;t think Cashew Eggplant Chicken Stir Fry recipe has sesame oil, ginger, garlic & fish sauce. This chicken stir-fry is a little spicy and a little sweet. Fresh ginger and garlic add a little kick, which is balanced with brown sugar. Though the recipe calls for bell peppers, water chestnuts, and broccoli, try it with any vegetable you like! The eggplant is grilled until crispy and smoky, and then cooked in a rich savory garlic sauce. 
 
 So that is going to wrap it up for this special food stir-fried eggplant with chicken (a twist on p.f. chang’s stir-fried spicy eggplant recipe) recipe. Thank you very much for reading. I'm sure that you can make this at home. There is gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

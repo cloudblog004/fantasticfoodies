@@ -45,7 +45,7 @@ recipecategory: Dessert
 
 Hello everybody, I hope you are having an amazing day today. Today, we're going to prepare a distinctive dish, simple chicken tortilla wrap. It is one of my favorites food recipes. This time, I'm gonna make it a bit unique. This will be really delicious.
 
-Simple &amp; Healthy Chicken Tortilla Wrap Recipe By Food. This search takes into account your taste preferences. See recipes for Mediterranean Grilled Chicken on a Tomato-Basil Tortilla Wrap too. A flour tortilla is filled with sweet, spicy chicken simmered in salsa, and rolled with a cucumber, honey, and pepper mayonnaise.
+Simple & Healthy Chicken Tortilla Wrap Recipe By Food. This search takes into account your taste preferences. See recipes for Mediterranean Grilled Chicken on a Tomato-Basil Tortilla Wrap too. A flour tortilla is filled with sweet, spicy chicken simmered in salsa, and rolled with a cucumber, honey, and pepper mayonnaise.
 
 Simple chicken tortilla wrap is one of the most popular of current trending foods on earth. It's enjoyed by millions every day. It's easy, it is quick, it tastes delicious. They are nice and they look fantastic. Simple chicken tortilla wrap is something that I've loved my entire life.
 

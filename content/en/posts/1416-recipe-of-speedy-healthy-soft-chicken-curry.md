@@ -33,7 +33,7 @@ recipeinstructions:
 - "Once the vegetables have cooked, add the roux and tomato ketchup and boil slightly. And it&#39;s complete. Once the roux has dissolved and the flavor set in, it&#39;s good."
 - "The amount of water is an estimate. If you find it&#39;s reduced while boiling, add more."
 - "100g of yogurt is about 5 tablespoons. If you like spicy curry, use 1 tablespoon of curry powder. Lately, I&#39;ve been making it with 1 tablespoon."
-- "I recommend &#34;tink -san&#39;s&#34; caramelized onion recipe.."
+- "I recommend *tink -san&#39;s* caramelized onion recipe.."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -95,7 +95,7 @@ To begin with this recipe, we must prepare a few ingredients. You can cook healt
 1. Once the vegetables have cooked, add the roux and tomato ketchup and boil slightly. And it&#39;s complete. Once the roux has dissolved and the flavor set in, it&#39;s good.
 1. The amount of water is an estimate. If you find it&#39;s reduced while boiling, add more.
 1. 100g of yogurt is about 5 tablespoons. If you like spicy curry, use 1 tablespoon of curry powder. Lately, I&#39;ve been making it with 1 tablespoon.
-1. I recommend &#34;tink -san&#39;s&#34; caramelized onion recipe..
+1. I recommend *tink -san&#39;s* caramelized onion recipe..
 1. Ready to serve and ENJOY!
 
 

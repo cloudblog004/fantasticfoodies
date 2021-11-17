@@ -29,7 +29,7 @@ recipeinstructions:
 - "Boil 4 glass water with 1 tsp salt.jab pani boil hony lagy tu maccroni add kar ky tender hony tak cook krain.soft hony par water drain krlain.(maccroni ka boil water 1/2 glass save rakhain). Drain ky baad maccroni mein 1 tsp oil mix krlain."
 - "Charsi karhai ki leftover chicken ky pieces ko shred krlain."
 - "Frypan main oil garamkrlain. Shred chicken aur ginger garlic paste add kar ky 2 min fry krlain. Prepared tomato sauce nikal lain."
-- "Add tomato sauce in chicken with salt &amp; paprika powder.fry to mix well."
+- "Add tomato sauce in chicken with salt & paprika powder.fry to mix well."
 - "Add boiled maccroni in chicken, mix well to blend alltogether.add 2-3 tbsp maccroni water as well.it adds flavour. Add finely chop capsicum and simmer for 5 min at low-medium flame"
 - "Garnish with chop green part of spring onion.serve hot.enjoy delicious Charsi Maccroni with cookpad."
 - "Ready to serve and ENJOY!"
@@ -88,7 +88,7 @@ To begin with this recipe, we have to first prepare a few components. You can ha
 1. Boil 4 glass water with 1 tsp salt.jab pani boil hony lagy tu maccroni add kar ky tender hony tak cook krain.soft hony par water drain krlain.(maccroni ka boil water 1/2 glass save rakhain). Drain ky baad maccroni mein 1 tsp oil mix krlain.
 1. Charsi karhai ki leftover chicken ky pieces ko shred krlain.
 1. Frypan main oil garamkrlain. Shred chicken aur ginger garlic paste add kar ky 2 min fry krlain. Prepared tomato sauce nikal lain.
-1. Add tomato sauce in chicken with salt &amp; paprika powder.fry to mix well.
+1. Add tomato sauce in chicken with salt & paprika powder.fry to mix well.
 1. Add boiled maccroni in chicken, mix well to blend alltogether.add 2-3 tbsp maccroni water as well.it adds flavour. Add finely chop capsicum and simmer for 5 min at low-medium flame
 1. Garnish with chop green part of spring onion.serve hot.enjoy delicious Charsi Maccroni with cookpad.
 1. Ready to serve and ENJOY!

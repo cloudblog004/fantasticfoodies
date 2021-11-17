@@ -59,7 +59,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 
 1. Make ready 5 large chicken breasts
 1. Make ready  Your favorite BBQ sauce
-1. Prepare Pinch salt &amp; pepper
+1. Prepare Pinch salt & pepper
 1. Make ready Dash oregano
 1. Get Dash granulated garlic
 

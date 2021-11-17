@@ -59,7 +59,7 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 ##### The ingredients needed to make Bombass Crockpot Chicken:
 
 1. Take  O.5 oz grill mates montreal steak seasoning
-1. Prepare 1 pkg grill mates tomato, garlic &amp; basil marinade
+1. Prepare 1 pkg grill mates tomato, garlic & basil marinade
 1. Get 1 pkg grill mates white wine and herb
 1. Prepare 1 whole chicken
 1. Prepare to taste Bbq sauce, as needed,

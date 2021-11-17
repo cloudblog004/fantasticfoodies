@@ -20,9 +20,9 @@ recipeingredient:
 - "1 can chopped green chilies"
 - "1 package taco boats"
 recipeinstructions:
-- "Preheat oven to 350 degrees. Layer frozen peppers &amp; onions, chopped chilies, &amp; chicken in a greased pan. Sprinkle packets of fajita &amp; taco seasoning. Cover &amp; bake for 20 minutes."
-- "Remove from oven. Uncovrr, mix around &amp; bake for 20-25 minutes until chicken is thoroughly cooked."
-- "Remove from oven &amp; add to a taco boat w/ any of your favorite toppings."
+- "Preheat oven to 350 degrees. Layer frozen peppers & onions, chopped chilies, & chicken in a greased pan. Sprinkle packets of fajita & taco seasoning. Cover & bake for 20 minutes."
+- "Remove from oven. Uncovrr, mix around & bake for 20-25 minutes until chicken is thoroughly cooked."
+- "Remove from oven & add to a taco boat w/ any of your favorite toppings."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -57,7 +57,7 @@ To begin with this recipe, we must prepare a few components. You can have easy o
 
 ##### The ingredients needed to make Easy Oven Baked Chicken Fajitas:
 
-1. Make ready 1 bag frozen pepper &amp; onion strips
+1. Make ready 1 bag frozen pepper & onion strips
 1. Get 1 package fajita seasoning
 1. Prepare 1 package taco seasoning
 1. Make ready 1 package raw chicken tenders (plain)
@@ -71,9 +71,9 @@ To begin with this recipe, we must prepare a few components. You can have easy o
 
 ##### Instructions to make Easy Oven Baked Chicken Fajitas:
 
-1. Preheat oven to 350 degrees. Layer frozen peppers &amp; onions, chopped chilies, &amp; chicken in a greased pan. Sprinkle packets of fajita &amp; taco seasoning. Cover &amp; bake for 20 minutes.
-1. Remove from oven. Uncovrr, mix around &amp; bake for 20-25 minutes until chicken is thoroughly cooked.
-1. Remove from oven &amp; add to a taco boat w/ any of your favorite toppings.
+1. Preheat oven to 350 degrees. Layer frozen peppers & onions, chopped chilies, & chicken in a greased pan. Sprinkle packets of fajita & taco seasoning. Cover & bake for 20 minutes.
+1. Remove from oven. Uncovrr, mix around & bake for 20-25 minutes until chicken is thoroughly cooked.
+1. Remove from oven & add to a taco boat w/ any of your favorite toppings.
 1. Ready to serve and ENJOY!
 
 

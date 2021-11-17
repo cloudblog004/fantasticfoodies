@@ -64,7 +64,7 @@ To begin with this recipe, we must prepare a few ingredients. You can have baked
 
 ##### The ingredients needed to make Baked Chicken Tacos:
 
-1. Get 1 pkg. Stand &amp; Stuff Taco Shells (10 count)
+1. Get 1 pkg. Stand & Stuff Taco Shells (10 count)
 1. Make ready 2 large boneless skinless chicken breasts
 1. Prepare  taco seasoning (cumin, chili powder, garlic powder, pepper etc)
 1. Make ready 1 can Rotel, drained

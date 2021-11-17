@@ -25,9 +25,9 @@ recipeingredient:
 - "Pinch Paprika powder"
 - " Few sprigs of Dil soya"
 recipeinstructions:
-- "Melt butter in pan. Add finely chop garlic &amp; onion. Saute in butter till soft.add flour &amp; stir continuly to avoid lumps.add milk &amp; mix well.add salt &amp; black pepper. A thick white sauce has formed."
-- "Add cooked shreded chicken in pan. Mix well in sauce. Add chicken stock &amp; mix well. Bring it to boil, reduce heat &amp; let it simmer over low heat till soup thickens.add paprika powder.taste it &amp; adjust seasoning. Top with soya sprigs before serving.serve hot &amp; enjoy with Cookpad."
-- "Note: if soup is not as thick as required, then mix 1-2 Tbsp cornflour in water &amp; add to soup."
+- "Melt butter in pan. Add finely chop garlic & onion. Saute in butter till soft.add flour & stir continuly to avoid lumps.add milk & mix well.add salt & black pepper. A thick white sauce has formed."
+- "Add cooked shreded chicken in pan. Mix well in sauce. Add chicken stock & mix well. Bring it to boil, reduce heat & let it simmer over low heat till soup thickens.add paprika powder.taste it & adjust seasoning. Top with soya sprigs before serving.serve hot & enjoy with Cookpad."
+- "Note: if soup is not as thick as required, then mix 1-2 Tbsp cornflour in water & add to soup."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -81,9 +81,9 @@ To get started with this recipe, we have to first prepare a few components. You 
 
 ##### Instructions to make Cream of Chicken Soup:
 
-1. Melt butter in pan. Add finely chop garlic &amp; onion. Saute in butter till soft.add flour &amp; stir continuly to avoid lumps.add milk &amp; mix well.add salt &amp; black pepper. A thick white sauce has formed.
-1. Add cooked shreded chicken in pan. Mix well in sauce. Add chicken stock &amp; mix well. Bring it to boil, reduce heat &amp; let it simmer over low heat till soup thickens.add paprika powder.taste it &amp; adjust seasoning. Top with soya sprigs before serving.serve hot &amp; enjoy with Cookpad.
-1. Note: if soup is not as thick as required, then mix 1-2 Tbsp cornflour in water &amp; add to soup.
+1. Melt butter in pan. Add finely chop garlic & onion. Saute in butter till soft.add flour & stir continuly to avoid lumps.add milk & mix well.add salt & black pepper. A thick white sauce has formed.
+1. Add cooked shreded chicken in pan. Mix well in sauce. Add chicken stock & mix well. Bring it to boil, reduce heat & let it simmer over low heat till soup thickens.add paprika powder.taste it & adjust seasoning. Top with soya sprigs before serving.serve hot & enjoy with Cookpad.
+1. Note: if soup is not as thick as required, then mix 1-2 Tbsp cornflour in water & add to soup.
 1. Ready to serve and ENJOY!
 
 

@@ -64,9 +64,9 @@ To begin with this recipe, we must first prepare a few components. You can have 
 1. Take 4 chicken breasts
 1. Take  Chinese style Stirfry blend
 1. Get  Orange sauce
-1. Make ready 1 &amp; 1/2 cup brown rice
+1. Make ready 1 & 1/2 cup brown rice
 1. Prepare 2 cups flour
-1. Get to taste Salt &amp; Pepper
+1. Get to taste Salt & Pepper
 1. Take 2 Tablespoons butter
 
 
@@ -84,6 +84,6 @@ This chicken and veggie stir-fry satisfies even the fiercest craving for takeout
 1. Mix chicken and stir fry mix then serve over or next to rice.
 1. Ready to serve and ENJOY!
 
-Chicken-Orange Stir-Fry. this link is to an external site that may or may not meet accessibility guidelines. Better-than-takeout healthy orange chicken stir fry with flavorful coconut cauliflower rice. This easy one pan meal is packed with veggies, protein, and an incredible sweet &amp; tangy orange sauce. Perfect for meal prep and the best leftovers! Slowly add a few tablespoons of sauce while stirring the vegetables and chicken. 
+Chicken-Orange Stir-Fry. this link is to an external site that may or may not meet accessibility guidelines. Better-than-takeout healthy orange chicken stir fry with flavorful coconut cauliflower rice. This easy one pan meal is packed with veggies, protein, and an incredible sweet & tangy orange sauce. Perfect for meal prep and the best leftovers! Slowly add a few tablespoons of sauce while stirring the vegetables and chicken. 
 
 So that's going to wrap this up for this exceptional food easy orange chicken stirfry recipe. Thanks so much for reading. I am confident you can make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

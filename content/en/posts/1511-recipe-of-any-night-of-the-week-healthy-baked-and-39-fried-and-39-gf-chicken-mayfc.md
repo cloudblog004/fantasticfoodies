@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Any-night-of-the-week Healthy Baked &amp;#39;fried&amp;#39; GF chicken MayFC"
-title: "Recipe of Any-night-of-the-week Healthy Baked &amp;#39;fried&amp;#39; GF chicken MayFC"
+description: "Recipe of Any-night-of-the-week Healthy Baked 'fried' GF chicken MayFC"
+title: "Recipe of Any-night-of-the-week Healthy Baked 'fried' GF chicken MayFC"
 slug: 1511-recipe-of-any-night-of-the-week-healthy-baked-and-39-fried-and-39-gf-chicken-mayfc
 date: 2022-05-11T02:12:27.146Z
 image: https://img-global.cpcdn.com/recipes/75a2a3e49641ac7c/680x482cq70/healthy-baked-fried-gf-chicken-mayfc-recipe-main-photo.jpg

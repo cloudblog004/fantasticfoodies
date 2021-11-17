@@ -22,9 +22,9 @@ recipeingredient:
 - "1 can corn"
 - "6 cup chicken broth"
 recipeinstructions:
-- "bake chicken on 400 in small amt of chicken broth &amp; water"
-- "in pot add broth 1 cup of water, chopped onion &amp; celery to cook for 20 min"
-- "add desired amt of chili &amp; cayenne pepper and add fresh spinache cook another 20 min"
+- "bake chicken on 400 in small amt of chicken broth & water"
+- "in pot add broth 1 cup of water, chopped onion & celery to cook for 20 min"
+- "add desired amt of chili & cayenne pepper and add fresh spinache cook another 20 min"
 - "chicken should cook 1.5 hours or until done"
 - "cut chicken off bone and shred and add to soup. add canned vegetables. cook until celery and onions ar soft and spinach is completely cooked"
 - "Ready to serve and ENJOY!"
@@ -65,7 +65,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 1. Prepare 1 can mixed vegies
 1. Make ready 1 bag fresh spinache
 1. Make ready 2 slice celery
-1. Get 1 chili pepper &amp; ceyenne pepper
+1. Get 1 chili pepper & ceyenne pepper
 1. Make ready 1/2 cup white onion
 1. Get 1 can corn
 1. Prepare 6 cup chicken broth
@@ -77,9 +77,9 @@ I have made this Carrabba&#39;s chicken. Although this recipe has a long ingredi
 
 ##### Steps to make spicy chicken soup:
 
-1. bake chicken on 400 in small amt of chicken broth &amp; water
-1. in pot add broth 1 cup of water, chopped onion &amp; celery to cook for 20 min
-1. add desired amt of chili &amp; cayenne pepper and add fresh spinache cook another 20 min
+1. bake chicken on 400 in small amt of chicken broth & water
+1. in pot add broth 1 cup of water, chopped onion & celery to cook for 20 min
+1. add desired amt of chili & cayenne pepper and add fresh spinache cook another 20 min
 1. chicken should cook 1.5 hours or until done
 1. cut chicken off bone and shred and add to soup. add canned vegetables. cook until celery and onions ar soft and spinach is completely cooked
 1. Ready to serve and ENJOY!

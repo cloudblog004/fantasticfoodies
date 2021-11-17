@@ -58,7 +58,7 @@ recipecategory: Dessert
 
 Hello everybody, it is Louise, welcome to our recipe page. Today, I will show you a way to make a distinctive dish, chicken noodle soup. One of my favorites. For mine, I am going to make it a bit unique. This will be really delicious.
 
-Becky G)&#39; MV. &#34;Chicken Noodle Soup&#34; is a song by South Korean rapper J-Hope of boy band BTS featuring Mexican-American singer Becky G. The song samples American DJ Webstar and rapper Young B&#39;s song &#34;Chicken Noodle Soup&#34; featuring. Hope - Chicken Noodle Soup (feat. Becky G) [КИРИЛЛИЗАЦИЯ/ПЕРЕВОД НА РУССКИЙ] — BTS J.
+Becky G)&#39; MV. *Chicken Noodle Soup* is a song by South Korean rapper J-Hope of boy band BTS featuring Mexican-American singer Becky G. The song samples American DJ Webstar and rapper Young B&#39;s song *Chicken Noodle Soup* featuring. Hope - Chicken Noodle Soup (feat. Becky G) [КИРИЛЛИЗАЦИЯ/ПЕРЕВОД НА РУССКИЙ] — BTS J.
 
 Chicken noodle soup is one of the most popular of current trending meals on earth. It's appreciated by millions daily. It's easy, it is quick, it tastes yummy. Chicken noodle soup is something which I have loved my whole life. They are fine and they look fantastic.
 
@@ -77,7 +77,7 @@ To get started with this particular recipe, we must first prepare a few componen
 1. Take 1/2 cup White rice cooked
 1. Get 4 Lrg potatoe
 1. Get 1 box Chicken stock
-1. Prepare 1 salt &amp; Pepper
+1. Prepare 1 salt & Pepper
 1. Prepare 1/4 Tomatoe builon
 1. Prepare 1 dash Rosemary
 1. Take 4 large Pieces of chicken

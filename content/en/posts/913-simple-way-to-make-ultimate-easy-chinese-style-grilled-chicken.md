@@ -33,10 +33,10 @@ recipeingredient:
 - "4 tbsp soya sauce"
 - "100 ml Chinese garlic Sauce"
 recipeinstructions:
-- "Clean the chicken &amp; cut into two halves each then remove back bones, chest bones, neck, leg tips and wings tips. Cleave the thighs along the bones or remove the leg bones if you like."
+- "Clean the chicken & cut into two halves each then remove back bones, chest bones, neck, leg tips and wings tips. Cleave the thighs along the bones or remove the leg bones if you like."
 - "Keep the chicken aside and mix all ingredients in a mixing bowl. Now marinate the chicken halves thoroughly and keep in chiller for at least 8 hours for best result."
 - "Prepare the charcoal fire ready for grill and take out the chicken from chiller and be ready for cooking. Now cut the tomatoes and potatoes into halves each and put on grill. Put the chicken halves in a grilling net and put in heat."
-- "Turn the chicken till cooked from both side. Check also tomatoes &amp; potatoes. Prepare fries or steamed vegetables."
+- "Turn the chicken till cooked from both side. Check also tomatoes & potatoes. Prepare fries or steamed vegetables."
 - "Serve the chicken with vegetables, grilled tomatoes, potatoes and lemon half. Serve vinegar chilli, soya sauce and Chinese garlic sauce separate bowls.  For more detail about the recipe and Mediterranean Grilled Chicken Recipe please visit the link..... https://bit.ly/2mfvM0F"
 - "Ready to serve and ENJOY!"
 categories:
@@ -74,11 +74,11 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 
 1. Take 2 whole chicken 900 grams each
 1. Make ready 20 ml lemon juice or red wine vinegar
-1. Make ready 20 gm ginger &amp; garlic paste
+1. Make ready 20 gm ginger & garlic paste
 1. Take 5 gm chilli paste
 1. Prepare 50 ml White wine or rum
 1. Prepare 100 ml corn oil or canola oil
-1. Take 2 stalk fresh oregano &amp; rosemary (dried also ok)
+1. Take 2 stalk fresh oregano & rosemary (dried also ok)
 1. Get 10 gm Five Spices or whole spices
 1. Make ready  Salt and pepper as per taste
 1. Take 20 ml Soya Sauce
@@ -99,10 +99,10 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 
 ##### Steps to make Easy Chinese style grilled chicken:
 
-1. Clean the chicken &amp; cut into two halves each then remove back bones, chest bones, neck, leg tips and wings tips. Cleave the thighs along the bones or remove the leg bones if you like.
+1. Clean the chicken & cut into two halves each then remove back bones, chest bones, neck, leg tips and wings tips. Cleave the thighs along the bones or remove the leg bones if you like.
 1. Keep the chicken aside and mix all ingredients in a mixing bowl. Now marinate the chicken halves thoroughly and keep in chiller for at least 8 hours for best result.
 1. Prepare the charcoal fire ready for grill and take out the chicken from chiller and be ready for cooking. Now cut the tomatoes and potatoes into halves each and put on grill. Put the chicken halves in a grilling net and put in heat.
-1. Turn the chicken till cooked from both side. Check also tomatoes &amp; potatoes. Prepare fries or steamed vegetables.
+1. Turn the chicken till cooked from both side. Check also tomatoes & potatoes. Prepare fries or steamed vegetables.
 1. Serve the chicken with vegetables, grilled tomatoes, potatoes and lemon half. Serve vinegar chilli, soya sauce and Chinese garlic sauce separate bowls.  For more detail about the recipe and Mediterranean Grilled Chicken Recipe please visit the link..... https://bit.ly/2mfvM0F
 1. Ready to serve and ENJOY!
 

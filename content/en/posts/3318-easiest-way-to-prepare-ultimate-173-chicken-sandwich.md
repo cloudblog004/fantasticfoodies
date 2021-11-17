@@ -58,7 +58,7 @@ recipecategory: Dessert
 
 Hey everyone, it's me again, Dan, welcome to our recipe site. Today, we're going to make a distinctive dish, $1.73 chicken sandwich. One of my favorites food recipes. This time, I am going to make it a little bit tasty. This is gonna smell and look delicious.
 
-Here is how you cook it. Brine the chicken by placing it in a bowl with salt and water. A chicken sandwich is a sandwich that typically consists of boneless, skinless chicken breast served between slices of bread, on a bun, or on a roll. Variations on the &#34;chicken sandwich&#34; include the chicken burger or chicken on a bun, hot chicken, and chicken salad sandwich.
+Here is how you cook it. Brine the chicken by placing it in a bowl with salt and water. A chicken sandwich is a sandwich that typically consists of boneless, skinless chicken breast served between slices of bread, on a bun, or on a roll. Variations on the *chicken sandwich* include the chicken burger or chicken on a bun, hot chicken, and chicken salad sandwich.
 
 $1.73 Chicken sandwich is one of the most favored of recent trending foods in the world. It is simple, it is quick, it tastes delicious. It's enjoyed by millions daily. $1.73 Chicken sandwich is something that I've loved my whole life. They are nice and they look fantastic.
 
@@ -79,7 +79,7 @@ To begin with this recipe, we have to first prepare a few components. You can ha
 1. Make ready  Misc
 1. Make ready 2 cups water
 1. Prepare 2 Tbs salt
-1. Make ready 15 &#34; aluminum foil
+1. Make ready 15 * aluminum foil
 
 
 With these sizzling and fresh chicken sandwiches. The flavor is okay, the breading does get a little crispy if you remove it from the plastic and put it on a plate. Browse the menu, view popular items, and track your order. Chipotle Cheddar Bacon Chicken Fried Steak Sandwich Deluxe Combo. 

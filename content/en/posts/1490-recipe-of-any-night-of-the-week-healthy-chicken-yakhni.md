@@ -52,7 +52,7 @@ recipecategory: Dinner
 
 Hey everyone, hope you're having an incredible day today. Today, I will show you a way to prepare a distinctive dish, healthy chicken yakhni. One of my favorites. This time, I'm gonna make it a bit tasty. This will be really delicious.
 
-Chicken Yakhni Recipe, Learn how to make Chicken Yakhni (absolutely delicious This Chicken Yakhni recipe is Excellent and find more Great recipes, tried &amp; tested recipes from NDTV Food. But before you check out these healthy dinner recipes, here are some. Chicken Yakhni Pulao is a well known food of North India and Pakistan. Some people enjoy yakhni more than Biryani.
+Chicken Yakhni Recipe, Learn how to make Chicken Yakhni (absolutely delicious This Chicken Yakhni recipe is Excellent and find more Great recipes, tried & tested recipes from NDTV Food. But before you check out these healthy dinner recipes, here are some. Chicken Yakhni Pulao is a well known food of North India and Pakistan. Some people enjoy yakhni more than Biryani.
 
 Healthy chicken yakhni is one of the most favored of recent trending foods in the world. It is enjoyed by millions every day. It's simple, it's fast, it tastes yummy. Healthy chicken yakhni is something that I have loved my whole life. They're nice and they look fantastic.
 
@@ -88,6 +88,6 @@ Yakhni Soup is a one of most famous and easiest to prepare soups. Yakhni Soup ca
 1. Put the stock again in the pan. Shred the boneless chicken add black pepper and soya sauce. Bring it to boil and its ready.
 1. Ready to serve and ENJOY!
 
-For veg yakhni pulav, prepare the yakhni or stock by using potato + cauliflower + carrot + onion. Put the chicken in a large deep pan. Country Chicken Yakhni Recipe │ Chicken Yakhni Recipe For Flu │ Village Food Secrets Thanks Delicious and very healthy desi murgh ki yakhni recipe by cook with hassan. a step by step recipe. Including healthy chicken salads, stews, soups, and skewers. Nawabs kitchen FRENCH FRIES &amp; ONION RINGS 
+For veg yakhni pulav, prepare the yakhni or stock by using potato + cauliflower + carrot + onion. Put the chicken in a large deep pan. Country Chicken Yakhni Recipe │ Chicken Yakhni Recipe For Flu │ Village Food Secrets Thanks Delicious and very healthy desi murgh ki yakhni recipe by cook with hassan. a step by step recipe. Including healthy chicken salads, stews, soups, and skewers. Nawabs kitchen FRENCH FRIES & ONION RINGS 
 
 So that is going to wrap it up with this exceptional food healthy chicken yakhni recipe. Thanks so much for reading. I am sure you will make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

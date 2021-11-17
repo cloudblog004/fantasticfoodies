@@ -34,7 +34,7 @@ recipeingredient:
 - "1 tbs minced garlic"
 - "Dash hot sauce i use scotch bonnet"
 recipeinstructions:
-- "Prepare your noodles first....in large pot boil water with 1/2 tsp of salt &amp; oil...cook the amount of noodles you need until softened to your liking drain and place in cold water put to the side...i used 1/2 package of noodles"
+- "Prepare your noodles first....in large pot boil water with 1/2 tsp of salt & oil...cook the amount of noodles you need until softened to your liking drain and place in cold water put to the side...i used 1/2 package of noodles"
 - "Prepare your broccoli in a small bowl"
 - "Chop the rest of the vegetables in a next bowl"
 - "In a large skillet add 1 - 2 tbs spoons of oil i used olive oil but use what you have and heat it up on medium heat"
@@ -67,7 +67,7 @@ Hello everybody, it is Louise, welcome to our recipe page. Today, I'm gonna show
 
 Anything goes pasta is one of the most popular of recent trending meals in the world. It is easy, it is fast, it tastes delicious. It is appreciated by millions every day. Anything goes pasta is something which I've loved my whole life. They are nice and they look fantastic.
 
-Just Leave Out Whatever You Don&#39;t Care For. I tried this with whole wheat pasta Here&#39;s the formula for this &#34;anything goes&#34; creamy pasta bake &#34;Make This With Anything&#34;. We peek in the guest&#39;s pantry &amp; come up w/ a meal idea from whatever they have on-hand! This Creative pasta dish is all about mixing palates and flavors!
+Just Leave Out Whatever You Don&#39;t Care For. I tried this with whole wheat pasta Here&#39;s the formula for this *anything goes* creamy pasta bake *Make This With Anything*. We peek in the guest&#39;s pantry & come up w/ a meal idea from whatever they have on-hand! This Creative pasta dish is all about mixing palates and flavors!
 
 
 To begin with this particular recipe, we have to first prepare a few ingredients. You can cook anything goes pasta using 20 ingredients and 8 steps. Here is how you can achieve it.
@@ -88,7 +88,7 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 1. Make ready 1/2 cup beef or chicken broth i used beef
 1. Get  Sprinkle adobo spice
 1. Prepare 1/4 cup whipping cream
-1. Make ready  Salt &amp; pepper
+1. Make ready  Salt & pepper
 1. Prepare 1 tsp lemon juice
 1. Make ready 1 tbs soya sauce
 1. Make ready 1 tsp onion powder
@@ -104,7 +104,7 @@ Pour over your cooked pasta and grate over applewood smoked cheese and serve - m
 
 ##### Steps to make Anything goes pasta:
 
-1. Prepare your noodles first....in large pot boil water with 1/2 tsp of salt &amp; oil...cook the amount of noodles you need until softened to your liking drain and place in cold water put to the side...i used 1/2 package of noodles
+1. Prepare your noodles first....in large pot boil water with 1/2 tsp of salt & oil...cook the amount of noodles you need until softened to your liking drain and place in cold water put to the side...i used 1/2 package of noodles
 1. Prepare your broccoli in a small bowl
 1. Chop the rest of the vegetables in a next bowl
 1. In a large skillet add 1 - 2 tbs spoons of oil i used olive oil but use what you have and heat it up on medium heat

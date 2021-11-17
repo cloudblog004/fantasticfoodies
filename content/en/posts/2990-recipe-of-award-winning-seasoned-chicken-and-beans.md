@@ -51,7 +51,7 @@ recipecategory: Dessert
 
 Hey everyone, it's me, Dave, welcome to my recipe site. Today, I'm gonna show you how to make a special dish, seasoned chicken and beans. One of my favorites. This time, I'm gonna make it a bit unique. This is gonna smell and look delicious.
 
-Store-bought chicken seasoning packets sure are convenient but it won&#39;t be as healthy or fresh. Better to make them yourself so you are assured of the best flavor and Here&#39;s a very simple chicken seasoning recipe! The flavor you&#39;ll get from it is neat and uncomplicated—zesty with just a hint of heat. Healthy Baked Chicken &amp; Black Bean Tacos W/Crispy Sweet Potato Fries. - Simply Taralynn
+Store-bought chicken seasoning packets sure are convenient but it won&#39;t be as healthy or fresh. Better to make them yourself so you are assured of the best flavor and Here&#39;s a very simple chicken seasoning recipe! The flavor you&#39;ll get from it is neat and uncomplicated—zesty with just a hint of heat. Healthy Baked Chicken & Black Bean Tacos W/Crispy Sweet Potato Fries. - Simply Taralynn
 
 Seasoned chicken and beans is one of the most favored of current trending foods on earth. It's enjoyed by millions daily. It is easy, it's fast, it tastes delicious. Seasoned chicken and beans is something that I've loved my entire life. They are nice and they look wonderful.
 

@@ -51,7 +51,7 @@ recipecategory: Dessert
 
 Hello everybody, I hope you're having an amazing day today. Today, I'm gonna show you how to prepare a special dish, aalu and chicken cutlets. It is one of my favorites food recipes. This time, I am going to make it a little bit tasty. This will be really delicious.
 
-Mash potatoes and add boiled shreded chicken and mix it. Prosciutto, chicken, and white wine — this winning combination makes for the most simple and awesome Italian dinner. &#34;Try this and you&#39;ll know why they call it saltimbocca. Chicken cutlets are one of the most versatile proteins out there, and they can turn into a meal that&#39;s as complicated or straightforward as you want it to be. You can either buy chicken cutlets sliced from a larger breast or as an entire smaller breast pounded thin, so they have a uniform thickness.
+Mash potatoes and add boiled shreded chicken and mix it. Prosciutto, chicken, and white wine — this winning combination makes for the most simple and awesome Italian dinner. *Try this and you&#39;ll know why they call it saltimbocca. Chicken cutlets are one of the most versatile proteins out there, and they can turn into a meal that&#39;s as complicated or straightforward as you want it to be. You can either buy chicken cutlets sliced from a larger breast or as an entire smaller breast pounded thin, so they have a uniform thickness.
 
 Aalu and chicken cutlets is one of the most popular of current trending meals on earth. It is simple, it's quick, it tastes yummy. It is appreciated by millions daily. Aalu and chicken cutlets is something that I have loved my entire life. They are fine and they look wonderful.
 

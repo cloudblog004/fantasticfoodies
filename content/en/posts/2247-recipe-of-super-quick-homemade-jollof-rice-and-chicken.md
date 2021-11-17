@@ -88,7 +88,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 1. Prepare 8 cubes maggi
 
 
-Jollof (/dʒəˈlɒf/), or jollof rice, is a rice dish from West Africa. The dish is typically made with long-grain rice, tomatoes, onions, spices, vegetables and meat in a single pot, although its ingredients and preparation methods vary across different regions. Serve with jollof rice and fried plantains. Jollof Rice &amp; Chicken _ The rice is incredibly flavorful; the juicy of the chicken enhances the rice dish, making it really quite tasty! 
+Jollof (/dʒəˈlɒf/), or jollof rice, is a rice dish from West Africa. The dish is typically made with long-grain rice, tomatoes, onions, spices, vegetables and meat in a single pot, although its ingredients and preparation methods vary across different regions. Serve with jollof rice and fried plantains. Jollof Rice & Chicken _ The rice is incredibly flavorful; the juicy of the chicken enhances the rice dish, making it really quite tasty! 
 
 <!--inarticleads2-->
 
@@ -114,6 +114,6 @@ Jollof (/dʒəˈlɒf/), or jollof rice, is a rice dish from West Africa. The dis
 1. You can fry your meat
 1. Ready to serve and ENJOY!
 
-Serve with jollof rice and fried plantains. Jollof Rice &amp; Chicken _ The rice is incredibly flavorful; the juicy of the chicken enhances the rice dish, making it really quite tasty! An easy yet tasty one pot meal that is enjoyed in West African Countries (Nigeria, Cameroon, Ghana, Liberia &amp; Sierra Leone) - Immaculate Bites. Find jollof rice and chicken stock images in HD and millions of other royalty-free stock photos, illustrations and vectors in the Shutterstock collection. Thousands of new, high-quality pictures added every day. 
+Serve with jollof rice and fried plantains. Jollof Rice & Chicken _ The rice is incredibly flavorful; the juicy of the chicken enhances the rice dish, making it really quite tasty! An easy yet tasty one pot meal that is enjoyed in West African Countries (Nigeria, Cameroon, Ghana, Liberia & Sierra Leone) - Immaculate Bites. Find jollof rice and chicken stock images in HD and millions of other royalty-free stock photos, illustrations and vectors in the Shutterstock collection. Thousands of new, high-quality pictures added every day. 
 
 So that's going to wrap it up with this exceptional food jollof rice and chicken recipe. Thank you very much for your time. I am sure you will make this at home. There is gonna be interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

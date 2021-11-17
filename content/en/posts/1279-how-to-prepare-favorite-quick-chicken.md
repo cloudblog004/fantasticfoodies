@@ -44,7 +44,7 @@ recipecategory: Dessert
 
 Hey everyone, it is Jim, welcome to our recipe site. Today, we're going to make a special dish, quick chicken. It is one of my favorites food recipes. For mine, I am going to make it a little bit unique. This will be really delicious.
 
-Here&#39;s my take on a quick chicken shawarma &#34;taco&#34; that you can make on a weeknight. It gives me everything I want out of a shawarma sandwich including the. How to make quick and easy chicken fajitas. Quick Chicken Fajitas. this link is to an external site that may or may not meet accessibility guidelines.
+Here&#39;s my take on a quick chicken shawarma *taco* that you can make on a weeknight. It gives me everything I want out of a shawarma sandwich including the. How to make quick and easy chicken fajitas. Quick Chicken Fajitas. this link is to an external site that may or may not meet accessibility guidelines.
 
 Quick chicken is one of the most well liked of recent trending meals on earth. It's easy, it is quick, it tastes yummy. It is enjoyed by millions every day. Quick chicken is something that I've loved my whole life. They're nice and they look wonderful.
 

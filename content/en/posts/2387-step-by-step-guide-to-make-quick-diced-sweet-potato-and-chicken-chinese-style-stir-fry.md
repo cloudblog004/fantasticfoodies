@@ -75,7 +75,7 @@ To begin with this recipe, we must prepare a few ingredients. You can cook diced
 1. Make ready 1 tbsp Vegetable oil (or olive oil)
 
 
-It&#39;s soft and crispy, but lets not forget, spicy. These spicy Chinese-style stir-fried sweet potatoes use several different heat sources to get their fiery taste and coat the crispy spuds, but their. TESTED &amp; PERFECTED RECIPE - A Chinese stir-fry with shiitake mushrooms, broccoli, red peppers, and an unctuous, flavorful brown sauce. There is much to love about this Chinese vegetable stir-fry: meaty shiitake mushrooms, crunchy broccoli, sweet bell peppers and a gingery, garlicky brown sauce. 
+It&#39;s soft and crispy, but lets not forget, spicy. These spicy Chinese-style stir-fried sweet potatoes use several different heat sources to get their fiery taste and coat the crispy spuds, but their. TESTED & PERFECTED RECIPE - A Chinese stir-fry with shiitake mushrooms, broccoli, red peppers, and an unctuous, flavorful brown sauce. There is much to love about this Chinese vegetable stir-fry: meaty shiitake mushrooms, crunchy broccoli, sweet bell peppers and a gingery, garlicky brown sauce. 
 
 <!--inarticleads2-->
 
@@ -88,6 +88,6 @@ It&#39;s soft and crispy, but lets not forget, spicy. These spicy Chinese-style 
 1. When a bamboo skewer goes easily through a piece of sweet potato, add the B. ingredients and stir-fry until there&#39;s no moisture left in the pan. Done!
 1. Ready to serve and ENJOY!
 
-TESTED &amp; PERFECTED RECIPE - A Chinese stir-fry with shiitake mushrooms, broccoli, red peppers, and an unctuous, flavorful brown sauce. There is much to love about this Chinese vegetable stir-fry: meaty shiitake mushrooms, crunchy broccoli, sweet bell peppers and a gingery, garlicky brown sauce. Curry Chicken And Potatoes Stir Fry. This is a typical recipe served in North American Chinese Restaurants and Take-Out. Fried potato wedges and roasted peanuts cooked in Chinese style, perfect as a starter when you have people over for a meal. 
+TESTED & PERFECTED RECIPE - A Chinese stir-fry with shiitake mushrooms, broccoli, red peppers, and an unctuous, flavorful brown sauce. There is much to love about this Chinese vegetable stir-fry: meaty shiitake mushrooms, crunchy broccoli, sweet bell peppers and a gingery, garlicky brown sauce. Curry Chicken And Potatoes Stir Fry. This is a typical recipe served in North American Chinese Restaurants and Take-Out. Fried potato wedges and roasted peanuts cooked in Chinese style, perfect as a starter when you have people over for a meal. 
 
 So that's going to wrap it up for this special food diced sweet potato and chicken chinese-style stir fry recipe. Thank you very much for reading. I'm confident you can make this at home. There is gonna be more interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

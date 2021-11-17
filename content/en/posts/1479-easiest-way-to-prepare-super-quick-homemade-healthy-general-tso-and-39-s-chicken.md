@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Prepare Super Quick Homemade Healthy General Tso&amp;#39;s Chicken"
-title: "Easiest Way to Prepare Super Quick Homemade Healthy General Tso&amp;#39;s Chicken"
+description: "Easiest Way to Prepare Super Quick Homemade Healthy General Tso's Chicken"
+title: "Easiest Way to Prepare Super Quick Homemade Healthy General Tso's Chicken"
 slug: 1479-easiest-way-to-prepare-super-quick-homemade-healthy-general-tso-and-39-s-chicken
 date: 2022-01-25T09:00:10.373Z
 image: //assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png

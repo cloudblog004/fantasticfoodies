@@ -57,7 +57,7 @@ Hey everyone, it is Brad, welcome to my recipe site. Today, we're going to prepa
 
 Chicken pancit 🤤 is one of the most popular of current trending meals in the world. It is easy, it's fast, it tastes yummy. It's appreciated by millions daily. They're fine and they look fantastic. Chicken pancit 🤤 is something that I've loved my whole life.
 
-Perceived as the Filipino counterpart to &#34;Pasta&#34;, the term &#34;Pancit&#34; refers to the starchy noodles used in most local dishes. In this recipe, Chef John Chua. Pancit is a Filipino dish made using meat, vegetables, and thin rice noodles. It is full of flavor, high volume, and fairly STANDARD RECIPE.
+Perceived as the Filipino counterpart to *Pasta*, the term *Pancit* refers to the starchy noodles used in most local dishes. In this recipe, Chef John Chua. Pancit is a Filipino dish made using meat, vegetables, and thin rice noodles. It is full of flavor, high volume, and fairly STANDARD RECIPE.
 
 
 To get started with this particular recipe, we must prepare a few components. You can have chicken pancit 🤤 using 9 ingredients and 10 steps. Here is how you cook that.
@@ -72,12 +72,12 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Prepare 4 cloves garlic -minced
 1. Take Pinch pepper
 1. Take 1 tablespoon soy sauce
-1. Get 500 g green bell peppers&#34;julienne cut&#34;
+1. Get 500 g green bell peppers*julienne cut*
 1. Make ready 2 tablespoon oil
 1. Prepare 250 g chicken legs or any parts
 
 
-When the chicken is cooked, place it aside to cool. Pancit (Tagalog pronunciation: [ˈpansɪt] PAN-sit), also spelled pansít, is a general term referring to various traditional noodle dishes in Filipino cuisine. There are numerous types of pancit, often named based on the noodles used, method of cooking, place of origin, or the ingredients. Pancit comes in many different forms, and today I am specifically showing you how to make Pancit Bihon, which uses &#34;Bihon&#34; or rice sticks, vegan chicken and vegetables. 
+When the chicken is cooked, place it aside to cool. Pancit (Tagalog pronunciation: [ˈpansɪt] PAN-sit), also spelled pansít, is a general term referring to various traditional noodle dishes in Filipino cuisine. There are numerous types of pancit, often named based on the noodles used, method of cooking, place of origin, or the ingredients. Pancit comes in many different forms, and today I am specifically showing you how to make Pancit Bihon, which uses *Bihon* or rice sticks, vegan chicken and vegetables. 
 
 <!--inarticleads2-->
 
@@ -95,6 +95,6 @@ When the chicken is cooked, place it aside to cool. Pancit (Tagalog pronunciatio
 1. If you want your pancit dry just limit the chicken broth but depends on you ❤
 1. Ready to serve and ENJOY!
 
-There are numerous types of pancit, often named based on the noodles used, method of cooking, place of origin, or the ingredients. Pancit comes in many different forms, and today I am specifically showing you how to make Pancit Bihon, which uses &#34;Bihon&#34; or rice sticks, vegan chicken and vegetables. The Chinese introduced noodles to the Philippines and it has been adopted into their cuisine. So basically this is a chicken and noodle dish but with and Asian flair. This Special Pancit Canton Recipe is a massive popular pancit in the Philippines and has always been an island family favorite. 
+There are numerous types of pancit, often named based on the noodles used, method of cooking, place of origin, or the ingredients. Pancit comes in many different forms, and today I am specifically showing you how to make Pancit Bihon, which uses *Bihon* or rice sticks, vegan chicken and vegetables. The Chinese introduced noodles to the Philippines and it has been adopted into their cuisine. So basically this is a chicken and noodle dish but with and Asian flair. This Special Pancit Canton Recipe is a massive popular pancit in the Philippines and has always been an island family favorite. 
 
 So that is going to wrap it up with this exceptional food chicken pancit 🤤 recipe. Thank you very much for reading. I am sure that you can make this at home. There's gonna be interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

@@ -98,6 +98,6 @@ See recipes for Chicken biryani, Spicy Chicken Biryani too. Chicken Biryani. chi
 1. Add fried onion to the chicken and leave for 5mins for it to absorb the flavour... serve hot with kachumbari..Bon appetit!
 1. Ready to serve and ENJOY!
 
-Chicken biryani recipe is the most flavorful rice dish you can dream of. Ths recipe comes with a detailed explanation and video demonstration. Everyone loves chicken biryani rice, and here is why this deliciously flavored chicken biryani recipe conquers the heart of the most demanding. Tasty &amp; Easy Masala Omelette Recipe. Chicken Biryani is a bold and flavorful Indian dish with crazy tender bites of chicken with bell peppers in a deliciously spiced and fragrant rice. 
+Chicken biryani recipe is the most flavorful rice dish you can dream of. Ths recipe comes with a detailed explanation and video demonstration. Everyone loves chicken biryani rice, and here is why this deliciously flavored chicken biryani recipe conquers the heart of the most demanding. Tasty & Easy Masala Omelette Recipe. Chicken Biryani is a bold and flavorful Indian dish with crazy tender bites of chicken with bell peppers in a deliciously spiced and fragrant rice. 
 
 So that is going to wrap it up with this special food tasty chicken biryani😋😋 recipe. Thank you very much for reading. I'm confident that you will make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

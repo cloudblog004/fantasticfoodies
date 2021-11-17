@@ -58,7 +58,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 ##### The ingredients needed to make Prego Skillet Chicken Parmesan:
 
 1. Prepare 1/4 cup grated parmesan cheese
-1. Take 1 1/2 cups prego traditional or organic tomato &amp; basil pasta sauce
+1. Take 1 1/2 cups prego traditional or organic tomato & basil pasta sauce
 1. Take 1 tbsp. olive oil
 1. Take 1 1/2 lbs. skinless boneless chicken breast halves (4 to 6)
 1. Take 1 1/2 cups shredded part- skim mozzarella cheese (6 ozs.)

@@ -1,6 +1,6 @@
 ---
-description: "Steps to Make Any-night-of-the-week Hot &amp;amp; Sour Chicken &amp;amp; Pepper Stir-fry"
-title: "Steps to Make Any-night-of-the-week Hot &amp;amp; Sour Chicken &amp;amp; Pepper Stir-fry"
+description: "Steps to Make Any-night-of-the-week Hot & Sour Chicken & Pepper Stir-fry"
+title: "Steps to Make Any-night-of-the-week Hot & Sour Chicken & Pepper Stir-fry"
 slug: 2377-steps-to-make-any-night-of-the-week-hot-and-amp-sour-chicken-and-amp-pepper-stir-fry
 date: 2021-11-20T18:40:48.585Z
 image: https://img-global.cpcdn.com/recipes/6337004539215872/680x482cq70/hot-sour-chicken-pepper-stir-fry-recipe-main-photo.jpg
@@ -57,20 +57,20 @@ recipecategory: Dessert
 ---
 
 
-![Hot &amp; Sour Chicken &amp; Pepper Stir-fry](https://img-global.cpcdn.com/recipes/6337004539215872/680x482cq70/hot-sour-chicken-pepper-stir-fry-recipe-main-photo.jpg)
+![Hot & Sour Chicken & Pepper Stir-fry](https://img-global.cpcdn.com/recipes/6337004539215872/680x482cq70/hot-sour-chicken-pepper-stir-fry-recipe-main-photo.jpg)
 
-Hello everybody, hope you are having an amazing day today. Today, we're going to make a special dish, hot &amp; sour chicken &amp; pepper stir-fry. One of my favorites food recipes. For mine, I will make it a little bit unique. This will be really delicious.
+Hello everybody, hope you are having an amazing day today. Today, we're going to make a special dish, hot & sour chicken & pepper stir-fry. One of my favorites food recipes. For mine, I will make it a little bit unique. This will be really delicious.
 
-Hot &amp; Sour Chicken &amp; Pepper Stir-fry is one of the most popular of current trending foods in the world. It is enjoyed by millions daily. It's simple, it is fast, it tastes yummy. They're nice and they look fantastic. Hot &amp; Sour Chicken &amp; Pepper Stir-fry is something that I've loved my whole life.
+Hot & Sour Chicken & Pepper Stir-fry is one of the most popular of current trending foods in the world. It is enjoyed by millions daily. It's simple, it is fast, it tastes yummy. They're nice and they look fantastic. Hot & Sour Chicken & Pepper Stir-fry is something that I've loved my whole life.
 
 Перевод слова hot, американское и британское произношение, транскрипция, словосочетания, однокоренные слова, примеры использования. Hot or the acronym HOT may refer to: Pungency, in food, a spicy or hot quality. Hot District, a district of Chiang Mai province, Thailand. Hot, Hot a sub-district of Hot District, Thailand.
 
 
-To get started with this recipe, we have to first prepare a few ingredients. You can have hot &amp; sour chicken &amp; pepper stir-fry using 11 ingredients and 13 steps. Here is how you can achieve it.
+To get started with this recipe, we have to first prepare a few ingredients. You can have hot & sour chicken & pepper stir-fry using 11 ingredients and 13 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Hot &amp; Sour Chicken &amp; Pepper Stir-fry:
+##### The ingredients needed to make Hot & Sour Chicken & Pepper Stir-fry:
 
 1. Prepare 100 grams Thai Jasmine Rice
 1. Prepare 1 tbsp Sesame Seeds
@@ -89,7 +89,7 @@ Search, discover and share your favorite Hot Hot Hot GIFs.
 
 <!--inarticleads2-->
 
-##### Instructions to make Hot &amp; Sour Chicken &amp; Pepper Stir-fry:
+##### Instructions to make Hot & Sour Chicken & Pepper Stir-fry:
 
 1. Place the rice in a saucepan with 300ml boiling water.
 1. Bring to the boil, stir once, cover with a lid and reduce the heat to low.
@@ -108,4 +108,4 @@ Search, discover and share your favorite Hot Hot Hot GIFs.
 
 
 
-So that's going to wrap it up for this special food hot &amp; sour chicken &amp; pepper stir-fry recipe. Thank you very much for your time. I am sure that you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+So that's going to wrap it up for this special food hot & sour chicken & pepper stir-fry recipe. Thank you very much for your time. I am sure that you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

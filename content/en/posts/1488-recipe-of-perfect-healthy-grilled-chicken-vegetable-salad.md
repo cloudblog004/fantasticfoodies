@@ -28,7 +28,7 @@ recipeingredient:
 - "1/4 tsp lemon juice"
 - "1/4 tsp mixed Herb optional"
 recipeinstructions:
-- "Arrange all the vegetables and roasted chicken. https://cookpad.com/pk/recipes/14553829-roasted-chicken-with-vege?invite_token=LNcydnG9ayYuwzT5kmiXYSzp&amp;shared_at=1613656294"
+- "Arrange all the vegetables and roasted chicken. https://cookpad.com/pk/recipes/14553829-roasted-chicken-with-vege?invite_token=LNcydnG9ayYuwzT5kmiXYSzp&shared_at=1613656294"
 - "Take a grill pan, add oil and vegetables and stir fry."
 - "Add all dry spices and mix well."
 - "Add chicken pieces and lemon juice and stir fry."
@@ -89,7 +89,7 @@ To begin with this recipe, we must prepare a few components. You can have health
 
 ##### Instructions to make Healthy Grilled Chicken Vegetable Salad 🥗:
 
-1. Arrange all the vegetables and roasted chicken. https://cookpad.com/pk/recipes/14553829-roasted-chicken-with-vege?invite_token=LNcydnG9ayYuwzT5kmiXYSzp&amp;shared_at=1613656294
+1. Arrange all the vegetables and roasted chicken. https://cookpad.com/pk/recipes/14553829-roasted-chicken-with-vege?invite_token=LNcydnG9ayYuwzT5kmiXYSzp&shared_at=1613656294
 1. Take a grill pan, add oil and vegetables and stir fry.
 1. Add all dry spices and mix well.
 1. Add chicken pieces and lemon juice and stir fry.

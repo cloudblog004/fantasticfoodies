@@ -72,7 +72,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can cook
 1. Make ready  Some Macaroni
 1. Prepare 1 liter water
 1. Make ready 1 cube Chicken bouillon
-1. Get To taste Salt &amp; Pepper
+1. Get To taste Salt & Pepper
 
 
 

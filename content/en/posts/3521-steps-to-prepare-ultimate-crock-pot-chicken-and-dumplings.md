@@ -57,7 +57,7 @@ Hey everyone, it is me, Dave, welcome to my recipe page. Today, we're going to p
 
 Crock pot chicken and dumplings is one of the most favored of recent trending foods in the world. It's easy, it's quick, it tastes delicious. It is appreciated by millions daily. Crock pot chicken and dumplings is something that I have loved my entire life. They are nice and they look wonderful.
 
-First, you lay boneless skinless chicken breasts over a bed of onion in your slow cooker, then pour cream of chicken soup and chicken broth on top. This Crock Pot Chicken and Dumplings Recipe is a quick and easy one-pot cozy Winter wonder! A crowd pleasing dinner full of tender chicken, ultra-fluffy biscuit dumplings, creamy potatoes, and a thick and flavorful sauce made without cream of &#34;x&#34; soup. Crock Pot Chicken &amp; DumplingsNice Food For Everydays.
+First, you lay boneless skinless chicken breasts over a bed of onion in your slow cooker, then pour cream of chicken soup and chicken broth on top. This Crock Pot Chicken and Dumplings Recipe is a quick and easy one-pot cozy Winter wonder! A crowd pleasing dinner full of tender chicken, ultra-fluffy biscuit dumplings, creamy potatoes, and a thick and flavorful sauce made without cream of *x* soup. Crock Pot Chicken & DumplingsNice Food For Everydays.
 
 
 To get started with this recipe, we must prepare a few ingredients. You can cook crock pot chicken and dumplings using 10 ingredients and 8 steps. Here is how you can achieve it.
@@ -78,7 +78,7 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 1. Get 3 tbsp butter
 
 
-This dish is comfort food at its best. See recipes for Crock-Pot Chicken &amp; Dumplings too. Chicken and Bisquick dumplings is an easier version of the delicious classic comfort food! Make this chicken crock pot recipe for dinner! 
+This dish is comfort food at its best. See recipes for Crock-Pot Chicken & Dumplings too. Chicken and Bisquick dumplings is an easier version of the delicious classic comfort food! Make this chicken crock pot recipe for dinner! 
 
 <!--inarticleads2-->
 

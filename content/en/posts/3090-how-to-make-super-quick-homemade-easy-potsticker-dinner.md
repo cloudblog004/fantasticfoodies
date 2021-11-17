@@ -58,7 +58,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 
 ##### The ingredients needed to make Easy potsticker dinner:
 
-1. Prepare 1 packages frozen chicken &amp; veg. potstickers
+1. Prepare 1 packages frozen chicken & veg. potstickers
 1. Take 1 large onion, chopped
 1. Take 1 broccoli chopped
 1. Make ready 3 tbsp teriyaki sauce

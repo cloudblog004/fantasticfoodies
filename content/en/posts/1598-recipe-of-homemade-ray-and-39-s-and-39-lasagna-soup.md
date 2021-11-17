@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Homemade Ray&amp;#39;s&amp;#39; Lasagna Soup"
-title: "Recipe of Homemade Ray&amp;#39;s&amp;#39; Lasagna Soup"
+description: "Recipe of Homemade Ray's' Lasagna Soup"
+title: "Recipe of Homemade Ray's' Lasagna Soup"
 slug: 1598-recipe-of-homemade-ray-and-39-s-and-39-lasagna-soup
 date: 2021-11-16T00:04:28.259Z
 image: https://img-global.cpcdn.com/recipes/5308045290635264/680x482cq70/rays-lasagna-soup-recipe-main-photo.jpg

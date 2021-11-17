@@ -80,7 +80,7 @@ To get started with this recipe, we must first prepare a few components. You can
 1. Make ready  garlic paste or powder a teaspoon
 
 
-The Chicken Biryani Lunch We Can&#39;t Stop Making Traditional chicken biryani is made by layering marinated chicken and then layered with parboiled rice, herbs,saffron milk &amp; then ghee. I have shared that traditional hyderabadi biryani here. The recipe shared here in this post details a short cut method to make a simple one pot delicious chicken. 
+The Chicken Biryani Lunch We Can&#39;t Stop Making Traditional chicken biryani is made by layering marinated chicken and then layered with parboiled rice, herbs,saffron milk & then ghee. I have shared that traditional hyderabadi biryani here. The recipe shared here in this post details a short cut method to make a simple one pot delicious chicken. 
 
 <!--inarticleads2-->
 

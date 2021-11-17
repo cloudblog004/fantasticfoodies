@@ -99,6 +99,6 @@ Who said that refrigerated food wasn&#39;t fresh? This fast recipe for making an
 1. Let it cool and enjoy.
 1. Ready to serve and ENJOY!
 
-This calzone recipe is quick and easy. Plus, each family member will enjoy making his/her own calzone. All you need is a package of pita pockets, sauce and your family&#39;s favorite pizza toppings. Open packages of dough; separate dough into individual pieces. Essentially a calzone is a double crusted pizza with yummy ricotta cheese filling and your choice of &#34;toppings.&#34; Finish it off with a side of warm marinara sauce and you have a full meal on the plate. 
+This calzone recipe is quick and easy. Plus, each family member will enjoy making his/her own calzone. All you need is a package of pita pockets, sauce and your family&#39;s favorite pizza toppings. Open packages of dough; separate dough into individual pieces. Essentially a calzone is a double crusted pizza with yummy ricotta cheese filling and your choice of *toppings.* Finish it off with a side of warm marinara sauce and you have a full meal on the plate. 
 
 So that's going to wrap this up for this special food quick calzone recipe. Thank you very much for your time. I am sure you can make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

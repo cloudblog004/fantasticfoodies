@@ -22,10 +22,10 @@ recipeingredient:
 - "1 pinch black grounded pepper"
 recipeinstructions:
 - "Take 2_4 pieces of bread"
-- "Take a bowl,put 4 tbsp of mayonnaise in itwith salt,black grounded pepper,chopped onions &amp; tomatoes,"
+- "Take a bowl,put 4 tbsp of mayonnaise in itwith salt,black grounded pepper,chopped onions & tomatoes,"
 - "Mix well,take 1 piece of bread,cut the sides, Spread the mixture on it"
-- "Now cut the seekhs in small pieces &amp; spread it on the mixture"
-- "Put another piece on it &amp; cut in triangle shape"
+- "Now cut the seekhs in small pieces & spread it on the mixture"
+- "Put another piece on it & cut in triangle shape"
 - "Serve with tea"
 - "Ready to serve and ENJOY!"
 categories:
@@ -76,10 +76,10 @@ To begin with this recipe, we must first prepare a few components. You can have 
 ##### Instructions to make Seekh Sandwiches:
 
 1. Take 2_4 pieces of bread
-1. Take a bowl,put 4 tbsp of mayonnaise in itwith salt,black grounded pepper,chopped onions &amp; tomatoes,
+1. Take a bowl,put 4 tbsp of mayonnaise in itwith salt,black grounded pepper,chopped onions & tomatoes,
 1. Mix well,take 1 piece of bread,cut the sides, Spread the mixture on it
-1. Now cut the seekhs in small pieces &amp; spread it on the mixture
-1. Put another piece on it &amp; cut in triangle shape
+1. Now cut the seekhs in small pieces & spread it on the mixture
+1. Put another piece on it & cut in triangle shape
 1. Serve with tea
 1. Ready to serve and ENJOY!
 

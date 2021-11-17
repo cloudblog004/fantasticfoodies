@@ -81,7 +81,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Take 2 Seasoning
 
 
-This is a simple baked bean dish, with the beans first cooked in simmering water and then baked in a tomato sauce, flavored with bacon and sage. Mix of beans and rice with a canned tomato sauce. Full ingredient &amp; nutrition information of the Beans and Rice in Tomato Sauce Calories. Do your recipes call for tomato sauce? 
+This is a simple baked bean dish, with the beans first cooked in simmering water and then baked in a tomato sauce, flavored with bacon and sage. Mix of beans and rice with a canned tomato sauce. Full ingredient & nutrition information of the Beans and Rice in Tomato Sauce Calories. Do your recipes call for tomato sauce? 
 
 <!--inarticleads2-->
 
@@ -96,6 +96,6 @@ This is a simple baked bean dish, with the beans first cooked in simmering water
 1. Wash and cut the carrots and green peas and sprinkle on the rice.
 1. Ready to serve and ENJOY!
 
-Full ingredient &amp; nutrition information of the Beans and Rice in Tomato Sauce Calories. Do your recipes call for tomato sauce? Enjoy the fresh and delicious flavor of GOYA® This rice and meat recipe is perfect for the whole family. Besides being delicious, it&#39;s Here, black beans are cooked with the rich and versatile GOYA® Tomato Sauce, onions. The tomato taste and seasonings are worth the time and effort. 
+Full ingredient & nutrition information of the Beans and Rice in Tomato Sauce Calories. Do your recipes call for tomato sauce? Enjoy the fresh and delicious flavor of GOYA® This rice and meat recipe is perfect for the whole family. Besides being delicious, it&#39;s Here, black beans are cooked with the rich and versatile GOYA® Tomato Sauce, onions. The tomato taste and seasonings are worth the time and effort. 
 
 So that's going to wrap this up with this special food rice ans beans with tomatoe sauce recipe. Thanks so much for your time. I am confident you can make this at home. There is gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

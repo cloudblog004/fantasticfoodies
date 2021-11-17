@@ -53,7 +53,7 @@ Hello everybody, it's Jim, welcome to my recipe site. Today, I'm gonna show you 
 
 quick brown chicken® is one of the most favored of current trending foods on earth. It is enjoyed by millions daily. It's simple, it is fast, it tastes yummy. They're nice and they look wonderful. quick brown chicken® is something which I've loved my entire life.
 
-Season chicken all over with lemon pepper and garlic powder. Chicken and Broccoli with Fettuccine and Creamy Apple Sauce Recipe Presented by Gail Greco, editor Carefree Cooking Magazine on Teflon.com. Learn how to make our delicious Quick Chicken &amp; Brown Rice recipe with our simple and easy to follow step by step preparation and cooking directions. This one-skillet dinner has all the benefits of whole grains, chicken and vegetables in one delicious dish.
+Season chicken all over with lemon pepper and garlic powder. Chicken and Broccoli with Fettuccine and Creamy Apple Sauce Recipe Presented by Gail Greco, editor Carefree Cooking Magazine on Teflon.com. Learn how to make our delicious Quick Chicken & Brown Rice recipe with our simple and easy to follow step by step preparation and cooking directions. This one-skillet dinner has all the benefits of whole grains, chicken and vegetables in one delicious dish.
 
 
 To begin with this recipe, we must first prepare a few components. You can have quick brown chicken® using 5 ingredients and 9 steps. Here is how you can achieve it.

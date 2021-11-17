@@ -46,7 +46,7 @@ Hey everyone, it is Jim, welcome to my recipe site. Today, we're going to prepar
 
 Crock pot creamy chicken breast and potatoes is one of the most well liked of current trending foods in the world. It is easy, it is quick, it tastes delicious. It's enjoyed by millions every day. They're nice and they look wonderful. Crock pot creamy chicken breast and potatoes is something that I have loved my whole life.
 
-Chicken Crock pot Dinner: Main Course Dishes. Crock Pot Creamy Ranch Chicken and Potatoes. This extremely easy recipe for Crock Pot Creamy Ranch Chicken and Potatoes is the best comfort food meal, easy enough to cook for dinner guests, and will leave your house smelling. Crock-Pot Yellow Chicken Curry &amp; VegetablesFit Fare Meal Prep.
+Chicken Crock pot Dinner: Main Course Dishes. Crock Pot Creamy Ranch Chicken and Potatoes. This extremely easy recipe for Crock Pot Creamy Ranch Chicken and Potatoes is the best comfort food meal, easy enough to cook for dinner guests, and will leave your house smelling. Crock-Pot Yellow Chicken Curry & VegetablesFit Fare Meal Prep.
 
 
 To get started with this particular recipe, we have to prepare a few ingredients. You can have crock pot creamy chicken breast and potatoes using 5 ingredients and 2 steps. Here is how you can achieve it.

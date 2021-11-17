@@ -24,7 +24,7 @@ recipeingredient:
 - "0.5 tbsp minced garlic"
 - "1 tbsp ground ginger"
 recipeinstructions:
-- "Mix chicken tenders and &#34;marinade&#34; in a ziploc bag, set aside for at least 20 min"
+- "Mix chicken tenders and *marinade* in a ziploc bag, set aside for at least 20 min"
 - "Add egg, flour, starch and rub"
 - "Fry with medium heat oil for 5 min then increase to max heat until brown"
 - "Ready to serve and ENJOY!"
@@ -78,7 +78,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 
 ##### Instructions to make Fried Chicken:
 
-1. Mix chicken tenders and &#34;marinade&#34; in a ziploc bag, set aside for at least 20 min
+1. Mix chicken tenders and *marinade* in a ziploc bag, set aside for at least 20 min
 1. Add egg, flour, starch and rub
 1. Fry with medium heat oil for 5 min then increase to max heat until brown
 1. Ready to serve and ENJOY!

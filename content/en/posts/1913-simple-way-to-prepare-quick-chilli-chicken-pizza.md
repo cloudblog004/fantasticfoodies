@@ -98,6 +98,6 @@ Chicken curry was substituted with chili chicken. Using chicken is easy, economi
 1. Bake it just for 15 minutes your delicious garlic chilli chicken pizza is ready
 1. Ready to serve and ENJOY!
 
-These recipes feature bright and fresh ingredients to bring all kinds of flavor combinations to life, from barbecue to. It&#39;s the best pizza you&#39;ll ever make Recipe is below + in highlights. Boneless Chicken Marinated in Special Homemade Chili Sauce, Onions, Green Peppers, Red Bell Pepper, Jalapeno &amp; Topped with Cheddar Cheese. Cheese &amp; Chilli Chicken Pizza O-So-Moreish!. Yesterday while I was pottering around in our kitchen wondering what I should cook today. 
+These recipes feature bright and fresh ingredients to bring all kinds of flavor combinations to life, from barbecue to. It&#39;s the best pizza you&#39;ll ever make Recipe is below + in highlights. Boneless Chicken Marinated in Special Homemade Chili Sauce, Onions, Green Peppers, Red Bell Pepper, Jalapeno & Topped with Cheddar Cheese. Cheese & Chilli Chicken Pizza O-So-Moreish!. Yesterday while I was pottering around in our kitchen wondering what I should cook today. 
 
 So that is going to wrap this up with this exceptional food chilli chicken pizza recipe. Thanks so much for reading. I'm sure that you can make this at home. There's gonna be interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

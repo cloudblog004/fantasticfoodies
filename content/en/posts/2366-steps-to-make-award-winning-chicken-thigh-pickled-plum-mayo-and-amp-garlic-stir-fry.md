@@ -1,6 +1,6 @@
 ---
-description: "Steps to Make Award-winning Chicken Thigh Pickled Plum, Mayo, &amp;amp; Garlic Stir-fry"
-title: "Steps to Make Award-winning Chicken Thigh Pickled Plum, Mayo, &amp;amp; Garlic Stir-fry"
+description: "Steps to Make Award-winning Chicken Thigh Pickled Plum, Mayo, & Garlic Stir-fry"
+title: "Steps to Make Award-winning Chicken Thigh Pickled Plum, Mayo, & Garlic Stir-fry"
 slug: 2366-steps-to-make-award-winning-chicken-thigh-pickled-plum-mayo-and-amp-garlic-stir-fry
 date: 2021-11-23T22:49:56.139Z
 image: https://img-global.cpcdn.com/recipes/5233751186472960/680x482cq70/chicken-thigh-pickled-plum-mayo-garlic-stir-fry-recipe-main-photo.jpg
@@ -52,20 +52,20 @@ recipecategory: Dessert
 ---
 
 
-![Chicken Thigh Pickled Plum, Mayo, &amp; Garlic Stir-fry](https://img-global.cpcdn.com/recipes/5233751186472960/680x482cq70/chicken-thigh-pickled-plum-mayo-garlic-stir-fry-recipe-main-photo.jpg)
+![Chicken Thigh Pickled Plum, Mayo, & Garlic Stir-fry](https://img-global.cpcdn.com/recipes/5233751186472960/680x482cq70/chicken-thigh-pickled-plum-mayo-garlic-stir-fry-recipe-main-photo.jpg)
 
-Hello everybody, I hope you are having an amazing day today. Today, I will show you a way to make a distinctive dish, chicken thigh pickled plum, mayo, &amp; garlic stir-fry. It is one of my favorites food recipes. For mine, I am going to make it a little bit tasty. This will be really delicious.
+Hello everybody, I hope you are having an amazing day today. Today, I will show you a way to make a distinctive dish, chicken thigh pickled plum, mayo, & garlic stir-fry. It is one of my favorites food recipes. For mine, I am going to make it a little bit tasty. This will be really delicious.
 
-Chicken Thigh Pickled Plum, Mayo, &amp; Garlic Stir-fry is one of the most well liked of current trending meals in the world. It is easy, it's fast, it tastes delicious. It's appreciated by millions daily. They are nice and they look wonderful. Chicken Thigh Pickled Plum, Mayo, &amp; Garlic Stir-fry is something which I've loved my whole life.
-
-
+Chicken Thigh Pickled Plum, Mayo, & Garlic Stir-fry is one of the most well liked of current trending meals in the world. It is easy, it's fast, it tastes delicious. It's appreciated by millions daily. They are nice and they look wonderful. Chicken Thigh Pickled Plum, Mayo, & Garlic Stir-fry is something which I've loved my whole life.
 
 
-To get started with this particular recipe, we have to prepare a few components. You can have chicken thigh pickled plum, mayo, &amp; garlic stir-fry using 9 ingredients and 10 steps. Here is how you cook that.
+
+
+To get started with this particular recipe, we have to prepare a few components. You can have chicken thigh pickled plum, mayo, & garlic stir-fry using 9 ingredients and 10 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Chicken Thigh Pickled Plum, Mayo, &amp; Garlic Stir-fry:
+##### The ingredients needed to make Chicken Thigh Pickled Plum, Mayo, & Garlic Stir-fry:
 
 1. Take 250 grams Chicken thigh
 1. Make ready 1 clove Garlic (minced)
@@ -82,7 +82,7 @@ To get started with this particular recipe, we have to prepare a few components.
 
 <!--inarticleads2-->
 
-##### Steps to make Chicken Thigh Pickled Plum, Mayo, &amp; Garlic Stir-fry:
+##### Steps to make Chicken Thigh Pickled Plum, Mayo, & Garlic Stir-fry:
 
 1. Chop the green onion into small slices and set aside.
 1. Remove the seeds from the umeboshi pickled plum and mince. Mix with the grated garlic.
@@ -98,4 +98,4 @@ To get started with this particular recipe, we have to prepare a few components.
 
 
 
-So that is going to wrap this up with this exceptional food chicken thigh pickled plum, mayo, &amp; garlic stir-fry recipe. Thanks so much for your time. I am sure you will make this at home. There's gonna be interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+So that is going to wrap this up with this exceptional food chicken thigh pickled plum, mayo, & garlic stir-fry recipe. Thanks so much for your time. I am sure you will make this at home. There's gonna be interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

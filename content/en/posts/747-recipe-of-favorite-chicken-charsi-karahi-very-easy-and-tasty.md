@@ -73,7 +73,7 @@ To begin with this recipe, we must first prepare a few components. You can cook 
 1. Get to taste Salt
 
 
-Lets enjoy a delicious Charsi Karahi &amp; many other Pakistani Beef &amp; Mutton This coal cooked Charsi Karahi Recipe is worth eating. It has a different and unique flavor. Homemade Charsi karahi is much tastier than that of the restaurants. A bit of butter in Charsi karahi. 
+Lets enjoy a delicious Charsi Karahi & many other Pakistani Beef & Mutton This coal cooked Charsi Karahi Recipe is worth eating. It has a different and unique flavor. Homemade Charsi karahi is much tastier than that of the restaurants. A bit of butter in Charsi karahi. 
 
 <!--inarticleads2-->
 

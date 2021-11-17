@@ -27,8 +27,8 @@ recipeingredient:
 - " Green chatni as required"
 - " Milk half cup"
 recipeinstructions:
-- "1st step filling ready karain onion ko sote karain add all ingredients last mn milk add kr k resha chicken add karain v well cooked &amp;mixing &amp;chill"
-- "Bread slices k kinare cut karain belan se below lain bread ko first bread ko tomatto ketchup spread karain 2nd bread rakh kr Chiken ki filling karain third bread rakh kr green chatni ya cheez cilice jo pasand ho roll karain raper mn.&amp;fridge half hour roll ko wheel Shap mn cut karain egg brush karain or back karain 10 minutes 180%pe &amp;enjoy aftar"
+- "1st step filling ready karain onion ko sote karain add all ingredients last mn milk add kr k resha chicken add karain v well cooked &mixing &chill"
+- "Bread slices k kinare cut karain belan se below lain bread ko first bread ko tomatto ketchup spread karain 2nd bread rakh kr Chiken ki filling karain third bread rakh kr green chatni ya cheez cilice jo pasand ho roll karain raper mn.&fridge half hour roll ko wheel Shap mn cut karain egg brush karain or back karain 10 minutes 180%pe &enjoy aftar"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -52,7 +52,7 @@ recipecategory: Dessert
 
 Hello everybody, I hope you are having an amazing day today. Today, we're going to prepare a special dish, baked chicken bread pin wheel roll. It is one of my favorites. For mine, I'm gonna make it a little bit unique. This will be really delicious.
 
-See recipes for Bread Pinwheel, Pinwheel cheese buns too. Lean How Make Chicken &amp; Potato Pin Wheels in Very Easy Way. This is different Kind of chicken dish but very easy to cook.to know more watch our.. Roll Pinwheel Appetizers Recipes on Yummly
+See recipes for Bread Pinwheel, Pinwheel cheese buns too. Lean How Make Chicken & Potato Pin Wheels in Very Easy Way. This is different Kind of chicken dish but very easy to cook.to know more watch our.. Roll Pinwheel Appetizers Recipes on Yummly
 
 Baked chicken bread pin wheel roll is one of the most popular of recent trending foods in the world. It is appreciated by millions every day. It is easy, it's quick, it tastes delicious. Baked chicken bread pin wheel roll is something which I have loved my whole life. They're nice and they look fantastic.
 
@@ -84,8 +84,8 @@ These roll-ups are really just garlic bread in pinwheel form, and that&#39;s exa
 
 ##### Steps to make Baked chicken bread pin wheel roll:
 
-1. 1st step filling ready karain onion ko sote karain add all ingredients last mn milk add kr k resha chicken add karain v well cooked &amp;mixing &amp;chill
-1. Bread slices k kinare cut karain belan se below lain bread ko first bread ko tomatto ketchup spread karain 2nd bread rakh kr Chiken ki filling karain third bread rakh kr green chatni ya cheez cilice jo pasand ho roll karain raper mn.&amp;fridge half hour roll ko wheel Shap mn cut karain egg brush karain or back karain 10 minutes 180%pe &amp;enjoy aftar
+1. 1st step filling ready karain onion ko sote karain add all ingredients last mn milk add kr k resha chicken add karain v well cooked &mixing &chill
+1. Bread slices k kinare cut karain belan se below lain bread ko first bread ko tomatto ketchup spread karain 2nd bread rakh kr Chiken ki filling karain third bread rakh kr green chatni ya cheez cilice jo pasand ho roll karain raper mn.&fridge half hour roll ko wheel Shap mn cut karain egg brush karain or back karain 10 minutes 180%pe &enjoy aftar
 1. Ready to serve and ENJOY!
 
 They are done when dough is cooked. These crunchy baked chicken tenders are life changing! The secret to truly golden, truly crunchy baked breaded chicken is to toast the breadcrumbs in the oven first. Bonus: No dirty fingers with my quick crumbing technique! Bread Pinwheels, crispy and soft, is an easy yummy starter for parties and a snack for kids as well as adults. 

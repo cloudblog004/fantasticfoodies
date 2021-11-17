@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Speedy Bachelor&amp;#39;s Chicken (easy and tasty)"
-title: "Recipe of Speedy Bachelor&amp;#39;s Chicken (easy and tasty)"
+description: "Recipe of Speedy Bachelor's Chicken (easy and tasty)"
+title: "Recipe of Speedy Bachelor's Chicken (easy and tasty)"
 slug: 658-recipe-of-speedy-bachelor-and-39-s-chicken-easy-and-tasty
 date: 2022-02-19T12:52:27.792Z
 image: https://img-global.cpcdn.com/recipes/6585466422820864/680x482cq70/bachelors-chicken-easy-and-tasty-recipe-main-photo.jpg

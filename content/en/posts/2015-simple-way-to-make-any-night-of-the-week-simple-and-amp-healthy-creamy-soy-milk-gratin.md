@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Make Any-night-of-the-week Simple &amp;amp; Healthy Creamy Soy Milk Gratin"
-title: "Simple Way to Make Any-night-of-the-week Simple &amp;amp; Healthy Creamy Soy Milk Gratin"
+description: "Simple Way to Make Any-night-of-the-week Simple & Healthy Creamy Soy Milk Gratin"
+title: "Simple Way to Make Any-night-of-the-week Simple & Healthy Creamy Soy Milk Gratin"
 slug: 2015-simple-way-to-make-any-night-of-the-week-simple-and-amp-healthy-creamy-soy-milk-gratin
 date: 2021-12-01T22:56:22.169Z
 image: https://img-global.cpcdn.com/recipes/5307487105318912/680x482cq70/simple-healthy-creamy-soy-milk-gratin-recipe-main-photo.jpg
@@ -49,20 +49,20 @@ recipecategory: Dinner
 ---
 
 
-![Simple &amp; Healthy Creamy Soy Milk Gratin](https://img-global.cpcdn.com/recipes/5307487105318912/680x482cq70/simple-healthy-creamy-soy-milk-gratin-recipe-main-photo.jpg)
+![Simple & Healthy Creamy Soy Milk Gratin](https://img-global.cpcdn.com/recipes/5307487105318912/680x482cq70/simple-healthy-creamy-soy-milk-gratin-recipe-main-photo.jpg)
 
-Hey everyone, I hope you are having an incredible day today. Today, I will show you a way to make a special dish, simple &amp; healthy creamy soy milk gratin. It is one of my favorites. For mine, I am going to make it a little bit unique. This will be really delicious.
+Hey everyone, I hope you are having an incredible day today. Today, I will show you a way to make a special dish, simple & healthy creamy soy milk gratin. It is one of my favorites. For mine, I am going to make it a little bit unique. This will be really delicious.
 
-For friends im Sasha. Перевод слова simple, американское и британское произношение, транскрипция, словосочетания, однокоренные слова, примеры использования. Does simple disable full-screen optimization in the steam settings? From Middle English symple, simple, from Old French and French simple, from Latin simplex (&#34;simple&#34;, literally &#34;onefold&#34;) (as opposed to duplex (&#34;double&#34;, literally &#34;twofold&#34;)), from semel (&#34;the same&#34;) + plicō (&#34;I fold&#34;). Simple definition is - not hard to understand or do.
+For friends im Sasha. Перевод слова simple, американское и британское произношение, транскрипция, словосочетания, однокоренные слова, примеры использования. Does simple disable full-screen optimization in the steam settings? From Middle English symple, simple, from Old French and French simple, from Latin simplex (*simple*, literally *onefold*) (as opposed to duplex (*double*, literally *twofold*)), from semel (*the same*) + plicō (*I fold*). Simple definition is - not hard to understand or do.
 
-Simple &amp; Healthy Creamy Soy Milk Gratin is one of the most favored of recent trending foods on earth. It's easy, it's fast, it tastes yummy. It's enjoyed by millions every day. Simple &amp; Healthy Creamy Soy Milk Gratin is something which I've loved my whole life. They're nice and they look wonderful.
+Simple & Healthy Creamy Soy Milk Gratin is one of the most favored of recent trending foods on earth. It's easy, it's fast, it tastes yummy. It's enjoyed by millions every day. Simple & Healthy Creamy Soy Milk Gratin is something which I've loved my whole life. They're nice and they look wonderful.
 
 
-To begin with this particular recipe, we have to prepare a few ingredients. You can cook simple &amp; healthy creamy soy milk gratin using 9 ingredients and 7 steps. Here is how you can achieve it.
+To begin with this particular recipe, we have to prepare a few ingredients. You can cook simple & healthy creamy soy milk gratin using 9 ingredients and 7 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Simple &amp; Healthy Creamy Soy Milk Gratin:
+##### The ingredients needed to make Simple & Healthy Creamy Soy Milk Gratin:
 
 1. Prepare 2 Onion
 1. Get 1 Thickly sliced bacon (or chicken thigh)
@@ -79,7 +79,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 
 <!--inarticleads2-->
 
-##### Steps to make Simple &amp; Healthy Creamy Soy Milk Gratin:
+##### Steps to make Simple & Healthy Creamy Soy Milk Gratin:
 
 1. [Preparation] Cut the onion and bacon into 5 mm wide pieces. Boil the macaroni.
 1. Add the water and the onions from Step 1 into a frying pan, cover with a lid and steam over medium heat. Stir occasionally and once the onions are translucent, move onto the next step.
@@ -92,4 +92,4 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 
 
 
-So that is going to wrap this up with this exceptional food simple &amp; healthy creamy soy milk gratin recipe. Thank you very much for reading. I'm confident you will make this at home. There is gonna be interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
+So that is going to wrap this up with this exceptional food simple & healthy creamy soy milk gratin recipe. Thank you very much for reading. I'm confident you will make this at home. There is gonna be interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

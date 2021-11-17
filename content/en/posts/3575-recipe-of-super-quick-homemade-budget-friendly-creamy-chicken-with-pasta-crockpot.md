@@ -47,7 +47,7 @@ recipecategory: Dessert
 
 Hey everyone, hope you're having an incredible day today. Today, we're going to prepare a distinctive dish, budget friendly creamy chicken with pasta (crockpot). It is one of my favorites food recipes. This time, I will make it a bit unique. This will be really delicious.
 
-Cooking Chicken &amp; Pasta all in one Crockpot full of Delicious Italian flavor. * CROCKPOT CHICKEN ALFREDO EASY RECIPE Put chicken in crockpot, cover with soup. Turn crockpot on high and cook it all day. Take chicken out of crockpot and let it cool.
+Cooking Chicken & Pasta all in one Crockpot full of Delicious Italian flavor. * CROCKPOT CHICKEN ALFREDO EASY RECIPE Put chicken in crockpot, cover with soup. Turn crockpot on high and cook it all day. Take chicken out of crockpot and let it cool.
 
 Budget friendly creamy chicken with pasta (crockpot) is one of the most popular of current trending meals in the world. It is enjoyed by millions daily. It's easy, it is fast, it tastes yummy. Budget friendly creamy chicken with pasta (crockpot) is something which I've loved my whole life. They're fine and they look wonderful.
 

@@ -26,8 +26,8 @@ recipeingredient:
 - " mozzarella"
 recipeinstructions:
 - "Thick slice potato (like large coins) -boil until tender"
-- "Heat mix cream of broccoli/cheddar broccoli soup mix &amp; water (min 10 min)"
-- "Slice chicken semi-thin, add to hot olive oil &amp; onion in skillet (seasoning with pinches of limesalt, curry, &amp; fenugreek. -optional pinches of turmeric for color)"
+- "Heat mix cream of broccoli/cheddar broccoli soup mix & water (min 10 min)"
+- "Slice chicken semi-thin, add to hot olive oil & onion in skillet (seasoning with pinches of limesalt, curry, & fenugreek. -optional pinches of turmeric for color)"
 - "In a casserole dish, layer soup mix, broccoli, potato, chicken, and mozzarella. Leaving mozzarella as final topping"
 - "Bake at 375 for 30 min, or until cheese is bubbling brown"
 - "We serve in bowls with French baguette or fresh khubz"
@@ -68,7 +68,7 @@ To get started with this particular recipe, we have to prepare a few ingredients
 
 1. Get  boneless chicken breast
 1. Get 1 large potato
-1. Get head broccoli -rinsed &amp; chopped
+1. Get head broccoli -rinsed & chopped
 1. Make ready  cream of broccoli can soup
 1. Prepare  cheddar broccoli powdered soup mix (optional)
 1. Make ready  chopped onion
@@ -86,8 +86,8 @@ To get started with this particular recipe, we have to prepare a few ingredients
 ##### Instructions to make Sultan Chicken Broccoli Potato Au Gratin:
 
 1. Thick slice potato (like large coins) -boil until tender
-1. Heat mix cream of broccoli/cheddar broccoli soup mix &amp; water (min 10 min)
-1. Slice chicken semi-thin, add to hot olive oil &amp; onion in skillet (seasoning with pinches of limesalt, curry, &amp; fenugreek. -optional pinches of turmeric for color)
+1. Heat mix cream of broccoli/cheddar broccoli soup mix & water (min 10 min)
+1. Slice chicken semi-thin, add to hot olive oil & onion in skillet (seasoning with pinches of limesalt, curry, & fenugreek. -optional pinches of turmeric for color)
 1. In a casserole dish, layer soup mix, broccoli, potato, chicken, and mozzarella. Leaving mozzarella as final topping
 1. Bake at 375 for 30 min, or until cheese is bubbling brown
 1. We serve in bowls with French baguette or fresh khubz

@@ -94,6 +94,6 @@ Tamagoyaki (Japanese Egg Omelet). featured in Japanese Lunch. With the rolled eg
 1. Egg 🥚 roll (tamagoyaki)omelet is ready to serve.
 1. Ready to serve and ENJOY!
 
-Lift up the rolled egg and let the mixture to flow under it. Japanese omelet (tamagoyaki) is a staple side dish in Japanese food culture. Each household in Japan has a different recipe, but a seasoned egg is usually cooked and rolled in multiple layers. Our method is a basic one that gives you both sweet and savory flavors in your omelet. Tamagoyaki (卵焼き or 玉子焼き, literally &#34;grilled egg&#34;) is a type of Japanese omelette, which is made by rolling together several layers of fried egg. 
+Lift up the rolled egg and let the mixture to flow under it. Japanese omelet (tamagoyaki) is a staple side dish in Japanese food culture. Each household in Japan has a different recipe, but a seasoned egg is usually cooked and rolled in multiple layers. Our method is a basic one that gives you both sweet and savory flavors in your omelet. Tamagoyaki (卵焼き or 玉子焼き, literally *grilled egg*) is a type of Japanese omelette, which is made by rolling together several layers of fried egg. 
 
 So that's going to wrap this up with this special food egg 🥚 roll(tamagoyaki) omelet recipe. Thanks so much for reading. I'm confident you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

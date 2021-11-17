@@ -21,7 +21,7 @@ recipeingredient:
 - "1 packages Ritz cracker"
 recipeinstructions:
 - "Preheat oven to 400"
-- "Mix all but crackers &amp; spread in dish"
+- "Mix all but crackers & spread in dish"
 - "Crush crackers and spread on top"
 - "Cook 45 min."
 - "Ready to serve and ENJOY!"
@@ -72,7 +72,7 @@ Find healthy, delicious potato casserole, from the food and nutrition experts at
 ##### Instructions to make Potato casserole:
 
 1. Preheat oven to 400
-1. Mix all but crackers &amp; spread in dish
+1. Mix all but crackers & spread in dish
 1. Crush crackers and spread on top
 1. Cook 45 min.
 1. Ready to serve and ENJOY!

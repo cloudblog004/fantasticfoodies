@@ -66,7 +66,7 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 ##### The ingredients needed to make Quick Refreshing Pasta Salad:
 
 1. Take 6 each romaine lettuce leaves (torn into pieces)
-1. Get 1 1/2 cup chicken breast (cooked &amp; diced)
+1. Get 1 1/2 cup chicken breast (cooked & diced)
 1. Take 1 cup small rotini noodles (or similar)
 1. Get 2 tbsp Olive oil
 1. Get 1 cup broccoli florets

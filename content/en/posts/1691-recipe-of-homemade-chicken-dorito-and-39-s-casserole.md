@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Homemade Chicken Dorito&amp;#39;s Casserole"
-title: "Recipe of Homemade Chicken Dorito&amp;#39;s Casserole"
+description: "Recipe of Homemade Chicken Dorito's Casserole"
+title: "Recipe of Homemade Chicken Dorito's Casserole"
 slug: 1691-recipe-of-homemade-chicken-dorito-and-39-s-casserole
 date: 2021-12-29T18:50:55.716Z
 image: https://img-global.cpcdn.com/recipes/a1447fe85c6fd458/680x482cq70/chicken-doritos-casserole-recipe-main-photo.jpg

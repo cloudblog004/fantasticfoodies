@@ -27,7 +27,7 @@ recipeingredient:
 recipeinstructions:
 - "MARINADE:  In small bowl, combine garlic, mustard, honey, thyme and cayenne. Combine chicken and 2/3 c of marinade in zip-top.  Refrigerate bag, turning and mixing through the bag 2-3 times, 8 hours or overnight.  Cover and refrigerate remaining mustard mixture."
 - "ROAST:  Arrange one oven rack in highest position. Preheat broiler to high.  Line baking sheet with foil.  Place peppers in sheet and broil until all sides blackened using tongs to turn.  Transfer to bowl and cover tightly with plastic wrap.  When cool, remove skin, stems and seeds.  Slice thin and set aside."
-- "BROIL:  Arrange oven rack 7-8&#34; from top element.  Line large rimmed baking sheet with foil and spray with cooking spray.  Arrange chicken on sheet and diced marinade. Broil on high until tops are golden brown,  7-10 min. Turn chicken and broil until cooked through, 3-5min.  Remove from oven and let cool to room temp."
+- "BROIL:  Arrange oven rack 7-8* from top element.  Line large rimmed baking sheet with foil and spray with cooking spray.  Arrange chicken on sheet and diced marinade. Broil on high until tops are golden brown,  7-10 min. Turn chicken and broil until cooked through, 3-5min.  Remove from oven and let cool to room temp."
 - "BAKE:  In 9x13-inch baking dish, add peppers and top with chicken.  Turn oven to 300°F.  Pour reserved mustard mixture over chicken and peppers, toss to coat.  Bake uncovered until heated through, 20-25 min.  Sprinkle with almonds and parsley and serve."
 - "Ready to serve and ENJOY!"
 categories:
@@ -84,7 +84,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can cook ba
 
 1. MARINADE:  In small bowl, combine garlic, mustard, honey, thyme and cayenne. Combine chicken and 2/3 c of marinade in zip-top.  Refrigerate bag, turning and mixing through the bag 2-3 times, 8 hours or overnight.  Cover and refrigerate remaining mustard mixture.
 1. ROAST:  Arrange one oven rack in highest position. Preheat broiler to high.  Line baking sheet with foil.  Place peppers in sheet and broil until all sides blackened using tongs to turn.  Transfer to bowl and cover tightly with plastic wrap.  When cool, remove skin, stems and seeds.  Slice thin and set aside.
-1. BROIL:  Arrange oven rack 7-8&#34; from top element.  Line large rimmed baking sheet with foil and spray with cooking spray.  Arrange chicken on sheet and diced marinade. Broil on high until tops are golden brown,  7-10 min. Turn chicken and broil until cooked through, 3-5min.  Remove from oven and let cool to room temp.
+1. BROIL:  Arrange oven rack 7-8* from top element.  Line large rimmed baking sheet with foil and spray with cooking spray.  Arrange chicken on sheet and diced marinade. Broil on high until tops are golden brown,  7-10 min. Turn chicken and broil until cooked through, 3-5min.  Remove from oven and let cool to room temp.
 1. BAKE:  In 9x13-inch baking dish, add peppers and top with chicken.  Turn oven to 300°F.  Pour reserved mustard mixture over chicken and peppers, toss to coat.  Bake uncovered until heated through, 20-25 min.  Sprinkle with almonds and parsley and serve.
 1. Ready to serve and ENJOY!
 

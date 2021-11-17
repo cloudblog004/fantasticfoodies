@@ -1,6 +1,6 @@
 ---
-description: "How to Prepare Perfect Brad&amp;#39;s citrus chicken bake"
-title: "How to Prepare Perfect Brad&amp;#39;s citrus chicken bake"
+description: "How to Prepare Perfect Brad's citrus chicken bake"
+title: "How to Prepare Perfect Brad's citrus chicken bake"
 slug: 2689-how-to-prepare-perfect-brad-and-39-s-citrus-chicken-bake
 date: 2021-12-05T21:48:33.933Z
 image: https://img-global.cpcdn.com/recipes/44ed9b4111579a32/680x482cq70/brads-citrus-chicken-bake-recipe-main-photo.jpg

@@ -50,7 +50,7 @@ recipecategory: Dinner
 
 Hey everyone, it is me, Dave, welcome to our recipe site. Today, I will show you a way to make a distinctive dish, chicken and tofu ginger stir-fry. One of my favorites. For mine, I'm gonna make it a little bit unique. This is gonna smell and look delicious.
 
-Cut off any excess fat from the chicken thigh and slice diagonally into bite size pieces. Be the first to rate &amp; review! Jump to the Ginger Chicken Stir Fry Recipe or read on to see our tips for making it. Make the best stir fry at home.
+Cut off any excess fat from the chicken thigh and slice diagonally into bite size pieces. Be the first to rate & review! Jump to the Ginger Chicken Stir Fry Recipe or read on to see our tips for making it. Make the best stir fry at home.
 
 Chicken and Tofu Ginger Stir-Fry is one of the most favored of current trending foods on earth. It's simple, it is quick, it tastes delicious. It's enjoyed by millions every day. Chicken and Tofu Ginger Stir-Fry is something that I've loved my whole life. They're nice and they look fantastic.
 

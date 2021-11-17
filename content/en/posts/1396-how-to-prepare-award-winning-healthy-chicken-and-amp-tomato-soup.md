@@ -1,6 +1,6 @@
 ---
-description: "How to Prepare Award-winning Healthy Chicken &amp;amp; Tomato Soup"
-title: "How to Prepare Award-winning Healthy Chicken &amp;amp; Tomato Soup"
+description: "How to Prepare Award-winning Healthy Chicken & Tomato Soup"
+title: "How to Prepare Award-winning Healthy Chicken & Tomato Soup"
 slug: 1396-how-to-prepare-award-winning-healthy-chicken-and-amp-tomato-soup
 date: 2021-12-23T14:12:23.222Z
 image: https://img-global.cpcdn.com/recipes/6422565573623808/680x482cq70/healthy-chicken-tomato-soup-recipe-main-photo.jpg
@@ -54,20 +54,20 @@ recipecategory: Dessert
 ---
 
 
-![Healthy Chicken &amp; Tomato Soup](https://img-global.cpcdn.com/recipes/6422565573623808/680x482cq70/healthy-chicken-tomato-soup-recipe-main-photo.jpg)
+![Healthy Chicken & Tomato Soup](https://img-global.cpcdn.com/recipes/6422565573623808/680x482cq70/healthy-chicken-tomato-soup-recipe-main-photo.jpg)
 
-Hey everyone, hope you are having an incredible day today. Today, I'm gonna show you how to make a special dish, healthy chicken &amp; tomato soup. One of my favorites. For mine, I am going to make it a bit tasty. This will be really delicious.
-
-
-
-Healthy Chicken &amp; Tomato Soup is one of the most favored of current trending foods on earth. It's enjoyed by millions daily. It is easy, it's quick, it tastes yummy. Healthy Chicken &amp; Tomato Soup is something which I have loved my entire life. They're fine and they look wonderful.
+Hey everyone, hope you are having an incredible day today. Today, I'm gonna show you how to make a special dish, healthy chicken & tomato soup. One of my favorites. For mine, I am going to make it a bit tasty. This will be really delicious.
 
 
-To get started with this particular recipe, we have to first prepare a few ingredients. You can have healthy chicken &amp; tomato soup using 13 ingredients and 8 steps. Here is how you can achieve it.
+
+Healthy Chicken & Tomato Soup is one of the most favored of current trending foods on earth. It's enjoyed by millions daily. It is easy, it's quick, it tastes yummy. Healthy Chicken & Tomato Soup is something which I have loved my entire life. They're fine and they look wonderful.
+
+
+To get started with this particular recipe, we have to first prepare a few ingredients. You can have healthy chicken & tomato soup using 13 ingredients and 8 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Healthy Chicken &amp; Tomato Soup:
+##### The ingredients needed to make Healthy Chicken & Tomato Soup:
 
 1. Prepare 260 grams Chicken breast
 1. Take 1 Onion (sliced)
@@ -88,7 +88,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 
 <!--inarticleads2-->
 
-##### Instructions to make Healthy Chicken &amp; Tomato Soup:
+##### Instructions to make Healthy Chicken & Tomato Soup:
 
 1. Cut the chicken into bite-sized pieces. Finely chop the carrots and garlic and thinly slice the onion. Blend the tomatoes in a food processor.
 1. Add the onions to a heat-resistant container and place the butter over the top. Wrap with cling film and microwave for 5-6 minutes.
@@ -102,4 +102,4 @@ To get started with this particular recipe, we have to first prepare a few ingre
 
 
 
-So that is going to wrap this up for this special food healthy chicken &amp; tomato soup recipe. Thank you very much for reading. I am sure that you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
+So that is going to wrap this up for this special food healthy chicken & tomato soup recipe. Thank you very much for reading. I am sure that you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

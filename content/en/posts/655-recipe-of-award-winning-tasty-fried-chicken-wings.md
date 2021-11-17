@@ -29,7 +29,7 @@ recipeingredient:
 - "1/4 tsp chili powder"
 recipeinstructions:
 - "Cut wings in the joint into two parts (also cut off the wings tip then discard them or use them for another purpose). Clean the chicken, place in a medium bowl and set aside."
-- "Prepare a marinade. In a bowl, combine and stir all ingredients as in &#34;marinade&#34;."
+- "Prepare a marinade. In a bowl, combine and stir all ingredients as in *marinade*."
 - "Pour all of the marinade over the chicken and mix thoroughly. Then, marinate the chicken at room temperature for about 1.5 hours."
 - "When you finish to matinate the chicken, prepare a frying pan and move the whole marinated chicken into the pan. Add coke. Cook for about 20 up to 25 minutes, until the coke is boiled away."
 - "Prepare to fry the chicken. Heat oil in a frying pan and fry the chicken for 5 minutes (be aware of burnt chicken since the marinade contains honey which is very sensitive with heat)."
@@ -90,7 +90,7 @@ Fried chicken wings are a fun, delicious addition to any meal, not to mention th
 ##### Instructions to make Tasty fried chicken wings:
 
 1. Cut wings in the joint into two parts (also cut off the wings tip then discard them or use them for another purpose). Clean the chicken, place in a medium bowl and set aside.
-1. Prepare a marinade. In a bowl, combine and stir all ingredients as in &#34;marinade&#34;.
+1. Prepare a marinade. In a bowl, combine and stir all ingredients as in *marinade*.
 1. Pour all of the marinade over the chicken and mix thoroughly. Then, marinate the chicken at room temperature for about 1.5 hours.
 1. When you finish to matinate the chicken, prepare a frying pan and move the whole marinated chicken into the pan. Add coke. Cook for about 20 up to 25 minutes, until the coke is boiled away.
 1. Prepare to fry the chicken. Heat oil in a frying pan and fry the chicken for 5 minutes (be aware of burnt chicken since the marinade contains honey which is very sensitive with heat).

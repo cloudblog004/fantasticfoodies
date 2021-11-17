@@ -29,7 +29,7 @@ recipeinstructions:
 - "Lightly coat a casserole dish with non stick spray"
 - "In a resealable bag shake the bread crumbs, dry ranch mix, garlic powder, and parmesan cheese until well blended."
 - "Take each chicken leg and shake up in the coating until covered and set in casserole dish"
-- "Mix (washed &amp; sliced) mushrooms, butter, salt, and pepper in a bowl until covered."
+- "Mix (washed & sliced) mushrooms, butter, salt, and pepper in a bowl until covered."
 - "Pour over top of chicken legs."
 - "Sprinkle some left over coating mix on top of mushrooms."
 - "Bake in the oven for 50 to 55 minutes until cooked throughly."
@@ -91,7 +91,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Lightly coat a casserole dish with non stick spray
 1. In a resealable bag shake the bread crumbs, dry ranch mix, garlic powder, and parmesan cheese until well blended.
 1. Take each chicken leg and shake up in the coating until covered and set in casserole dish
-1. Mix (washed &amp; sliced) mushrooms, butter, salt, and pepper in a bowl until covered.
+1. Mix (washed & sliced) mushrooms, butter, salt, and pepper in a bowl until covered.
 1. Pour over top of chicken legs.
 1. Sprinkle some left over coating mix on top of mushrooms.
 1. Bake in the oven for 50 to 55 minutes until cooked throughly.

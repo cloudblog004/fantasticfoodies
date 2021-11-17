@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Favorite Mom&amp;#39;s Crock Pot Creamy Chicken Noodle Soup (From Carcass)"
-title: "Recipe of Favorite Mom&amp;#39;s Crock Pot Creamy Chicken Noodle Soup (From Carcass)"
+description: "Recipe of Favorite Mom's Crock Pot Creamy Chicken Noodle Soup (From Carcass)"
+title: "Recipe of Favorite Mom's Crock Pot Creamy Chicken Noodle Soup (From Carcass)"
 slug: 221-recipe-of-favorite-mom-and-39-s-crock-pot-creamy-chicken-noodle-soup-from-carcass
 date: 2022-05-02T10:56:01.484Z
 image: https://img-global.cpcdn.com/recipes/6391191513858048/680x482cq70/moms-crock-pot-creamy-chicken-noodle-soup-from-carcass-recipe-main-photo.jpg
@@ -30,7 +30,7 @@ recipeinstructions:
 - "Slice carrots, celery and mince onion. Keep onion separate from carrots and celery as it&#39;s going in later than the other two."
 - "By this time your chicken should be cooled enough to pull the meat off the carcass. Be sure to feel ALL the meat you pick off so you don&#39;t miss any bone pieces."
 - "Heat the pot on the stove top to medium high with either 1 tbsp oil or butter. After heated, put in carrots and celery and sauté for about 8-10 mins, you don&#39;t want it completely soft but starting to soften."
-- "Add onion and stir often with celery and carrots. Once the onions are tender and start to turn clear, add the chicken meat &amp; the &#34;chicken stock&#34; water from the crock pot to the stove pot. Bring to a boil."
+- "Add onion and stir often with celery and carrots. Once the onions are tender and start to turn clear, add the chicken meat & the *chicken stock* water from the crock pot to the stove pot. Bring to a boil."
 - "Add egg noodles, cover and turn down to medium heat. Boil until the noodles are done, stirring occasionally."
 - "Add cream of chicken soup, stir thoroughly."
 - "Add salt and pepper to taste. Everyone is different, that&#39;s why I didn&#39;t use a measurement."
@@ -78,7 +78,7 @@ To get started with this recipe, we have to prepare a few ingredients. You can h
 1. Prepare 1 cup Celery
 1. Get 1 cup Minced onion (fresh)
 1. Make ready 2 cup Uncooked Egg Noodles
-1. Prepare 1 Salt &amp; Pepper to taste
+1. Prepare 1 Salt & Pepper to taste
 
 
 
@@ -94,7 +94,7 @@ To get started with this recipe, we have to prepare a few ingredients. You can h
 1. Slice carrots, celery and mince onion. Keep onion separate from carrots and celery as it&#39;s going in later than the other two.
 1. By this time your chicken should be cooled enough to pull the meat off the carcass. Be sure to feel ALL the meat you pick off so you don&#39;t miss any bone pieces.
 1. Heat the pot on the stove top to medium high with either 1 tbsp oil or butter. After heated, put in carrots and celery and sauté for about 8-10 mins, you don&#39;t want it completely soft but starting to soften.
-1. Add onion and stir often with celery and carrots. Once the onions are tender and start to turn clear, add the chicken meat &amp; the &#34;chicken stock&#34; water from the crock pot to the stove pot. Bring to a boil.
+1. Add onion and stir often with celery and carrots. Once the onions are tender and start to turn clear, add the chicken meat & the *chicken stock* water from the crock pot to the stove pot. Bring to a boil.
 1. Add egg noodles, cover and turn down to medium heat. Boil until the noodles are done, stirring occasionally.
 1. Add cream of chicken soup, stir thoroughly.
 1. Add salt and pepper to taste. Everyone is different, that&#39;s why I didn&#39;t use a measurement.

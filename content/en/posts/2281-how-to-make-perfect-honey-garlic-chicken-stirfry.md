@@ -38,7 +38,7 @@ recipeinstructions:
 - "Cook mushrooms and carrots and onions first. Onions should be transparent and mushrooms should shrink all teeny tiny."
 - "Add broccoli, peppers. Do that for about 10 minutes, then add some remaining crushed garlic for about a minute. Then add chicken."
 - "Add chicken. Wait a few more minutes. Add marinade. Wait a few more, until marinade is hot."
-- "Add cornstarch into a half cup of water, stir around, Introduce to the wok like &#34;food, this is cornstarch.. cornstarch this is food&#34; then watch your sauce get extra thicc."
+- "Add cornstarch into a half cup of water, stir around, Introduce to the wok like *food, this is cornstarch.. cornstarch this is food* then watch your sauce get extra thicc."
 - "Once it looks done, it&#39;s done. Add seeds and flakes if you want."
 - "..Oh shit I forgot the rice again."
 - "Ready to serve and ENJOY!"
@@ -107,7 +107,7 @@ To get started with this recipe, we must prepare a few ingredients. You can have
 1. Cook mushrooms and carrots and onions first. Onions should be transparent and mushrooms should shrink all teeny tiny.
 1. Add broccoli, peppers. Do that for about 10 minutes, then add some remaining crushed garlic for about a minute. Then add chicken.
 1. Add chicken. Wait a few more minutes. Add marinade. Wait a few more, until marinade is hot.
-1. Add cornstarch into a half cup of water, stir around, Introduce to the wok like &#34;food, this is cornstarch.. cornstarch this is food&#34; then watch your sauce get extra thicc.
+1. Add cornstarch into a half cup of water, stir around, Introduce to the wok like *food, this is cornstarch.. cornstarch this is food* then watch your sauce get extra thicc.
 1. Once it looks done, it&#39;s done. Add seeds and flakes if you want.
 1. ..Oh shit I forgot the rice again.
 1. Ready to serve and ENJOY!

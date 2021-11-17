@@ -88,6 +88,6 @@ As a child growing up in Ghana, I gobbled Jollof down at family gatherings, birt
 1. Your delicious rice is ready. Serve hot with any soft drink or a cup of water 🙌🙌.. Still your favorite chef.
 1. Ready to serve and ENJOY!
 
-Growing up in Nigeria, Palm oil rice was a staple. It was easy to cook without any hassle. It involves the use of palm oil, spicy peppers, cray fish and dry fish. Jollof Rice &amp; Fried PlantainWash rice thoroughly, and parboil. Remove from heat and allow to cool down by covering pot halfway with the lid. 
+Growing up in Nigeria, Palm oil rice was a staple. It was easy to cook without any hassle. It involves the use of palm oil, spicy peppers, cray fish and dry fish. Jollof Rice & Fried PlantainWash rice thoroughly, and parboil. Remove from heat and allow to cool down by covering pot halfway with the lid. 
 
 So that is going to wrap it up for this special food local jollof rice and fried plantain recipe. Thanks so much for reading. I'm sure you will make this at home. There's gonna be interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

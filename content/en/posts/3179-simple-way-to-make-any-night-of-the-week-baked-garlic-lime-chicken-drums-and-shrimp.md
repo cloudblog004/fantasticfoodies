@@ -78,7 +78,7 @@ Hey everyone, it's me, Dave, welcome to my recipe page. Today, I'm gonna show yo
 
 Baked Garlic-Lime Chicken Drums and Shrimp is one of the most well liked of recent trending foods in the world. It's appreciated by millions daily. It is easy, it's fast, it tastes yummy. They're nice and they look fantastic. Baked Garlic-Lime Chicken Drums and Shrimp is something which I've loved my whole life.
 
-Juicy Baked Chicken Drumsticks in Lemon Garlic Butter Sauce - Easy Chicken Recipe. easy &amp; flavorful chicken thigh recipe. Chicken drumsticks marinated with lime juice, garlic, and spices are roasted until dark and tender in this recipe that&#39;s sure to please. This dish was amazing but I did make some changes.
+Juicy Baked Chicken Drumsticks in Lemon Garlic Butter Sauce - Easy Chicken Recipe. easy & flavorful chicken thigh recipe. Chicken drumsticks marinated with lime juice, garlic, and spices are roasted until dark and tender in this recipe that&#39;s sure to please. This dish was amazing but I did make some changes.
 
 
 To begin with this particular recipe, we have to prepare a few ingredients. You can cook baked garlic-lime chicken drums and shrimp using 22 ingredients and 17 steps. Here is how you cook that.

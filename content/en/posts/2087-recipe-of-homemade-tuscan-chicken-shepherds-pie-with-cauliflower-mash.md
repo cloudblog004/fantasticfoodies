@@ -84,7 +84,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 1. Make ready 1 egg white
 1. Prepare 1 tbsp minced garlic
 1. Get 1/2 cup chicken/vegetable stock
-1. Take  Vegetarian option: substitute chicken for zucchini, mushrooms &amp; spinach
+1. Take  Vegetarian option: substitute chicken for zucchini, mushrooms & spinach
 
 
 

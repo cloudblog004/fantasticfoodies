@@ -84,7 +84,7 @@ To get started with this recipe, we have to prepare a few ingredients. You can c
 1. Get 1 clove garlic
 
 
-These burritos are loaded with chicken, rice, beans and Mexican style flavors. Thursday nights are usually the night in my household that we don&#39;t have. Healthy, freezer friendly green chile chicken burritos packed with veggies &amp; protein. This easy chicken burrito recipe makes quick dinners for They were filled with green chile, bell peppers, potatoes, recaito, salsa and cheese; as soon as I took one look I knew I was going to have to recreate. 
+These burritos are loaded with chicken, rice, beans and Mexican style flavors. Thursday nights are usually the night in my household that we don&#39;t have. Healthy, freezer friendly green chile chicken burritos packed with veggies & protein. This easy chicken burrito recipe makes quick dinners for They were filled with green chile, bell peppers, potatoes, recaito, salsa and cheese; as soon as I took one look I knew I was going to have to recreate. 
 
 <!--inarticleads2-->
 
@@ -100,6 +100,6 @@ These burritos are loaded with chicken, rice, beans and Mexican style flavors. T
 1. For a crispy burrito slightly toast the burrito in a medium heat pan for 1 min on each side
 1. Ready to serve and ENJOY!
 
-Healthy, freezer friendly green chile chicken burritos packed with veggies &amp; protein. This easy chicken burrito recipe makes quick dinners for They were filled with green chile, bell peppers, potatoes, recaito, salsa and cheese; as soon as I took one look I knew I was going to have to recreate. Easy Chicken Burrito Bowl made with chicken, fajita veggies, cauliflower rice, &amp; guacamole make a fresh, inexpensive, and healthy meal. I&#39;ve been making this chicken burrito bowl for years now (they were a client favorite when I had my meal prep business) and am finally sharing! Healthy and delicious burrito bowl meal prep recipe made with ground chicken. 
+Healthy, freezer friendly green chile chicken burritos packed with veggies & protein. This easy chicken burrito recipe makes quick dinners for They were filled with green chile, bell peppers, potatoes, recaito, salsa and cheese; as soon as I took one look I knew I was going to have to recreate. Easy Chicken Burrito Bowl made with chicken, fajita veggies, cauliflower rice, & guacamole make a fresh, inexpensive, and healthy meal. I&#39;ve been making this chicken burrito bowl for years now (they were a client favorite when I had my meal prep business) and am finally sharing! Healthy and delicious burrito bowl meal prep recipe made with ground chicken. 
 
 So that's going to wrap this up with this special food healthy chicken and bell pepper burrito recipe. Thank you very much for reading. I'm sure that you will make this at home. There's gonna be interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Perfect Healthy Chicken &amp;amp; Veggie Curry"
-title: "Steps to Prepare Perfect Healthy Chicken &amp;amp; Veggie Curry"
+description: "Steps to Prepare Perfect Healthy Chicken & Veggie Curry"
+title: "Steps to Prepare Perfect Healthy Chicken & Veggie Curry"
 slug: 1393-steps-to-prepare-perfect-healthy-chicken-and-amp-veggie-curry
 date: 2022-03-15T05:11:07.851Z
 image: https://img-global.cpcdn.com/recipes/5844917034156032/680x482cq70/healthy-chicken-veggie-curry-recipe-main-photo.jpg
@@ -62,20 +62,20 @@ recipecategory: Dessert
 ---
 
 
-![Healthy Chicken &amp; Veggie Curry](https://img-global.cpcdn.com/recipes/5844917034156032/680x482cq70/healthy-chicken-veggie-curry-recipe-main-photo.jpg)
+![Healthy Chicken & Veggie Curry](https://img-global.cpcdn.com/recipes/5844917034156032/680x482cq70/healthy-chicken-veggie-curry-recipe-main-photo.jpg)
 
-Hey everyone, I hope you are having an amazing day today. Today, I'm gonna show you how to make a distinctive dish, healthy chicken &amp; veggie curry. It is one of my favorites. This time, I am going to make it a bit unique. This is gonna smell and look delicious.
-
-
-
-Healthy Chicken &amp; Veggie Curry is one of the most well liked of recent trending foods on earth. It is easy, it is fast, it tastes yummy. It is appreciated by millions daily. They're fine and they look wonderful. Healthy Chicken &amp; Veggie Curry is something that I've loved my whole life.
+Hey everyone, I hope you are having an amazing day today. Today, I'm gonna show you how to make a distinctive dish, healthy chicken & veggie curry. It is one of my favorites. This time, I am going to make it a bit unique. This is gonna smell and look delicious.
 
 
-To get started with this recipe, we have to first prepare a few components. You can cook healthy chicken &amp; veggie curry using 16 ingredients and 13 steps. Here is how you cook it.
+
+Healthy Chicken & Veggie Curry is one of the most well liked of recent trending foods on earth. It is easy, it is fast, it tastes yummy. It is appreciated by millions daily. They're fine and they look wonderful. Healthy Chicken & Veggie Curry is something that I've loved my whole life.
+
+
+To get started with this recipe, we have to first prepare a few components. You can cook healthy chicken & veggie curry using 16 ingredients and 13 steps. Here is how you cook it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Healthy Chicken &amp; Veggie Curry:
+##### The ingredients needed to make Healthy Chicken & Veggie Curry:
 
 1. Make ready 500 grams Chicken breast or thigh meat
 1. Take 2 medium Carrots
@@ -99,7 +99,7 @@ To get started with this recipe, we have to first prepare a few components. You 
 
 <!--inarticleads2-->
 
-##### Steps to make Healthy Chicken &amp; Veggie Curry:
+##### Steps to make Healthy Chicken & Veggie Curry:
 
 1. Finely chop the onions and garlic. Mince the carrots in a food processor. Grate the apple and potato. Blend the canned tomatoes in the food processor.
 1. Put the finely chopped onions in a plastic container, add 1 tablespoon of butter, cover with a lid (or cling film), and microwave for 7-8 minutes.
@@ -118,4 +118,4 @@ To get started with this recipe, we have to first prepare a few components. You 
 
 
 
-So that is going to wrap this up with this special food healthy chicken &amp; veggie curry recipe. Thank you very much for reading. I'm confident you will make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
+So that is going to wrap this up with this special food healthy chicken & veggie curry recipe. Thank you very much for reading. I'm confident you will make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

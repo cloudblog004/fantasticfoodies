@@ -1,6 +1,6 @@
 ---
-description: "How to Make Super Quick Homemade Diet Chicken Ham &amp;amp; Cheese Sandwich"
-title: "How to Make Super Quick Homemade Diet Chicken Ham &amp;amp; Cheese Sandwich"
+description: "How to Make Super Quick Homemade Diet Chicken Ham & Cheese Sandwich"
+title: "How to Make Super Quick Homemade Diet Chicken Ham & Cheese Sandwich"
 slug: 1457-how-to-make-super-quick-homemade-diet-chicken-ham-and-amp-cheese-sandwich
 date: 2022-05-25T14:16:58.220Z
 image: //assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png
@@ -43,20 +43,20 @@ recipecategory: Dinner
 ---
 
 
-![Diet Chicken Ham &amp; Cheese Sandwich](//assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png)
+![Diet Chicken Ham & Cheese Sandwich](//assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png)
 
-Hey everyone, I hope you're having an amazing day today. Today, I'm gonna show you how to prepare a special dish, diet chicken ham &amp; cheese sandwich. It is one of my favorites. For mine, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
+Hey everyone, I hope you're having an amazing day today. Today, I'm gonna show you how to prepare a special dish, diet chicken ham & cheese sandwich. It is one of my favorites. For mine, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
 
-Diet Chicken Ham &amp; Cheese Sandwich is one of the most popular of recent trending foods in the world. It is simple, it's fast, it tastes yummy. It's enjoyed by millions daily. They are nice and they look fantastic. Diet Chicken Ham &amp; Cheese Sandwich is something that I've loved my entire life.
-
-
+Diet Chicken Ham & Cheese Sandwich is one of the most popular of recent trending foods in the world. It is simple, it's fast, it tastes yummy. It's enjoyed by millions daily. They are nice and they look fantastic. Diet Chicken Ham & Cheese Sandwich is something that I've loved my entire life.
 
 
-To begin with this recipe, we have to first prepare a few ingredients. You can cook diet chicken ham &amp; cheese sandwich using 7 ingredients and 3 steps. Here is how you can achieve it.
+
+
+To begin with this recipe, we have to first prepare a few ingredients. You can cook diet chicken ham & cheese sandwich using 7 ingredients and 3 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Diet Chicken Ham &amp; Cheese Sandwich:
+##### The ingredients needed to make Diet Chicken Ham & Cheese Sandwich:
 
 1. Make ready 4 medium sandwich rolls, cut in half
 1. Take 8 slices chicken ham
@@ -71,7 +71,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can c
 
 <!--inarticleads2-->
 
-##### Steps to make Diet Chicken Ham &amp; Cheese Sandwich:
+##### Steps to make Diet Chicken Ham & Cheese Sandwich:
 
 1. Spread 1 tablespoon of light mayonnaise inside each sandwich roll. It is better if you spread the mayonnaise on both sides of the sandwich.
 1. On the bottom half of each sandwich roll, put a slice of cheese then top it with 2 slices of chicken ham, some pickle slices, onion slices and shredded lettuce.
@@ -80,4 +80,4 @@ To begin with this recipe, we have to first prepare a few ingredients. You can c
 
 
 
-So that's going to wrap it up with this exceptional food diet chicken ham &amp; cheese sandwich recipe. Thank you very much for reading. I am sure that you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+So that's going to wrap it up with this exceptional food diet chicken ham & cheese sandwich recipe. Thank you very much for reading. I am sure that you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

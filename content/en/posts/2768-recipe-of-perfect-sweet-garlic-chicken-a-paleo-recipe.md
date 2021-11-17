@@ -66,7 +66,7 @@ To get started with this recipe, we must prepare a few ingredients. You can have
 1. Prepare 1 cup olive oil
 1. Take 8 tbsps honey
 1. Take 1/4 tsp chilli powder
-1. Make ready to taste Salt Pepper &amp;
+1. Make ready to taste Salt Pepper &
 
 
 

@@ -76,7 +76,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 1. Make ready  parsley
 
 
-They are so awesome, your gonna love these, with cream cheese that melts inside which makes the inside lovely and saucy! Breaded chicken stuffed with ham and cheese sounds pretty pedestrian, but it tastes extraordinary. This recipe includes an easy cream sauce to boot. Pound chicken breasts to tenderize them, then place ham, Swiss cheese and salt and pepper inside, roll up &#34;jelly roll style,&#34; and fasten with. 
+They are so awesome, your gonna love these, with cream cheese that melts inside which makes the inside lovely and saucy! Breaded chicken stuffed with ham and cheese sounds pretty pedestrian, but it tastes extraordinary. This recipe includes an easy cream sauce to boot. Pound chicken breasts to tenderize them, then place ham, Swiss cheese and salt and pepper inside, roll up *jelly roll style,* and fasten with. 
 
 <!--inarticleads2-->
 
@@ -88,6 +88,6 @@ They are so awesome, your gonna love these, with cream cheese that melts inside 
 1. Now it&#39;s ready to serve.Serve with tomato ketchup and mayonese.it&#39;s yummy😋
 1. Ready to serve and ENJOY!
 
-This recipe includes an easy cream sauce to boot. Pound chicken breasts to tenderize them, then place ham, Swiss cheese and salt and pepper inside, roll up &#34;jelly roll style,&#34; and fasten with. Today we are making Chicken and Cheese Bread Rolls! They are so awesome, your gonna love these, with cream cheese that melts inside which makes the inside lovely and saucy! Very popular in Asian homes, great as a snack, picnics or entertaining guests! 
+This recipe includes an easy cream sauce to boot. Pound chicken breasts to tenderize them, then place ham, Swiss cheese and salt and pepper inside, roll up *jelly roll style,* and fasten with. Today we are making Chicken and Cheese Bread Rolls! They are so awesome, your gonna love these, with cream cheese that melts inside which makes the inside lovely and saucy! Very popular in Asian homes, great as a snack, picnics or entertaining guests! 
 
 So that is going to wrap it up with this exceptional food chicken cheese bread roll recipe. Thanks so much for reading. I'm sure that you will make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

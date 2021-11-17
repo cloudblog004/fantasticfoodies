@@ -42,7 +42,7 @@ recipeinstructions:
 - "Serve with cilantro on top."
 - "I make spanish rice and beans to compliment this meal."
 - "Link to my Spanish Rice recipe:"
-- "Spanish Rice: Https://cookpad.com/us/recipes/11008554-spanish-rice?invite_token=RQZWEVG5tfSCLZwZBzneUxT1&amp;shared_at=1604947576"
+- "Spanish Rice: Https://cookpad.com/us/recipes/11008554-spanish-rice?invite_token=RQZWEVG5tfSCLZwZBzneUxT1&shared_at=1604947576"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -113,7 +113,7 @@ To get started with this recipe, we must prepare a few ingredients. You can have
 1. Serve with cilantro on top.
 1. I make spanish rice and beans to compliment this meal.
 1. Link to my Spanish Rice recipe:
-1. Spanish Rice: Https://cookpad.com/us/recipes/11008554-spanish-rice?invite_token=RQZWEVG5tfSCLZwZBzneUxT1&amp;shared_at=1604947576
+1. Spanish Rice: Https://cookpad.com/us/recipes/11008554-spanish-rice?invite_token=RQZWEVG5tfSCLZwZBzneUxT1&shared_at=1604947576
 1. Ready to serve and ENJOY!
 
 

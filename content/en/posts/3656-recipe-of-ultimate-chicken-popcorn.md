@@ -82,7 +82,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Prepare 1 tsp Crushed black pepper 1 teaspoon
 
 
-Popcorn chicken is a tasty, crispy way to enjoy juicy, white meat chicken. Cut into bite size pieces But instead of running out to a fast food restaurant for popcorn chicken, you can make it at home. Popcorn chicken is a fun and tasty &#34;pop-able&#34; savory snack for folks of all ages! My recipe is packed with lots of garlicky flavor, crispy coating, and it comes with a creamy and delicious dipping sauce! 
+Popcorn chicken is a tasty, crispy way to enjoy juicy, white meat chicken. Cut into bite size pieces But instead of running out to a fast food restaurant for popcorn chicken, you can make it at home. Popcorn chicken is a fun and tasty *pop-able* savory snack for folks of all ages! My recipe is packed with lots of garlicky flavor, crispy coating, and it comes with a creamy and delicious dipping sauce! 
 
 <!--inarticleads2-->
 
@@ -95,6 +95,6 @@ Popcorn chicken is a tasty, crispy way to enjoy juicy, white meat chicken. Cut i
 1. Transfer into a serving bowl, sprinkle remaining spice mixture and serve hot.
 1. Ready to serve and ENJOY!
 
-Popcorn chicken is a fun and tasty &#34;pop-able&#34; savory snack for folks of all ages! My recipe is packed with lots of garlicky flavor, crispy coating, and it comes with a creamy and delicious dipping sauce! See more ideas about popcorn chicken, popcorn chicken recipe, cooking recipes. I have some popcorn chicken I would like to reheat for the kids for lunch, but I am not sure how to achieve the awesome Can anyone give me a good way to reheat the popcorn chicken to crispness? Satisfy your KFC popcorn chicken cravings sitting at home with these KFC Style Spicy Popcorn Chicken bites that are so close to the real thing and are healthier! 
+Popcorn chicken is a fun and tasty *pop-able* savory snack for folks of all ages! My recipe is packed with lots of garlicky flavor, crispy coating, and it comes with a creamy and delicious dipping sauce! See more ideas about popcorn chicken, popcorn chicken recipe, cooking recipes. I have some popcorn chicken I would like to reheat for the kids for lunch, but I am not sure how to achieve the awesome Can anyone give me a good way to reheat the popcorn chicken to crispness? Satisfy your KFC popcorn chicken cravings sitting at home with these KFC Style Spicy Popcorn Chicken bites that are so close to the real thing and are healthier! 
 
 So that is going to wrap this up for this exceptional food chicken popcorn recipe. Thanks so much for reading. I'm sure you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

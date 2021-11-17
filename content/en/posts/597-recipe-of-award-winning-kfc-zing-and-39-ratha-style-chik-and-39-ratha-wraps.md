@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Award-winning KFC (zing&amp;#39;ratha) Style Chik&amp;#39;ratha Wraps😋😋😋"
-title: "Recipe of Award-winning KFC (zing&amp;#39;ratha) Style Chik&amp;#39;ratha Wraps😋😋😋"
+description: "Recipe of Award-winning KFC (zing'ratha) Style Chik'ratha Wraps😋😋😋"
+title: "Recipe of Award-winning KFC (zing'ratha) Style Chik'ratha Wraps😋😋😋"
 slug: 597-recipe-of-award-winning-kfc-zing-and-39-ratha-style-chik-and-39-ratha-wraps
 date: 2021-12-12T10:17:38.185Z
 image: https://img-global.cpcdn.com/recipes/4f8d65cec2187291/680x482cq70/kfc-zingratha-style-chikratha-wraps-recipe-main-photo.jpg

@@ -82,7 +82,7 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 1. Take  ☆1 tsp chicken power stock
 1. Make ready  ☆1 tsp soy sauce
 1. Make ready  ☆1 tsp mirin
-1. Prepare  ☆1/2 tsp bull-dog, vegetable &amp; fruit sauce (semi-sweet)
+1. Prepare  ☆1/2 tsp bull-dog, vegetable & fruit sauce (semi-sweet)
 1. Make ready  ☆1 clove garlic, ground
 1. Prepare  ☆1 tsp ginger, ground
 

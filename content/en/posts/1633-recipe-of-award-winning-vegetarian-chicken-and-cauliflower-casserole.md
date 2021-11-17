@@ -30,7 +30,7 @@ recipeinstructions:
 - "Spray large pan with Olive Oil and add chicken pieces and chopped tempeh"
 - "Fry on medium high for approximately 20 minutes continuously mixing until all pieces are browned on all sides"
 - "In a separate pot, add the vegetable stock, cream cheese, milk, half of all the cheeses, nutmeg, salt and pepper, and stir on medium low heat until the mixture is smooth and all the cheese is melted (approximately 10 minutes)"
-- "Place cauliflower in a bowl of hot water for 5 minutes &amp; then drain"
+- "Place cauliflower in a bowl of hot water for 5 minutes & then drain"
 - "Transfer cauliflower to casserole dish and add the chicken mixture and then the melted cheese mixture on top"
 - "Sprinkle the remaining cheese on top"
 - "Bake at 350 for 20 minutes, broil for an additional 15 minutes or until the top gets browned."
@@ -92,7 +92,7 @@ To begin with this recipe, we have to prepare a few components. You can have veg
 1. Spray large pan with Olive Oil and add chicken pieces and chopped tempeh
 1. Fry on medium high for approximately 20 minutes continuously mixing until all pieces are browned on all sides
 1. In a separate pot, add the vegetable stock, cream cheese, milk, half of all the cheeses, nutmeg, salt and pepper, and stir on medium low heat until the mixture is smooth and all the cheese is melted (approximately 10 minutes)
-1. Place cauliflower in a bowl of hot water for 5 minutes &amp; then drain
+1. Place cauliflower in a bowl of hot water for 5 minutes & then drain
 1. Transfer cauliflower to casserole dish and add the chicken mixture and then the melted cheese mixture on top
 1. Sprinkle the remaining cheese on top
 1. Bake at 350 for 20 minutes, broil for an additional 15 minutes or until the top gets browned.

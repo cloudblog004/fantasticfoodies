@@ -60,7 +60,7 @@ Hey everyone, it's Brad, welcome to our recipe site. Today, I will show you a wa
 
 Assorted pulao ! An easy healthy quick tasty lunch! is one of the most well liked of current trending foods on earth. It is enjoyed by millions every day. It's easy, it's quick, it tastes delicious. Assorted pulao ! An easy healthy quick tasty lunch! is something that I've loved my whole life. They're fine and they look fantastic.
 
-How To Make Healthy Tofu Pulao - Easy &amp; Quick Recipe Need diet recipes that are also tasty? You can cook Assorted pulao ! FITTR RECIPES - A series that&#39;s all about healthy. So easy, it should be a food sin.
+How To Make Healthy Tofu Pulao - Easy & Quick Recipe Need diet recipes that are also tasty? You can cook Assorted pulao ! FITTR RECIPES - A series that&#39;s all about healthy. So easy, it should be a food sin.
 
 
 To get started with this recipe, we must first prepare a few ingredients. You can have assorted pulao ! an easy healthy quick tasty lunch! using 15 ingredients and 6 steps. Here is how you can achieve that.

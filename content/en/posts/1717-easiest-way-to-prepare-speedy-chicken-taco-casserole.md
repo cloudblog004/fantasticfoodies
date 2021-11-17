@@ -24,7 +24,7 @@ recipeingredient:
 - " Chopped tomatoes"
 recipeinstructions:
 - "Heat oven to 350 degrees"
-- "Spray 9x13&#34; casserole dish"
+- "Spray 9x13* casserole dish"
 - "Stir: chicken, soup, sour cream, Rotel, black beans, seasoning in a bowl"
 - "Layer: half the chicken mixture, 3C tortilla chips and half the cheese"
 - "Cover. Bake for 30 minutes"
@@ -83,7 +83,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can h
 ##### Instructions to make Chicken Taco Casserole:
 
 1. Heat oven to 350 degrees
-1. Spray 9x13&#34; casserole dish
+1. Spray 9x13* casserole dish
 1. Stir: chicken, soup, sour cream, Rotel, black beans, seasoning in a bowl
 1. Layer: half the chicken mixture, 3C tortilla chips and half the cheese
 1. Cover. Bake for 30 minutes

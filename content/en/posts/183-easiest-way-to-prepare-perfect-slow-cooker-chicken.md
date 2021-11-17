@@ -71,7 +71,7 @@ To get started with this recipe, we have to prepare a few ingredients. You can h
 1. Take 1/3 cup graded parmesan
 
 
-First, prepare the chicken in the morning and put it in the slow cooker. This Slow Cooker Roast Chicken is the juiciest, most forgiving and easiest whole chicken recipe I know. It&#39;s such a great way to cook a whole chicken in the slow cooker that&#39;s incredibly quick to. While some slow cooker chicken recipes are pretty much &#34;toss and go&#34; — meaning, toss in a few ingredients and go on with the rest of your day — others require a little bit of prep upfront. 
+First, prepare the chicken in the morning and put it in the slow cooker. This Slow Cooker Roast Chicken is the juiciest, most forgiving and easiest whole chicken recipe I know. It&#39;s such a great way to cook a whole chicken in the slow cooker that&#39;s incredibly quick to. While some slow cooker chicken recipes are pretty much *toss and go* — meaning, toss in a few ingredients and go on with the rest of your day — others require a little bit of prep upfront. 
 
 <!--inarticleads2-->
 
@@ -84,6 +84,6 @@ First, prepare the chicken in the morning and put it in the slow cooker. This Sl
 1. 
 1. Ready to serve and ENJOY!
 
-It&#39;s such a great way to cook a whole chicken in the slow cooker that&#39;s incredibly quick to. While some slow cooker chicken recipes are pretty much &#34;toss and go&#34; — meaning, toss in a few ingredients and go on with the rest of your day — others require a little bit of prep upfront. This slow cooker shredded chicken recipe is one of my favorite kitchen shortcuts! Slow cooker chicken takes just minutes to prep, and can be used in a wide range of dishes. Slow Cooker Chicken is a new go-to dinner at my house! 
+It&#39;s such a great way to cook a whole chicken in the slow cooker that&#39;s incredibly quick to. While some slow cooker chicken recipes are pretty much *toss and go* — meaning, toss in a few ingredients and go on with the rest of your day — others require a little bit of prep upfront. This slow cooker shredded chicken recipe is one of my favorite kitchen shortcuts! Slow cooker chicken takes just minutes to prep, and can be used in a wide range of dishes. Slow Cooker Chicken is a new go-to dinner at my house! 
 
 So that is going to wrap it up for this exceptional food slow cooker chicken recipe. Thanks so much for reading. I am sure you can make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

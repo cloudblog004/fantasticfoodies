@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Any-night-of-the-week Easy &amp;#39;n&amp;#39; Fast Chicken Soup"
-title: "Recipe of Any-night-of-the-week Easy &amp;#39;n&amp;#39; Fast Chicken Soup"
+description: "Recipe of Any-night-of-the-week Easy 'n' Fast Chicken Soup"
+title: "Recipe of Any-night-of-the-week Easy 'n' Fast Chicken Soup"
 slug: 931-recipe-of-any-night-of-the-week-easy-and-39-n-and-39-fast-chicken-soup
 date: 2021-12-21T14:32:49.917Z
 image: https://img-global.cpcdn.com/recipes/7d5dc001acb5c34c/680x482cq70/easy-n-fast-chicken-soup-recipe-main-photo.jpg

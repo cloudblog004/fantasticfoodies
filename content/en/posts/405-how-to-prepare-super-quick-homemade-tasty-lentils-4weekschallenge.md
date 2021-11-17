@@ -86,6 +86,6 @@ I&#39;d like to learn if there are any tasty. Lentil Recipe - DAL - Red lentil I
 1. Once cooked, remove from fire and add the dhania. Serve hot with rice or chapati
 1. Ready to serve and ENJOY!
 
-Amazon&#39;s Choice in Dried Lentils by TASTY BITE. See recipes for Autumn Harvest lentil soup too. Brown lentils are spiced with red chili and thyme, topped with alfalfa sprouts and served on a poppy seed bun. Lentils step in for the &#34;meat&#34; in these tacos! Perfectly seasoned, hearty and filling, these This time I made a full batch of lentil taco filling. 
+Amazon&#39;s Choice in Dried Lentils by TASTY BITE. See recipes for Autumn Harvest lentil soup too. Brown lentils are spiced with red chili and thyme, topped with alfalfa sprouts and served on a poppy seed bun. Lentils step in for the *meat* in these tacos! Perfectly seasoned, hearty and filling, these This time I made a full batch of lentil taco filling. 
 
 So that's going to wrap it up for this exceptional food tasty lentils #4weekschallenge recipe. Thank you very much for reading. I am confident that you can make this at home. There is gonna be more interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

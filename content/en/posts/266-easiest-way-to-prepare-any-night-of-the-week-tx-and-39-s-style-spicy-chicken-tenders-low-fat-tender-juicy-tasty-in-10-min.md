@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Prepare Any-night-of-the-week TX&amp;#39;s Style ~ Spicy Chicken Tenders -Low fat, tender, juicy, tasty in 10 min!"
-title: "Easiest Way to Prepare Any-night-of-the-week TX&amp;#39;s Style ~ Spicy Chicken Tenders -Low fat, tender, juicy, tasty in 10 min!"
+description: "Easiest Way to Prepare Any-night-of-the-week TX's Style ~ Spicy Chicken Tenders -Low fat, tender, juicy, tasty in 10 min!"
+title: "Easiest Way to Prepare Any-night-of-the-week TX's Style ~ Spicy Chicken Tenders -Low fat, tender, juicy, tasty in 10 min!"
 slug: 266-easiest-way-to-prepare-any-night-of-the-week-tx-and-39-s-style-spicy-chicken-tenders-low-fat-tender-juicy-tasty-in-10-min
 date: 2022-04-26T19:04:51.150Z
 image: https://img-global.cpcdn.com/recipes/5114504109096960/680x482cq70/txs-style-spicy-chicken-tenders-low-fat-tender-juicy-tasty-in-10-min-recipe-main-photo.jpg

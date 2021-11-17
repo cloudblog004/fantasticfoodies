@@ -70,7 +70,7 @@ To begin with this recipe, we must prepare a few ingredients. You can cook chill
 1. Get 500 gms Chicken -
 1. Prepare 1 /   VinegarLemon   Juice - tblpsn
 1. Make ready  Salt -as   needed
-1. Prepare 1 Ginger&amp;Garlic - tspsn   each
+1. Prepare 1 Ginger&Garlic - tspsn   each
 1. Get 1 Onion small    - cubed
 1. Take 1 Capsicum small    - cubed
 1. Get 1   or   2 Green chilli -
@@ -78,7 +78,7 @@ To begin with this recipe, we must prepare a few ingredients. You can cook chill
 1. Make ready 1 Soy sauce - tblpsn
 1. Take 2 Tomato Sauce - tblpsn
 1. Prepare 1 Cornflour - tblpsn
-1. Prepare  Salt &amp;  Oil
+1. Prepare  Salt &  Oil
 
 
 

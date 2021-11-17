@@ -30,7 +30,7 @@ recipeingredient:
 - "1 pinch Cheese"
 - "1 dash Sour Cream"
 recipeinstructions:
-- "Bring a large pot of water to a steady boil and add seasonings &amp; chicken breast."
+- "Bring a large pot of water to a steady boil and add seasonings & chicken breast."
 - "In the mean time, grab a blender and add both cans of Rotel and the can of black beans (drain half the fluid from beans first), and puree the mixture."
 - "Label a gallon sized Ziploc freezer bag with recipe name, date, and additional cooking directs. (See step 9-10 for cooking details)"
 - "Add pureed mixture and salsa to Ziploc bag and set aside."
@@ -41,7 +41,7 @@ recipeinstructions:
 - "When you are ready to prepare the Tortilla Soup for dinner, please keep in mind that you need to thaw bag in the refrigerator for ATLEAST 4 hours."
 - "Once thawed, add meal to crock pot and cook on low for 5-7 hours."
 - "When its almost done cooking, grab tortillas and slice into strips, brush with butter, and bake in the oven at 350 until golden brown."
-- "Make yourself a bowl of your delicious meal and top with tortilla strips, cheese, &amp; sour cream."
+- "Make yourself a bowl of your delicious meal and top with tortilla strips, cheese, & sour cream."
 - "Enjoy!"
 - "Ready to serve and ENJOY!"
 categories:
@@ -101,7 +101,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 
 ##### Instructions to make Crock Pot Freezer Meal - Chicken Tortilla Soup:
 
-1. Bring a large pot of water to a steady boil and add seasonings &amp; chicken breast.
+1. Bring a large pot of water to a steady boil and add seasonings & chicken breast.
 1. In the mean time, grab a blender and add both cans of Rotel and the can of black beans (drain half the fluid from beans first), and puree the mixture.
 1. Label a gallon sized Ziploc freezer bag with recipe name, date, and additional cooking directs. (See step 9-10 for cooking details)
 1. Add pureed mixture and salsa to Ziploc bag and set aside.
@@ -112,7 +112,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 1. When you are ready to prepare the Tortilla Soup for dinner, please keep in mind that you need to thaw bag in the refrigerator for ATLEAST 4 hours.
 1. Once thawed, add meal to crock pot and cook on low for 5-7 hours.
 1. When its almost done cooking, grab tortillas and slice into strips, brush with butter, and bake in the oven at 350 until golden brown.
-1. Make yourself a bowl of your delicious meal and top with tortilla strips, cheese, &amp; sour cream.
+1. Make yourself a bowl of your delicious meal and top with tortilla strips, cheese, & sour cream.
 1. Enjoy!
 1. Ready to serve and ENJOY!
 

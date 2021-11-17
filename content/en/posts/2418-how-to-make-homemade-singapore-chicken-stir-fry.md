@@ -24,9 +24,9 @@ recipeingredient:
 - "2 pinch salt pepper chilli seeds parsley  paprika"
 - "4 dash soya sauce"
 recipeinstructions:
-- "pre heat wok with sessame seed oil. wash n pat dry chicken &amp; cut into strips or chunks &amp; add to the wok."
-- "cut all the onions, garlic &amp; peppers. once chicken is sealed add to the pan. add the herbs &amp; spices."
-- "once chicken is cooked add the noodles cook for 3 minutes &amp; add the soya sauce. once cooked &amp; noodles seperated plate up &amp; serve."
+- "pre heat wok with sessame seed oil. wash n pat dry chicken & cut into strips or chunks & add to the wok."
+- "cut all the onions, garlic & peppers. once chicken is sealed add to the pan. add the herbs & spices."
+- "once chicken is cooked add the noodles cook for 3 minutes & add the soya sauce. once cooked & noodles seperated plate up & serve."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -69,7 +69,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 1. Make ready 1 shallot
 1. Make ready 1 dash sessame seed oil
 1. Prepare 1 garlic clove
-1. Make ready 2 pinch salt, pepper, chilli seeds, parsley &amp; paprika
+1. Make ready 2 pinch salt, pepper, chilli seeds, parsley & paprika
 1. Make ready 4 dash soya sauce
 
 
@@ -79,9 +79,9 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 
 ##### Steps to make Singapore Chicken Stir Fry:
 
-1. pre heat wok with sessame seed oil. wash n pat dry chicken &amp; cut into strips or chunks &amp; add to the wok.
-1. cut all the onions, garlic &amp; peppers. once chicken is sealed add to the pan. add the herbs &amp; spices.
-1. once chicken is cooked add the noodles cook for 3 minutes &amp; add the soya sauce. once cooked &amp; noodles seperated plate up &amp; serve.
+1. pre heat wok with sessame seed oil. wash n pat dry chicken & cut into strips or chunks & add to the wok.
+1. cut all the onions, garlic & peppers. once chicken is sealed add to the pan. add the herbs & spices.
+1. once chicken is cooked add the noodles cook for 3 minutes & add the soya sauce. once cooked & noodles seperated plate up & serve.
 1. Ready to serve and ENJOY!
 
 

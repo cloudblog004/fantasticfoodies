@@ -28,7 +28,7 @@ recipeingredient:
 - "1 tsp butter"
 recipeinstructions:
 - "Take a sauce pan on medium heat, addd butter into the pan and then add garlic a saute for 30sec (it shouldn&#39;t be brown)."
-- "Add onion, carrot &amp; chicken into the pan and..saute for about 2-3 minutes. seasonig can be done in this time"
+- "Add onion, carrot & chicken into the pan and..saute for about 2-3 minutes. seasonig can be done in this time"
 - "Then add the chicken stock and cook t in a low heat."
 - "When carrots and chicken are half done then add rest of the vegetables and cook in the same low heat. (if u want u can add curry powder in this stage.)"
 - "When u think it&#39;s almost done add the coconut milk and cook for about a minute then add chopped coriander leaves and finish it"
@@ -56,7 +56,7 @@ recipecategory: Dessert
 
 Hello everybody, it's me again, Dan, welcome to our recipe site. Today, I will show you a way to prepare a special dish, healthy chicken stew. It is one of my favorites food recipes. For mine, I will make it a little bit unique. This is gonna smell and look delicious.
 
-Easy Chicken Snacks By Our Grandpa.. Vegetable &amp; Chicken Stew, Sweet &amp; Spicy Indian Chicken Stew, Stoutly Chicken Stew. Zesty Mexican Chicken Stew with Sweet HominyThe Cozy Apron. onion, garlic, cilantro leaves, tortilla chips. This chicken stew is incredibly easy to make and it&#39;s healthy too!
+Easy Chicken Snacks By Our Grandpa.. Vegetable & Chicken Stew, Sweet & Spicy Indian Chicken Stew, Stoutly Chicken Stew. Zesty Mexican Chicken Stew with Sweet HominyThe Cozy Apron. onion, garlic, cilantro leaves, tortilla chips. This chicken stew is incredibly easy to make and it&#39;s healthy too!
 
 Healthy chicken stew is one of the most popular of current trending foods on earth. It is simple, it's fast, it tastes delicious. It's appreciated by millions every day. Healthy chicken stew is something which I've loved my whole life. They are fine and they look fantastic.
 
@@ -89,7 +89,7 @@ And in particular, I am getting excited for all the filling, healthy, and tasty 
 ##### Steps to make Healthy chicken stew:
 
 1. Take a sauce pan on medium heat, addd butter into the pan and then add garlic a saute for 30sec (it shouldn&#39;t be brown).
-1. Add onion, carrot &amp; chicken into the pan and..saute for about 2-3 minutes. seasonig can be done in this time
+1. Add onion, carrot & chicken into the pan and..saute for about 2-3 minutes. seasonig can be done in this time
 1. Then add the chicken stock and cook t in a low heat.
 1. When carrots and chicken are half done then add rest of the vegetables and cook in the same low heat. (if u want u can add curry powder in this stage.)
 1. When u think it&#39;s almost done add the coconut milk and cook for about a minute then add chopped coriander leaves and finish it

@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Favorite Larry&amp;#39;s easy 1 pan chicken and potato bake"
-title: "Recipe of Favorite Larry&amp;#39;s easy 1 pan chicken and potato bake"
+description: "Recipe of Favorite Larry's easy 1 pan chicken and potato bake"
+title: "Recipe of Favorite Larry's easy 1 pan chicken and potato bake"
 slug: 2639-recipe-of-favorite-larry-and-39-s-easy-1-pan-chicken-and-potato-bake
 date: 2022-04-20T08:07:23.644Z
 image: https://img-global.cpcdn.com/recipes/66dc3abb1a67296f/680x482cq70/larrys-easy-1-pan-chicken-and-potato-bake-recipe-main-photo.jpg
@@ -74,7 +74,7 @@ To get started with this recipe, we have to prepare a few ingredients. You can h
 1. Get 1 stick butter melted
 
 
-Quick-cooking boneless skinless chicken breasts stay moist and tender thanks to pan-roasting and a tangy BBQ Chicken Twice-Baked Potatoes. This one-pan sweet potato creation will be a favorite for Thanksgiving. Our cheesy mashup of chicken Parmesan and baked lasagna is towering with layers of crisp chicken cutlets, tomato sauce and three cheeses. Learn how to bake sweet potatoes with these tips &amp; tricks! 
+Quick-cooking boneless skinless chicken breasts stay moist and tender thanks to pan-roasting and a tangy BBQ Chicken Twice-Baked Potatoes. This one-pan sweet potato creation will be a favorite for Thanksgiving. Our cheesy mashup of chicken Parmesan and baked lasagna is towering with layers of crisp chicken cutlets, tomato sauce and three cheeses. Learn how to bake sweet potatoes with these tips & tricks! 
 
 <!--inarticleads2-->
 
@@ -94,6 +94,6 @@ Quick-cooking boneless skinless chicken breasts stay moist and tender thanks to 
 1. Serve and enjoy!
 1. Ready to serve and ENJOY!
 
-Our cheesy mashup of chicken Parmesan and baked lasagna is towering with layers of crisp chicken cutlets, tomato sauce and three cheeses. Learn how to bake sweet potatoes with these tips &amp; tricks! Enjoy them with butter, salt &amp; pepper, or use them in your favorite baked sweet potato recipes. Slice the potatoes in half lengthwise, rub them with olive oil, sprinkle with salt and pepper, and cook cut-side up until lightly browned and tender. The perfect baked potato is crispy on the outside and pillowy in the middle. 
+Our cheesy mashup of chicken Parmesan and baked lasagna is towering with layers of crisp chicken cutlets, tomato sauce and three cheeses. Learn how to bake sweet potatoes with these tips & tricks! Enjoy them with butter, salt & pepper, or use them in your favorite baked sweet potato recipes. Slice the potatoes in half lengthwise, rub them with olive oil, sprinkle with salt and pepper, and cook cut-side up until lightly browned and tender. The perfect baked potato is crispy on the outside and pillowy in the middle. 
 
 So that is going to wrap this up with this exceptional food larry&#39;s easy 1 pan chicken and potato bake recipe. Thank you very much for your time. I am sure you will make this at home. There's gonna be interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

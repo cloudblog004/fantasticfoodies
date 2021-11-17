@@ -78,6 +78,6 @@ The skin will not be as crispy reheated. Fried Chicken - with the most insanely 
 1. Beat eggs and start by dipping your chicken in flour egg then flour again and fry about 8 minutes per side until crispy golden brown.
 1. Ready to serve and ENJOY!
 
-The secret to easy, fool-proof fried chicken. The trick is a secret step before that bird ever hits hot oil. Nadine Greeff / Stocksy United. &#34;It&#39;s easy to be intimidated by fried chicken, but it is fun to cook. There&#39;s enough batter for extra chicken. Table of Contents Easy Chicken Fried Chicken Recipe What Does Chicken Fried Mean? 
+The secret to easy, fool-proof fried chicken. The trick is a secret step before that bird ever hits hot oil. Nadine Greeff / Stocksy United. *It&#39;s easy to be intimidated by fried chicken, but it is fun to cook. There&#39;s enough batter for extra chicken. Table of Contents Easy Chicken Fried Chicken Recipe What Does Chicken Fried Mean? 
 
 So that's going to wrap this up with this special food easy fried chicken recipe. Thank you very much for your time. I am confident that you can make this at home. There's gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

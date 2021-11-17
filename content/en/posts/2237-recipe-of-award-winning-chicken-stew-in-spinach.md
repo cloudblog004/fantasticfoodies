@@ -77,7 +77,7 @@ To begin with this particular recipe, we have to first prepare a few components.
 1. Get to taste Salt
 
 
-Return chicken to skillet skin-side up, reduce heat to a simmer, and cover with lid. Chicken, White Bean, and Spinach Stew. Groundnut or peanut soups and stews are extremely popular in the cooking of Ghana and Mali in West Africa, where it&#39;s called Hkatenkwan. In fact, some consider African Chicken Peanut &amp; Spinach Stew to be one of the most popular of all Sunday meals..spinach-chickpea-stew-ginger-spanish.html. 
+Return chicken to skillet skin-side up, reduce heat to a simmer, and cover with lid. Chicken, White Bean, and Spinach Stew. Groundnut or peanut soups and stews are extremely popular in the cooking of Ghana and Mali in West Africa, where it&#39;s called Hkatenkwan. In fact, some consider African Chicken Peanut & Spinach Stew to be one of the most popular of all Sunday meals..spinach-chickpea-stew-ginger-spanish.html. 
 
 <!--inarticleads2-->
 
@@ -98,6 +98,6 @@ Return chicken to skillet skin-side up, reduce heat to a simmer, and cover with 
 1. Serve n enjoy.
 1. Ready to serve and ENJOY!
 
-Groundnut or peanut soups and stews are extremely popular in the cooking of Ghana and Mali in West Africa, where it&#39;s called Hkatenkwan. In fact, some consider African Chicken Peanut &amp; Spinach Stew to be one of the most popular of all Sunday meals..spinach-chickpea-stew-ginger-spanish.html. I&#39;d love to hear anyone else&#39;s tweaks or experiences with it. If you haven&#39;t made Kenji&#39;s green chili chicken pressure cookie recipe yet, you should definitely go do that. This stew, like all those in Catalonia, starts with a sofrito, a thick sauce made with sautéed onions and tomatoes. 
+Groundnut or peanut soups and stews are extremely popular in the cooking of Ghana and Mali in West Africa, where it&#39;s called Hkatenkwan. In fact, some consider African Chicken Peanut & Spinach Stew to be one of the most popular of all Sunday meals..spinach-chickpea-stew-ginger-spanish.html. I&#39;d love to hear anyone else&#39;s tweaks or experiences with it. If you haven&#39;t made Kenji&#39;s green chili chicken pressure cookie recipe yet, you should definitely go do that. This stew, like all those in Catalonia, starts with a sofrito, a thick sauce made with sautéed onions and tomatoes. 
 
 So that's going to wrap this up with this special food chicken stew in spinach recipe. Thanks so much for your time. I am confident you will make this at home. There is gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

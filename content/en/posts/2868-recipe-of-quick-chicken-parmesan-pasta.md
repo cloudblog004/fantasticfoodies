@@ -26,12 +26,12 @@ recipeingredient:
 - " cooking spray"
 - " salt and pepper to taste"
 recipeinstructions:
-- "Preheat the oven to 400 degrees F. Coat a 9&#34;x13&#34; pan with cooking spray."
+- "Preheat the oven to 400 degrees F. Coat a 9*x13* pan with cooking spray."
 - "Bring a large pot of salted water to a boil, and cook the penne pasta according to package directions."
 - "Heat the olive oil in a pan over medium high heat. Add the onion and garlic cook for 3-4 minutes or until softened."
 - "Add the chicken, Italian seasoning, salt and pepper to the pan. Cook for 4-6 minutes, stirring occasionally, or until chicken is cooked through."
 - "Pour the marinara sauce and chopped basil or parsley into the pan and stir to combine."
-- "Drain the pasta and add it to the 9&#34;x13&#34; dish. Pour the chicken and sauce mixture over the pasta and stir to combine."
+- "Drain the pasta and add it to the 9*x13* dish. Pour the chicken and sauce mixture over the pasta and stir to combine."
 - "Sprinkle the mozzarella cheese and parmesan cheese over the pasta mixture."
 - "Bake for 10-15 minutes or until cheese is melted, then serve."
 - "Ready to serve and ENJOY!"
@@ -88,12 +88,12 @@ To begin with this particular recipe, we must prepare a few components. You can 
 
 ##### Steps to make Chicken Parmesan Pasta:
 
-1. Preheat the oven to 400 degrees F. Coat a 9&#34;x13&#34; pan with cooking spray.
+1. Preheat the oven to 400 degrees F. Coat a 9*x13* pan with cooking spray.
 1. Bring a large pot of salted water to a boil, and cook the penne pasta according to package directions.
 1. Heat the olive oil in a pan over medium high heat. Add the onion and garlic cook for 3-4 minutes or until softened.
 1. Add the chicken, Italian seasoning, salt and pepper to the pan. Cook for 4-6 minutes, stirring occasionally, or until chicken is cooked through.
 1. Pour the marinara sauce and chopped basil or parsley into the pan and stir to combine.
-1. Drain the pasta and add it to the 9&#34;x13&#34; dish. Pour the chicken and sauce mixture over the pasta and stir to combine.
+1. Drain the pasta and add it to the 9*x13* dish. Pour the chicken and sauce mixture over the pasta and stir to combine.
 1. Sprinkle the mozzarella cheese and parmesan cheese over the pasta mixture.
 1. Bake for 10-15 minutes or until cheese is melted, then serve.
 1. Ready to serve and ENJOY!

@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Make Any-night-of-the-week Quick Chicken &amp;amp; Noodles"
-title: "Simple Way to Make Any-night-of-the-week Quick Chicken &amp;amp; Noodles"
+description: "Simple Way to Make Any-night-of-the-week Quick Chicken & Noodles"
+title: "Simple Way to Make Any-night-of-the-week Quick Chicken & Noodles"
 slug: 1146-simple-way-to-make-any-night-of-the-week-quick-chicken-and-amp-noodles
 date: 2022-05-29T06:19:03.351Z
 image: https://img-global.cpcdn.com/recipes/4594877395369984/680x482cq70/quick-chicken-noodles-recipe-main-photo.jpg
@@ -50,20 +50,20 @@ recipecategory: Dessert
 ---
 
 
-![Quick Chicken &amp; Noodles](https://img-global.cpcdn.com/recipes/4594877395369984/680x482cq70/quick-chicken-noodles-recipe-main-photo.jpg)
+![Quick Chicken & Noodles](https://img-global.cpcdn.com/recipes/4594877395369984/680x482cq70/quick-chicken-noodles-recipe-main-photo.jpg)
 
-Hello everybody, it is me again, Dan, welcome to our recipe page. Today, I'm gonna show you how to prepare a distinctive dish, quick chicken &amp; noodles. One of my favorites. This time, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
+Hello everybody, it is me again, Dan, welcome to our recipe page. Today, I'm gonna show you how to prepare a distinctive dish, quick chicken & noodles. One of my favorites. This time, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
 
-Quick Chicken &amp; Noodles is one of the most popular of recent trending meals on earth. It's enjoyed by millions every day. It's easy, it's fast, it tastes yummy. Quick Chicken &amp; Noodles is something that I've loved my entire life. They are nice and they look fantastic.
-
-
+Quick Chicken & Noodles is one of the most popular of recent trending meals on earth. It's enjoyed by millions every day. It's easy, it's fast, it tastes yummy. Quick Chicken & Noodles is something that I've loved my entire life. They are nice and they look fantastic.
 
 
-To get started with this recipe, we must first prepare a few components. You can have quick chicken &amp; noodles using 12 ingredients and 5 steps. Here is how you cook that.
+
+
+To get started with this recipe, we must first prepare a few components. You can have quick chicken & noodles using 12 ingredients and 5 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Quick Chicken &amp; Noodles:
+##### The ingredients needed to make Quick Chicken & Noodles:
 
 1. Prepare 2 cup leftover chicken, boned and cubed
 1. Take 8 oz Rotini Noodles
@@ -72,7 +72,7 @@ To get started with this recipe, we must first prepare a few components. You can
 1. Prepare 1 stick celery, minced
 1. Take 2 can Cream of Chicken Soup
 1. Take 1 soup can Milk
-1. Prepare 1/2 tsp fresh ground Pepper &amp; Salt each
+1. Prepare 1/2 tsp fresh ground Pepper & Salt each
 1. Get 1/2 tsp Poultry seasoning
 1. Make ready 1 tbsp Parsley
 1. Get 1/4 tsp ground Red Pepper
@@ -83,7 +83,7 @@ To get started with this recipe, we must first prepare a few components. You can
 
 <!--inarticleads2-->
 
-##### Steps to make Quick Chicken &amp; Noodles:
+##### Steps to make Quick Chicken & Noodles:
 
 1. Cook the macaroni,  al dente.
 1. Meanwhile prep your chicken, onion, and celery.
@@ -94,4 +94,4 @@ To get started with this recipe, we must first prepare a few components. You can
 
 
 
-So that is going to wrap it up for this exceptional food quick chicken &amp; noodles recipe. Thanks so much for reading. I'm sure that you can make this at home. There is gonna be more interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+So that is going to wrap it up for this exceptional food quick chicken & noodles recipe. Thanks so much for reading. I'm sure that you can make this at home. There is gonna be more interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

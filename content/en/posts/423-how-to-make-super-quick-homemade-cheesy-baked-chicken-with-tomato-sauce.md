@@ -24,9 +24,9 @@ recipeingredient:
 - "1 cup Shredded Tasty Cheese OR Pizza Cheese Mix"
 - "1 tablespoon Parsley finely chopped"
 recipeinstructions:
-- "Preheat oven to 240 to 250℃. Cut each Chicken Fillet into halves or quarters. Season with Salt &amp; Pepper."
+- "Preheat oven to 240 to 250℃. Cut each Chicken Fillet into halves or quarters. Season with Salt & Pepper."
 - "Heat Oil in an oven-safe pan over high heat, cook Chicken. After browned both sides, add Garlic and Onion, and cook until Onion is soft."
-- "Add Passata, stir in Herb and bring to the boil. (You can use Tomato Pasta Sauce instead of Passata.) Season with Salt &amp; Pepper as required. Sprinkle Shredded Cheese over, and bake for 10 minutes or until top is golden."
+- "Add Passata, stir in Herb and bring to the boil. (You can use Tomato Pasta Sauce instead of Passata.) Season with Salt & Pepper as required. Sprinkle Shredded Cheese over, and bake for 10 minutes or until top is golden."
 - "Sprinkle with finely chopped Parsley and serve with rice or pasta."
 - "Ready to serve and ENJOY!"
 categories:
@@ -63,13 +63,13 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 ##### The ingredients needed to make Cheesy Baked Chicken With Tomato Sauce:
 
 1. Take 600 g to 1kg Chicken Thigh Fillets
-1. Make ready  Salt &amp; Pepper
+1. Make ready  Salt & Pepper
 1. Take 1 clove Garlic *finely chopped
 1. Make ready 1 Onion *finely chopped OR thinly sliced
 1. Make ready 1 tablespoon Olive Oil
 1. Make ready 400-500 g Passata
 1. Make ready 1 tablespoon Italian Herb Mix *OR Herbs of your choice
-1. Make ready  Salt &amp; Pepper
+1. Make ready  Salt & Pepper
 1. Prepare 1 cup Shredded Tasty Cheese OR Pizza Cheese Mix
 1. Get 1 tablespoon Parsley *finely chopped
 
@@ -80,9 +80,9 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 
 ##### Instructions to make Cheesy Baked Chicken With Tomato Sauce:
 
-1. Preheat oven to 240 to 250℃. Cut each Chicken Fillet into halves or quarters. Season with Salt &amp; Pepper.
+1. Preheat oven to 240 to 250℃. Cut each Chicken Fillet into halves or quarters. Season with Salt & Pepper.
 1. Heat Oil in an oven-safe pan over high heat, cook Chicken. After browned both sides, add Garlic and Onion, and cook until Onion is soft.
-1. Add Passata, stir in Herb and bring to the boil. (You can use Tomato Pasta Sauce instead of Passata.) Season with Salt &amp; Pepper as required. Sprinkle Shredded Cheese over, and bake for 10 minutes or until top is golden.
+1. Add Passata, stir in Herb and bring to the boil. (You can use Tomato Pasta Sauce instead of Passata.) Season with Salt & Pepper as required. Sprinkle Shredded Cheese over, and bake for 10 minutes or until top is golden.
 1. Sprinkle with finely chopped Parsley and serve with rice or pasta.
 1. Ready to serve and ENJOY!
 

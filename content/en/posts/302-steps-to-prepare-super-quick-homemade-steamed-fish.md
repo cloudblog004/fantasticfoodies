@@ -85,7 +85,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can cook
 1. Prepare 1 clove garlic chopped
 
 
-Marinate fish with salt, Chinese cooking wine and. Ginger Steamed fish with spring onions. A delicious and healthy meal option for when you want to get back on track. Chinese Steamed Fish - Learn how to make restaurant-style Chinese steamed fish with this easy steamed fish recipe, with steamed fish Discard the fishy and cloudy fish &#34;water&#34; after steaming. 
+Marinate fish with salt, Chinese cooking wine and. Ginger Steamed fish with spring onions. A delicious and healthy meal option for when you want to get back on track. Chinese Steamed Fish - Learn how to make restaurant-style Chinese steamed fish with this easy steamed fish recipe, with steamed fish Discard the fishy and cloudy fish *water* after steaming. 
 
 <!--inarticleads2-->
 
@@ -97,6 +97,6 @@ Marinate fish with salt, Chinese cooking wine and. Ginger Steamed fish with spri
 1. Cover and let simmer for 30mins or until fish and squash is tender. Stir occasionally while carefully turning fish on other side.
 1. Ready to serve and ENJOY!
 
-A delicious and healthy meal option for when you want to get back on track. Chinese Steamed Fish - Learn how to make restaurant-style Chinese steamed fish with this easy steamed fish recipe, with steamed fish Discard the fishy and cloudy fish &#34;water&#34; after steaming. See more ideas about steamed fish, fish recipes, recipes. Chinese, Steamed fish, fish, chinese fish, rice with fish, hunan fish, perch, bass, king bass, seafood, steamed. Steamed Fish are recurring Items in The Legend of Zelda series. 
+A delicious and healthy meal option for when you want to get back on track. Chinese Steamed Fish - Learn how to make restaurant-style Chinese steamed fish with this easy steamed fish recipe, with steamed fish Discard the fishy and cloudy fish *water* after steaming. See more ideas about steamed fish, fish recipes, recipes. Chinese, Steamed fish, fish, chinese fish, rice with fish, hunan fish, perch, bass, king bass, seafood, steamed. Steamed Fish are recurring Items in The Legend of Zelda series. 
 
 So that is going to wrap this up with this exceptional food steamed fish 🐟 recipe. Thanks so much for reading. I'm confident that you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

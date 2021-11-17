@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Prepare Perfect Daniel&amp;#39;s Healthy Baked Chicken Parm"
-title: "Simple Way to Prepare Perfect Daniel&amp;#39;s Healthy Baked Chicken Parm"
+description: "Simple Way to Prepare Perfect Daniel's Healthy Baked Chicken Parm"
+title: "Simple Way to Prepare Perfect Daniel's Healthy Baked Chicken Parm"
 slug: 1417-simple-way-to-prepare-perfect-daniel-and-39-s-healthy-baked-chicken-parm
 date: 2021-11-15T12:41:55.850Z
 image: https://img-global.cpcdn.com/recipes/5621336277778432/680x482cq70/daniels-healthy-baked-chicken-parm-recipe-main-photo.jpg

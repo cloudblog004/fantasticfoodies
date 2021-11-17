@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Award-winning [Farmhouse Recipe] Our Family&amp;#39;s Rich and Tasty Pot au Feu"
-title: "Easiest Way to Make Award-winning [Farmhouse Recipe] Our Family&amp;#39;s Rich and Tasty Pot au Feu"
+description: "Easiest Way to Make Award-winning [Farmhouse Recipe] Our Family's Rich and Tasty Pot au Feu"
+title: "Easiest Way to Make Award-winning [Farmhouse Recipe] Our Family's Rich and Tasty Pot au Feu"
 slug: 285-easiest-way-to-make-award-winning-farmhouse-recipe-our-family-and-39-s-rich-and-tasty-pot-au-feu
 date: 2022-04-05T16:52:19.566Z
 image: https://img-global.cpcdn.com/recipes/6568286442487808/680x482cq70/farmhouse-recipe-our-familys-rich-and-tasty-pot-au-feu-recipe-main-photo.jpg

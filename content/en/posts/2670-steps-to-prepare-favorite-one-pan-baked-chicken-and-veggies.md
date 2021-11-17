@@ -27,10 +27,10 @@ recipeingredient:
 recipeinstructions:
 - "Preheat oven 350 F, spray pan with Pam."
 - "Clean,Cut and season chicken...add to pan. You can also marinate for 30 min or so before starting to cook this."
-- "Clean &amp; cut potatoes, rinse...Add some of each- onion, bell pepper,garlic, mild rotel, seasonings, and mix to coat. Add to pan."
-- "Clean, rinse and season green beans, &amp; add to pan. After I&#39;ve added to pan, I also add in some onions, minced garlic and top with a little bacon grease. Mix."
+- "Clean & cut potatoes, rinse...Add some of each- onion, bell pepper,garlic, mild rotel, seasonings, and mix to coat. Add to pan."
+- "Clean, rinse and season green beans, & add to pan. After I&#39;ve added to pan, I also add in some onions, minced garlic and top with a little bacon grease. Mix."
 - "Pour some liquid zesty dressing over it all. Make sure to shake bottle before pouring on. Make sure all is coated. Add a little butter around. Also, add just a tiny bit of bacon grease fat on top of green beans. I also use some reserve rotel juice I dribble over green beans and chicken. Sprinkle with a little more seasonings all over. Bake an 45 min-hour"
-- "Once it was about 10-15 min or so of being done, I also brushed some bbq sauce on a couple of the chicken pieces. It made it taste even better. I actually mixed bbq sauce &amp; a tiny bit of pepperchino juice, cracked pepper together and basted that on it. Just did a couple pieces to see. And it was very good. Wish I had done allow them. Lol"
+- "Once it was about 10-15 min or so of being done, I also brushed some bbq sauce on a couple of the chicken pieces. It made it taste even better. I actually mixed bbq sauce & a tiny bit of pepperchino juice, cracked pepper together and basted that on it. Just did a couple pieces to see. And it was very good. Wish I had done allow them. Lol"
 - ""
 - "Ready to serve and ENJOY!"
 categories:
@@ -87,10 +87,10 @@ To begin with this recipe, we have to first prepare a few components. You can co
 
 1. Preheat oven 350 F, spray pan with Pam.
 1. Clean,Cut and season chicken...add to pan. You can also marinate for 30 min or so before starting to cook this.
-1. Clean &amp; cut potatoes, rinse...Add some of each- onion, bell pepper,garlic, mild rotel, seasonings, and mix to coat. Add to pan.
-1. Clean, rinse and season green beans, &amp; add to pan. After I&#39;ve added to pan, I also add in some onions, minced garlic and top with a little bacon grease. Mix.
+1. Clean & cut potatoes, rinse...Add some of each- onion, bell pepper,garlic, mild rotel, seasonings, and mix to coat. Add to pan.
+1. Clean, rinse and season green beans, & add to pan. After I&#39;ve added to pan, I also add in some onions, minced garlic and top with a little bacon grease. Mix.
 1. Pour some liquid zesty dressing over it all. Make sure to shake bottle before pouring on. Make sure all is coated. Add a little butter around. Also, add just a tiny bit of bacon grease fat on top of green beans. I also use some reserve rotel juice I dribble over green beans and chicken. Sprinkle with a little more seasonings all over. Bake an 45 min-hour
-1. Once it was about 10-15 min or so of being done, I also brushed some bbq sauce on a couple of the chicken pieces. It made it taste even better. I actually mixed bbq sauce &amp; a tiny bit of pepperchino juice, cracked pepper together and basted that on it. Just did a couple pieces to see. And it was very good. Wish I had done allow them. Lol
+1. Once it was about 10-15 min or so of being done, I also brushed some bbq sauce on a couple of the chicken pieces. It made it taste even better. I actually mixed bbq sauce & a tiny bit of pepperchino juice, cracked pepper together and basted that on it. Just did a couple pieces to see. And it was very good. Wish I had done allow them. Lol
 1. 
 1. Ready to serve and ENJOY!
 

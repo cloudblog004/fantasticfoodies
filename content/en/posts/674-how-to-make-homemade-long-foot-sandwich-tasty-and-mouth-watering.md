@@ -55,7 +55,7 @@ recipecategory: Dessert
 
 Hey everyone, hope you are having an amazing day today. Today, I'm gonna show you how to make a distinctive dish, long foot sandwich /tasty and mouth watering. One of my favorites food recipes. For mine, I will make it a bit unique. This will be really delicious.
 
-Easiest recipe to make a foot long sandwich: Green and small bell paper. In this video we will look at how to make sub sandwich easy &amp; quick with all Today, we&#39;re going to prepare a special dish, long foot sandwich /tasty and mouth watering. One of my favorites food recipes. Today we made a satisfying and tasty instagram food compilations video.
+Easiest recipe to make a foot long sandwich: Green and small bell paper. In this video we will look at how to make sub sandwich easy & quick with all Today, we&#39;re going to prepare a special dish, long foot sandwich /tasty and mouth watering. One of my favorites food recipes. Today we made a satisfying and tasty instagram food compilations video.
 
 Long foot sandwich /tasty and mouth watering is one of the most favored of recent trending meals in the world. It is easy, it's fast, it tastes delicious. It is enjoyed by millions daily. They're fine and they look wonderful. Long foot sandwich /tasty and mouth watering is something which I've loved my entire life.
 

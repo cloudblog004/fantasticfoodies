@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Quick Long life &amp;amp; Health! Warm Soba Noodle"
-title: "Steps to Prepare Quick Long life &amp;amp; Health! Warm Soba Noodle"
+description: "Steps to Prepare Quick Long life & Health! Warm Soba Noodle"
+title: "Steps to Prepare Quick Long life & Health! Warm Soba Noodle"
 slug: 1430-steps-to-prepare-quick-long-life-and-amp-health-warm-soba-noodle
 date: 2021-12-07T13:32:52.522Z
 image: https://img-global.cpcdn.com/recipes/19ef06d37ffa4da3/680x482cq70/long-life-health-warm-soba-noodle-recipe-main-photo.jpg
@@ -71,20 +71,20 @@ recipecategory: Dinner
 ---
 
 
-![Long life &amp; Health! Warm Soba Noodle](https://img-global.cpcdn.com/recipes/19ef06d37ffa4da3/680x482cq70/long-life-health-warm-soba-noodle-recipe-main-photo.jpg)
+![Long life & Health! Warm Soba Noodle](https://img-global.cpcdn.com/recipes/19ef06d37ffa4da3/680x482cq70/long-life-health-warm-soba-noodle-recipe-main-photo.jpg)
 
-Hey everyone, hope you are having an amazing day today. Today, I will show you a way to make a distinctive dish, long life &amp; health! warm soba noodle. It is one of my favorites food recipes. This time, I will make it a little bit tasty. This is gonna smell and look delicious.
-
-
-
-Long life &amp; Health! Warm Soba Noodle is one of the most favored of current trending foods on earth. It's easy, it is quick, it tastes delicious. It's appreciated by millions daily. They are fine and they look fantastic. Long life &amp; Health! Warm Soba Noodle is something which I've loved my entire life.
+Hey everyone, hope you are having an amazing day today. Today, I will show you a way to make a distinctive dish, long life & health! warm soba noodle. It is one of my favorites food recipes. This time, I will make it a little bit tasty. This is gonna smell and look delicious.
 
 
-To get started with this particular recipe, we must prepare a few ingredients. You can have long life &amp; health! warm soba noodle using 20 ingredients and 18 steps. Here is how you can achieve that.
+
+Long life & Health! Warm Soba Noodle is one of the most favored of current trending foods on earth. It's easy, it is quick, it tastes delicious. It's appreciated by millions daily. They are fine and they look fantastic. Long life & Health! Warm Soba Noodle is something which I've loved my entire life.
+
+
+To get started with this particular recipe, we must prepare a few ingredients. You can have long life & health! warm soba noodle using 20 ingredients and 18 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Long life &amp; Health! Warm Soba Noodle:
+##### The ingredients needed to make Long life & Health! Warm Soba Noodle:
 
 1. Get 12 cups water
 1. Make ready 2 dried shiitake mushroom
@@ -112,7 +112,7 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 
 <!--inarticleads2-->
 
-##### Steps to make Long life &amp; Health! Warm Soba Noodle:
+##### Steps to make Long life & Health! Warm Soba Noodle:
 
 1. Mince scallions. Set aside until the end.
 1. In a extra large pot, high heat, add water and chicken, shiitake mushrooms, abura age, (bite sized cut) and dashi pack. Heat until it’s boiled and turn it to medium-low after it.
@@ -136,4 +136,4 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 
 
 
-So that's going to wrap it up with this special food long life &amp; health! warm soba noodle recipe. Thank you very much for your time. I am sure that you can make this at home. There's gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!
+So that's going to wrap it up with this special food long life & health! warm soba noodle recipe. Thank you very much for your time. I am sure that you can make this at home. There's gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

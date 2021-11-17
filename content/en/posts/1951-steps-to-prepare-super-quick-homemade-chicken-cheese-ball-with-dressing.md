@@ -52,7 +52,7 @@ Hello everybody, it's Jim, welcome to our recipe site. Today, I'm gonna show you
 
 Chicken cheese ball with dressing is one of the most favored of recent trending meals in the world. It's simple, it's quick, it tastes yummy. It's appreciated by millions every day. They're fine and they look fantastic. Chicken cheese ball with dressing is something which I have loved my entire life.
 
-Combine Litehouse® dressing &amp; cream cheese in a mixing bowl. Beat at medium speed with an electric mixeruntil blended. Shape into a ball &amp; roll in pecans. This Chicken Cheese Balls Recipe by Shireen Anwar, is the best cheese-loaded appetizer for any Iftar party.
+Combine Litehouse® dressing & cream cheese in a mixing bowl. Beat at medium speed with an electric mixeruntil blended. Shape into a ball & roll in pecans. This Chicken Cheese Balls Recipe by Shireen Anwar, is the best cheese-loaded appetizer for any Iftar party.
 
 
 To get started with this recipe, we have to prepare a few components. You can cook chicken cheese ball with dressing using 10 ingredients and 3 steps. Here is how you cook it.

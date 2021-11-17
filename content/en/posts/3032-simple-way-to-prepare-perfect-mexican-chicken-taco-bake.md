@@ -57,7 +57,7 @@ Hey everyone, hope you are having an amazing day today. Today, I will show you a
 
 Mexican chicken taco bake is one of the most popular of current trending foods in the world. It is simple, it is fast, it tastes delicious. It's enjoyed by millions daily. Mexican chicken taco bake is something which I've loved my entire life. They're fine and they look fantastic.
 
-For the juiciest chicken tacos that you can make easily and quickly at home, I highly recommend using chicken thighs. They have a good white meat to dark meat ratio, which makes them a little fattier than chicken breasts In a large bowl, baking dish or freezer bag, add all the ingredients for the marinade. This Easy Oven Baked Chicken Tacos Recipe is perfect for get-togethers, parties, weeknight dinners or anytime you are craving tacos! Mexican Chicken Taco Skillet, Mexican Chicken Taco, Mexican Chicken Taco Casserole With Olives, Peppers &amp; Queso Fresco Cheese.
+For the juiciest chicken tacos that you can make easily and quickly at home, I highly recommend using chicken thighs. They have a good white meat to dark meat ratio, which makes them a little fattier than chicken breasts In a large bowl, baking dish or freezer bag, add all the ingredients for the marinade. This Easy Oven Baked Chicken Tacos Recipe is perfect for get-togethers, parties, weeknight dinners or anytime you are craving tacos! Mexican Chicken Taco Skillet, Mexican Chicken Taco, Mexican Chicken Taco Casserole With Olives, Peppers & Queso Fresco Cheese.
 
 
 To get started with this particular recipe, we must first prepare a few ingredients. You can have mexican chicken taco bake using 9 ingredients and 9 steps. Here is how you cook it.

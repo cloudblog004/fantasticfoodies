@@ -24,9 +24,9 @@ recipeinstructions:
 - "Make stuffing according to boxes, use one Tbs butter to coat baking pan,quickly dump stuffing into baking pan and spread with spoon to cover bottom"
 - "Dump cooked mashed potatoes onto stuffing and spread with spoon to cover all stuffing"
 - "Mix the broken up chicken, veggies into cooked gravy and pour over potatoes, spread with spoon if needed"
-- "Bake in oven at 350° covered for 15 minutes, uncover and bake at 375° for 5-10 minutes or until hot &amp; bubbly."
+- "Bake in oven at 350° covered for 15 minutes, uncover and bake at 375° for 5-10 minutes or until hot & bubbly."
 - "Let stand for 10-15 minutes before serving so it doesn&#39;t separate from gravy too much."
-- "Serve &amp; enjoy!! :)"
+- "Serve & enjoy!! :)"
 - "Makes a lot of servings so this ones best for a big family or a big get together! :)"
 - "Ready to serve and ENJOY!"
 categories:
@@ -63,9 +63,9 @@ To get started with this particular recipe, we have to first prepare a few compo
 ##### The ingredients needed to make Chicken Quicky Casserole:
 
 1. Take 8-10 chicken breast tenders, cooked, broken into small pcs
-1. Take 1/2 bag frozen peas &amp; carrots mix or frozen mixed veggies
+1. Take 1/2 bag frozen peas & carrots mix or frozen mixed veggies
 1. Take 2 boxes chicken flavored stuffing mix
-1. Prepare 1 tablespoons butter or margarine &amp; enough for stuffing mix
+1. Prepare 1 tablespoons butter or margarine & enough for stuffing mix
 1. Make ready 2 containers precooked mashed potatoes, cook according to pkg
 1. Get 4 envelopes chicken flavored gravy mix, cooked according to pkg
 1. Get 1 roasting pan with lid or large baking pan
@@ -80,9 +80,9 @@ To get started with this particular recipe, we have to first prepare a few compo
 1. Make stuffing according to boxes, use one Tbs butter to coat baking pan,quickly dump stuffing into baking pan and spread with spoon to cover bottom
 1. Dump cooked mashed potatoes onto stuffing and spread with spoon to cover all stuffing
 1. Mix the broken up chicken, veggies into cooked gravy and pour over potatoes, spread with spoon if needed
-1. Bake in oven at 350° covered for 15 minutes, uncover and bake at 375° for 5-10 minutes or until hot &amp; bubbly.
+1. Bake in oven at 350° covered for 15 minutes, uncover and bake at 375° for 5-10 minutes or until hot & bubbly.
 1. Let stand for 10-15 minutes before serving so it doesn&#39;t separate from gravy too much.
-1. Serve &amp; enjoy!! :)
+1. Serve & enjoy!! :)
 1. Makes a lot of servings so this ones best for a big family or a big get together! :)
 1. Ready to serve and ENJOY!
 

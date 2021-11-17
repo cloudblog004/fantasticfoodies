@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Favorite aroz con pollo.(chicken&amp;amp;rice)"
-title: "Recipe of Favorite aroz con pollo.(chicken&amp;amp;rice)"
+description: "Recipe of Favorite aroz con pollo.(chicken&rice)"
+title: "Recipe of Favorite aroz con pollo.(chicken&rice)"
 slug: 2098-recipe-of-favorite-aroz-con-pollochicken-and-amp-rice
 date: 2021-12-25T01:34:37.865Z
 image: //assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png
@@ -46,20 +46,20 @@ recipecategory: Dessert
 ---
 
 
-![aroz con pollo.(chicken&amp;rice)](//assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png)
+![aroz con pollo.(chicken&rice)](//assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png)
 
-Hey everyone, hope you are having an amazing day today. Today, we're going to prepare a distinctive dish, aroz con pollo.(chicken&amp;rice). One of my favorites. This time, I'm gonna make it a bit unique. This is gonna smell and look delicious.
+Hey everyone, hope you are having an amazing day today. Today, we're going to prepare a distinctive dish, aroz con pollo.(chicken&rice). One of my favorites. This time, I'm gonna make it a bit unique. This is gonna smell and look delicious.
 
 Arroz con pollo (Spanish for rice with chicken) is a traditional dish of Latin America, closely related to paella. In the Dominican Republic it is alternately called locrio de pollo, and in Saint Martin it is called lokri or locreo. There is some debate as to whether it originated in Spain or Puerto Rico. How to make Arroz Con Pollo!
 
-aroz con pollo.(chicken&amp;rice) is one of the most well liked of recent trending meals on earth. It's easy, it is fast, it tastes yummy. It's enjoyed by millions daily. They are nice and they look wonderful. aroz con pollo.(chicken&amp;rice) is something that I have loved my whole life.
+aroz con pollo.(chicken&rice) is one of the most well liked of recent trending meals on earth. It's easy, it is fast, it tastes yummy. It's enjoyed by millions daily. They are nice and they look wonderful. aroz con pollo.(chicken&rice) is something that I have loved my whole life.
 
 
-To begin with this recipe, we have to first prepare a few components. You can cook aroz con pollo.(chicken&amp;rice) using 7 ingredients and 6 steps. Here is how you cook it.
+To begin with this recipe, we have to first prepare a few components. You can cook aroz con pollo.(chicken&rice) using 7 ingredients and 6 steps. Here is how you cook it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make aroz con pollo.(chicken&amp;rice):
+##### The ingredients needed to make aroz con pollo.(chicken&rice):
 
 1. Get 2 lb chicken brests
 1. Take 2 cup long grain rice
@@ -74,7 +74,7 @@ This Arroz con Pollo recipe is a comforting, one-pot meal from Latin America. Th
 
 <!--inarticleads2-->
 
-##### Steps to make aroz con pollo.(chicken&amp;rice):
+##### Steps to make aroz con pollo.(chicken&rice):
 
 1. set stove top to medeium
 1. in skillet heat oil then add rice to brown till its darker then golden
@@ -86,4 +86,4 @@ This Arroz con Pollo recipe is a comforting, one-pot meal from Latin America. Th
 
 Chicken is seared and then cooked with rice, spices, chicken broth and olives, until it&#39;s fragrant and delicious. Folks, this Arroz con Pollo is one to rival all others as it is so astoundingly rich in flavor thanks to a wonderful, full-bodied sauce that embodies the chicken and rice, and I also add in some of that classic Spanish sausage known as Chorizo into this dish as well. Arroz con Pollo is a classic Latin American dish, with each country—and each family, for that matter—having its own unique recipe. For mine, I like to use whole pieces of chicken (legs or thighs) that I season with chile powder, cumin, and oregano before adding the rice. This is the best Arroz Con Pollo recipe! 
 
-So that's going to wrap this up for this special food aroz con pollo.(chicken&amp;rice) recipe. Thank you very much for your time. I am sure that you can make this at home. There is gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
+So that's going to wrap this up for this special food aroz con pollo.(chicken&rice) recipe. Thank you very much for your time. I am sure that you can make this at home. There is gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

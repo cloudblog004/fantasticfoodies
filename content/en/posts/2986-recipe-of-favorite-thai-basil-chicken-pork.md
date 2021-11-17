@@ -64,7 +64,7 @@ To begin with this particular recipe, we have to first prepare a few components.
 ##### The ingredients needed to make Thai Basil Chicken / Pork:
 
 1. Take  Chicken
-1. Get  Pork (less soysauce &amp; oystersauce)
+1. Get  Pork (less soysauce & oystersauce)
 1. Take Leaves Thai Basil
 1. Take  Ingredient A : finely minced
 1. Prepare 2-3 Chilli 🌶

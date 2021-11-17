@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Favorite Easy Italian Dressing Roast Chicken &amp;amp; Fresh Tomato Sauce"
-title: "Recipe of Favorite Easy Italian Dressing Roast Chicken &amp;amp; Fresh Tomato Sauce"
+description: "Recipe of Favorite Easy Italian Dressing Roast Chicken & Fresh Tomato Sauce"
+title: "Recipe of Favorite Easy Italian Dressing Roast Chicken & Fresh Tomato Sauce"
 slug: 959-recipe-of-favorite-easy-italian-dressing-roast-chicken-and-amp-fresh-tomato-sauce
 date: 2022-05-24T13:55:05.773Z
 image: https://img-global.cpcdn.com/recipes/ca08b60c5e7af1d0/680x482cq70/easy-italian-dressing-roast-chicken-fresh-tomato-sauce-recipe-main-photo.jpg
@@ -50,23 +50,23 @@ recipecategory: Lunch
 ---
 
 
-![Easy Italian Dressing Roast Chicken &amp; Fresh Tomato Sauce](https://img-global.cpcdn.com/recipes/ca08b60c5e7af1d0/680x482cq70/easy-italian-dressing-roast-chicken-fresh-tomato-sauce-recipe-main-photo.jpg)
+![Easy Italian Dressing Roast Chicken & Fresh Tomato Sauce](https://img-global.cpcdn.com/recipes/ca08b60c5e7af1d0/680x482cq70/easy-italian-dressing-roast-chicken-fresh-tomato-sauce-recipe-main-photo.jpg)
 
-Hey everyone, I hope you're having an amazing day today. Today, I will show you a way to make a distinctive dish, easy italian dressing roast chicken &amp; fresh tomato sauce. One of my favorites. This time, I am going to make it a bit tasty. This is gonna smell and look delicious.
+Hey everyone, I hope you're having an amazing day today. Today, I will show you a way to make a distinctive dish, easy italian dressing roast chicken & fresh tomato sauce. One of my favorites. This time, I am going to make it a bit tasty. This is gonna smell and look delicious.
 
-Easy Italian Dressing Roast Chicken &amp; Fresh Tomato Sauce is one of the most well liked of current trending meals in the world. It is easy, it's fast, it tastes delicious. It is appreciated by millions every day. They're fine and they look wonderful. Easy Italian Dressing Roast Chicken &amp; Fresh Tomato Sauce is something that I have loved my whole life.
-
-
+Easy Italian Dressing Roast Chicken & Fresh Tomato Sauce is one of the most well liked of current trending meals in the world. It is easy, it's fast, it tastes delicious. It is appreciated by millions every day. They're fine and they look wonderful. Easy Italian Dressing Roast Chicken & Fresh Tomato Sauce is something that I have loved my whole life.
 
 
-To get started with this particular recipe, we have to prepare a few ingredients. You can have easy italian dressing roast chicken &amp; fresh tomato sauce using 10 ingredients and 7 steps. Here is how you can achieve it.
+
+
+To get started with this particular recipe, we have to prepare a few ingredients. You can have easy italian dressing roast chicken & fresh tomato sauce using 10 ingredients and 7 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Easy Italian Dressing Roast Chicken &amp; Fresh Tomato Sauce:
+##### The ingredients needed to make Easy Italian Dressing Roast Chicken & Fresh Tomato Sauce:
 
 1. Prepare  For the chicken:
-1. Make ready 3 lbs bone-in, skin-on chicken drums and/or thighs, scored twice on the skin side, down to the bone, about 2&#34;long and 1&#34; apart
+1. Make ready 3 lbs bone-in, skin-on chicken drums and/or thighs, scored twice on the skin side, down to the bone, about 2*long and 1* apart
 1. Make ready 1/3 cup Italian dressing (well shaken) + 1 teaspoon garlic salt mixed in a small bowl
 1. Get 1/4 cup grated dry cheese (like Parmesan, Asiago, Manchego, etc...)
 1. Get  For the fresh tomato sauce:
@@ -81,7 +81,7 @@ To get started with this particular recipe, we have to prepare a few ingredients
 
 <!--inarticleads2-->
 
-##### Steps to make Easy Italian Dressing Roast Chicken &amp; Fresh Tomato Sauce:
+##### Steps to make Easy Italian Dressing Roast Chicken & Fresh Tomato Sauce:
 
 1. In a large mixing bowl, combine the chicken and dressing mixture and toss gently several times to coat the chicken thoroughly. Take some of the run off dressing mixture and work it into each score. Let the chicken sit while you&#39;re preparing the tomato sauce components.
 1. In your roasting pan, add all the tomato sauce components and give them a few good stirs to evenly distribute all the ingredients and seasonings.
@@ -94,4 +94,4 @@ To get started with this particular recipe, we have to prepare a few ingredients
 
 
 
-So that is going to wrap this up for this special food easy italian dressing roast chicken &amp; fresh tomato sauce recipe. Thanks so much for your time. I'm sure that you can make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!
+So that is going to wrap this up for this special food easy italian dressing roast chicken & fresh tomato sauce recipe. Thanks so much for your time. I'm sure that you can make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

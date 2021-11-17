@@ -27,7 +27,7 @@ recipeinstructions:
 - "Cook shells until soft"
 - "Line pan with shells."
 - "Fill shells with chicken/broccoli mixture"
-- "Add cheese &amp; Alfredo to top."
+- "Add cheese & Alfredo to top."
 - "Put in oven on 350 for 15 min or until cheese is melted"
 - "Ready to serve and ENJOY!"
 categories:
@@ -84,7 +84,7 @@ To get started with this recipe, we have to prepare a few components. You can co
 1. Cook shells until soft
 1. Line pan with shells.
 1. Fill shells with chicken/broccoli mixture
-1. Add cheese &amp; Alfredo to top.
+1. Add cheese & Alfredo to top.
 1. Put in oven on 350 for 15 min or until cheese is melted
 1. Ready to serve and ENJOY!
 

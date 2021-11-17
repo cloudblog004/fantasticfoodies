@@ -67,15 +67,15 @@ To begin with this recipe, we have to prepare a few components. You can have sim
 
 ##### The ingredients needed to make Simple Chicken Wings Curry:
 
-1. Get 1 kilo chicken wings &#34;wash&#34;
+1. Get 1 kilo chicken wings *wash*
 1. Prepare 1 bulb onion chopped
 1. Take  I bulb garlic chopped
 1. Prepare 1 Ginger M. Chopped
-1. Prepare 4 medium carroTs &#34;Large Dice&#34;
-1. Take 4 medium potato &#34;Large Dice&#34;
-1. Take 6 slice squash &#34;Large Dice&#34;
+1. Prepare 4 medium carroTs *Large Dice*
+1. Take 4 medium potato *Large Dice*
+1. Take 6 slice squash *Large Dice*
 1. Make ready to taste Salt
-1. Get To taste Pepper corn &#34;cracked&#34;
+1. Get To taste Pepper corn *cracked*
 1. Take 50 g Coconut milk
 1. Prepare 1/2 cup milk evap
 1. Get 120 g Mccormick curry powder

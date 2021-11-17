@@ -37,7 +37,7 @@ recipeingredient:
 recipeinstructions:
 - "Take white and brown bread slices, slightly trim sides. Cut slices lengthwise in 3 portions. Pair a stack of 3 or 4 as you like. Moist slightly slices with pineapple juice, lemon juice or dash of honey."
 - "Plain boil chicken and shred it finely. Mix mayo, salt,periperi seasoning, spring onion, mustard,blackpeepper, honey.form a spread. Take a finger slice,spread the filling evenly on it. Spread to as many as u need."
-- "In boil mash potato mix salt, coriander, blackpepper powder. Mix well.no lumps.spread on finger slices evenly as many as u need.take finger slice and spread periperi or ketchup. Place chop vegies of choice like bellpeppers, tomato, pineapple, cucumber. Stack the 3 fingers one over each other &amp; press slightly to join."
+- "In boil mash potato mix salt, coriander, blackpepper powder. Mix well.no lumps.spread on finger slices evenly as many as u need.take finger slice and spread periperi or ketchup. Place chop vegies of choice like bellpeppers, tomato, pineapple, cucumber. Stack the 3 fingers one over each other & press slightly to join."
 - "Cut circles out of bread slices or squares. Evenly press spreads on them. Stack in 3 or 4. Top with cucumber, pineapple, olives with help of toothpik.enjoy with Tea and Cookpad."
 - "Ready to serve and ENJOY!"
 categories:
@@ -72,12 +72,12 @@ To begin with this recipe, we must first prepare a few components. You can have 
 
 ##### The ingredients needed to make Finger Sandwiches:
 
-1. Get 10-12 slices both White &amp; Brown Bread
+1. Get 10-12 slices both White & Brown Bread
 1. Take 1 cup Boiled Shreded Chicken
 1. Get 1 cup Boiled Mashed Potato
 1. Get 1/4 cup Pineapple chunks
 1. Get 2 Tbsp Olives sliced
-1. Get 1 Each Red &amp; Yellow Bellpepper, Tomato, Cucumber, Spring Onion
+1. Get 1 Each Red & Yellow Bellpepper, Tomato, Cucumber, Spring Onion
 1. Make ready  For Chicken spread
 1. Get 1/4 cup Mayonnaise
 1. Make ready 1/4 cup Cream
@@ -103,7 +103,7 @@ To begin with this recipe, we must first prepare a few components. You can have 
 
 1. Take white and brown bread slices, slightly trim sides. Cut slices lengthwise in 3 portions. Pair a stack of 3 or 4 as you like. Moist slightly slices with pineapple juice, lemon juice or dash of honey.
 1. Plain boil chicken and shred it finely. Mix mayo, salt,periperi seasoning, spring onion, mustard,blackpeepper, honey.form a spread. Take a finger slice,spread the filling evenly on it. Spread to as many as u need.
-1. In boil mash potato mix salt, coriander, blackpepper powder. Mix well.no lumps.spread on finger slices evenly as many as u need.take finger slice and spread periperi or ketchup. Place chop vegies of choice like bellpeppers, tomato, pineapple, cucumber. Stack the 3 fingers one over each other &amp; press slightly to join.
+1. In boil mash potato mix salt, coriander, blackpepper powder. Mix well.no lumps.spread on finger slices evenly as many as u need.take finger slice and spread periperi or ketchup. Place chop vegies of choice like bellpeppers, tomato, pineapple, cucumber. Stack the 3 fingers one over each other & press slightly to join.
 1. Cut circles out of bread slices or squares. Evenly press spreads on them. Stack in 3 or 4. Top with cucumber, pineapple, olives with help of toothpik.enjoy with Tea and Cookpad.
 1. Ready to serve and ENJOY!
 

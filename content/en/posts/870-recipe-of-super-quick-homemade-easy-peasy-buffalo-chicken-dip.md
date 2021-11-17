@@ -56,7 +56,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can cook ea
 ##### The ingredients needed to make Easy Peasy buffalo chicken dip:
 
 1. Prepare 1 block softened cream cheese
-1. Get 1 big can &amp; 1 small can of canned chicken
+1. Get 1 big can & 1 small can of canned chicken
 1. Get 1 packet ranch seasining
 1. Take  Hot sauce to your liking
 1. Make ready 1 c your favorite shredded cheese

@@ -63,7 +63,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 ##### The ingredients needed to make Chicken Parmesan Pockets:
 
 1. Prepare 1 yeast pizza dough
-1. Take 1/2 lb chicken breast, cooked &amp; diced
+1. Take 1/2 lb chicken breast, cooked & diced
 1. Make ready 1/2 cup marinara sauce
 1. Get 8 oz sliced mozzarella, provolone or white American cheese
 1. Take 1 large egg, beaten  + splash of water

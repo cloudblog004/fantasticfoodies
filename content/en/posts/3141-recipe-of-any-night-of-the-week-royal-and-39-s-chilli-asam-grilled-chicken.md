@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Any-night-of-the-week Royal&amp;#39;s Chilli Asam Grilled Chicken"
-title: "Recipe of Any-night-of-the-week Royal&amp;#39;s Chilli Asam Grilled Chicken"
+description: "Recipe of Any-night-of-the-week Royal's Chilli Asam Grilled Chicken"
+title: "Recipe of Any-night-of-the-week Royal's Chilli Asam Grilled Chicken"
 slug: 3141-recipe-of-any-night-of-the-week-royal-and-39-s-chilli-asam-grilled-chicken
 date: 2022-05-12T18:13:03.823Z
 image: https://img-global.cpcdn.com/recipes/48794070835c74f9/680x482cq70/royals-chilli-asam-grilled-chicken-recipe-main-photo.jpg

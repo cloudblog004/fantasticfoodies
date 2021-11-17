@@ -78,6 +78,6 @@ Go quick and easy with our best chicken casserole recipes. French Chicken Casser
 1. Bake on 350 for 30 minutes then serve
 1. Ready to serve and ENJOY!
 
-With golden brown chicken, tender potatoes, white wine, fresh French Chicken Casserole. PagesBusinessesMedia/news companyWell Done by MyRecipesVideosChili Verde Chicken Casserole. This chicken casserole recipe is a healthy but also a hearty meal. Make this comfort food classic for an easy This delicious chicken casserole recipe makes a great midweek meal and it&#39;s also healthy. Is there anything more comforting than a chicken &amp; rice casserole? 
+With golden brown chicken, tender potatoes, white wine, fresh French Chicken Casserole. PagesBusinessesMedia/news companyWell Done by MyRecipesVideosChili Verde Chicken Casserole. This chicken casserole recipe is a healthy but also a hearty meal. Make this comfort food classic for an easy This delicious chicken casserole recipe makes a great midweek meal and it&#39;s also healthy. Is there anything more comforting than a chicken & rice casserole? 
 
 So that's going to wrap it up with this special food verda chicken casserole recipe. Thanks so much for your time. I'm sure you can make this at home. There is gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

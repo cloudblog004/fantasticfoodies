@@ -24,10 +24,10 @@ recipeingredient:
 recipeinstructions:
 - "Preheat the oven to 400 degrees."
 - "In a medium bowl, combine the stuffing, tomatoes, garlic and water. combine just until moist"
-- "Layer the chicken &amp; chorizo in the bottom of a 13×9 pan or 3 quart casserole dish."
+- "Layer the chicken & chorizo in the bottom of a 13×9 pan or 3 quart casserole dish."
 - "Next layer the cheese then died chives. Top with the stuffing mix"
 - "Place in the oven. cook for 30-35 minutes or until internal temp is 160 degrees."
-- "Let cool 5 minutes. Top servings with some sour cream &amp; shredded cheese. serve with desired sides."
+- "Let cool 5 minutes. Top servings with some sour cream & shredded cheese. serve with desired sides."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -80,10 +80,10 @@ Find the most delicious recipes here. Sprinkle with remaining cheeses and bake a
 
 1. Preheat the oven to 400 degrees.
 1. In a medium bowl, combine the stuffing, tomatoes, garlic and water. combine just until moist
-1. Layer the chicken &amp; chorizo in the bottom of a 13×9 pan or 3 quart casserole dish.
+1. Layer the chicken & chorizo in the bottom of a 13×9 pan or 3 quart casserole dish.
 1. Next layer the cheese then died chives. Top with the stuffing mix
 1. Place in the oven. cook for 30-35 minutes or until internal temp is 160 degrees.
-1. Let cool 5 minutes. Top servings with some sour cream &amp; shredded cheese. serve with desired sides.
+1. Let cool 5 minutes. Top servings with some sour cream & shredded cheese. serve with desired sides.
 1. Ready to serve and ENJOY!
 
 The Southwest-style Casserole recipe out of our category Stew! These delicious chicken casseroles are going to be new family favorites, if they aren&#39;t already! Just add dinner rolls and a simple salad for supper. Casseroles are a dish in which you can see Southern ingenuity at its best, and the eighties had no shortage of inventive ideas. Go quick and easy with our best chicken casserole recipes. 

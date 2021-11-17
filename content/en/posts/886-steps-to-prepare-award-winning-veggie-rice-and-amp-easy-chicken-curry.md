@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Award-winning Veggie rice &amp;amp; easy chicken curry"
-title: "Steps to Prepare Award-winning Veggie rice &amp;amp; easy chicken curry"
+description: "Steps to Prepare Award-winning Veggie rice & easy chicken curry"
+title: "Steps to Prepare Award-winning Veggie rice & easy chicken curry"
 slug: 886-steps-to-prepare-award-winning-veggie-rice-and-amp-easy-chicken-curry
 date: 2022-04-30T05:34:42.915Z
 image: https://img-global.cpcdn.com/recipes/d3fd1f2c676c1108/680x482cq70/veggie-rice-easy-chicken-curry-recipe-main-photo.jpg
@@ -62,20 +62,20 @@ recipecategory: Dessert
 ---
 
 
-![Veggie rice &amp; easy chicken curry](https://img-global.cpcdn.com/recipes/d3fd1f2c676c1108/680x482cq70/veggie-rice-easy-chicken-curry-recipe-main-photo.jpg)
+![Veggie rice & easy chicken curry](https://img-global.cpcdn.com/recipes/d3fd1f2c676c1108/680x482cq70/veggie-rice-easy-chicken-curry-recipe-main-photo.jpg)
 
-Hello everybody, hope you are having an incredible day today. Today, we're going to make a special dish, veggie rice &amp; easy chicken curry. One of my favorites. This time, I'm gonna make it a bit unique. This is gonna smell and look delicious.
+Hello everybody, hope you are having an incredible day today. Today, we're going to make a special dish, veggie rice & easy chicken curry. One of my favorites. This time, I'm gonna make it a bit unique. This is gonna smell and look delicious.
 
-Veggie rice &amp; easy chicken curry is one of the most well liked of recent trending meals on earth. It is appreciated by millions every day. It's simple, it is fast, it tastes delicious. They are fine and they look wonderful. Veggie rice &amp; easy chicken curry is something which I have loved my entire life.
+Veggie rice & easy chicken curry is one of the most well liked of recent trending meals on earth. It is appreciated by millions every day. It's simple, it is fast, it tastes delicious. They are fine and they look wonderful. Veggie rice & easy chicken curry is something which I have loved my entire life.
 
-chicken veggies fried rice. बचे हुवे चावल से बनायें Tasty Fried Rice/Instant Fried Rice/Easy Fried Rice #SublimeSonam #Friedrice. Watch how to make veggie fried rice in this short recipe video! It&#39;s so delicious and good for you, too. See recipes for Tuna &amp; Cabbage Salad Rice Bowl too.
+chicken veggies fried rice. बचे हुवे चावल से बनायें Tasty Fried Rice/Instant Fried Rice/Easy Fried Rice #SublimeSonam #Friedrice. Watch how to make veggie fried rice in this short recipe video! It&#39;s so delicious and good for you, too. See recipes for Tuna & Cabbage Salad Rice Bowl too.
 
 
-To get started with this recipe, we have to prepare a few components. You can have veggie rice &amp; easy chicken curry using 17 ingredients and 12 steps. Here is how you can achieve that.
+To get started with this recipe, we have to prepare a few components. You can have veggie rice & easy chicken curry using 17 ingredients and 12 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Veggie rice &amp; easy chicken curry:
+##### The ingredients needed to make Veggie rice & easy chicken curry:
 
 1. Get  For rice
 1. Prepare 2 cup Rice  (350 gm)
@@ -96,11 +96,11 @@ To get started with this recipe, we have to prepare a few components. You can ha
 1. Prepare  Sunflower oil
 
 
-An easily customizable veggies and grains bowl perfect for any night of the week. Featuring Garlic Parmesan Broccoli Rice, Smoky Spiced Carrot Rice, Coconut Lime Cauliflower Rice and Sweet Potato &#34;Fried&#34; Rice. Day-old cooked rice is best for stir fried rice dishes. It&#39;s a little dried out so it doesn&#39;t get clumpy when you return it to heat. 
+An easily customizable veggies and grains bowl perfect for any night of the week. Featuring Garlic Parmesan Broccoli Rice, Smoky Spiced Carrot Rice, Coconut Lime Cauliflower Rice and Sweet Potato *Fried* Rice. Day-old cooked rice is best for stir fried rice dishes. It&#39;s a little dried out so it doesn&#39;t get clumpy when you return it to heat. 
 
 <!--inarticleads2-->
 
-##### Instructions to make Veggie rice &amp; easy chicken curry:
+##### Instructions to make Veggie rice & easy chicken curry:
 
 1. Put all veg in a pan. Add 3 cup water 2 pinch salt and half spoon pepper powder
 1. Boil for 2 mins and drain
@@ -118,4 +118,4 @@ An easily customizable veggies and grains bowl perfect for any night of the week
 
 Day-old cooked rice is best for stir fried rice dishes. It&#39;s a little dried out so it doesn&#39;t get clumpy when you return it to heat. If you don&#39;t have rice already made and need to make some for this dish. Veggie burritos filled with Fajita veggies, rice, beans, avocado, sour-cream and salsa. Veg fried rice recipe with easy steps for beginners. 
 
-So that's going to wrap it up for this special food veggie rice &amp; easy chicken curry recipe. Thank you very much for reading. I am confident you will make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
+So that's going to wrap it up for this special food veggie rice & easy chicken curry recipe. Thank you very much for reading. I am confident you will make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

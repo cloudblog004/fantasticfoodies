@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Ultimate JAI&amp;#39;S CHILLY RECIPE"
-title: "Step-by-Step Guide to Make Ultimate JAI&amp;#39;S CHILLY RECIPE"
+description: "Step-by-Step Guide to Make Ultimate JAI'S CHILLY RECIPE"
+title: "Step-by-Step Guide to Make Ultimate JAI'S CHILLY RECIPE"
 slug: 2071-step-by-step-guide-to-make-ultimate-jai-and-39-s-chilly-recipe
 date: 2022-01-24T18:14:17.632Z
 image: https://img-global.cpcdn.com/recipes/5531816886796288/680x482cq70/jais-chilly-recipe-recipe-main-photo.jpg
@@ -57,7 +57,7 @@ Hello everybody, it is me, Dave, welcome to my recipe page. Today, we're going t
 
 JAI&#39;S CHILLY RECIPE is one of the most well liked of recent trending meals in the world. It's easy, it is quick, it tastes yummy. It's enjoyed by millions daily. JAI&#39;S CHILLY RECIPE is something which I've loved my entire life. They are fine and they look fantastic.
 
-Jay&#39;s Spicy Turkey Chili Haiku: &#34;Ooo-wee it is spicy! The few things I didn&#39;t have, I will do next time!&#34; Thanks for sharing Jay. This is now my go to chili recipe. Herewith is the Recipe in Short for Jain Paneer Chilly.
+Jay&#39;s Spicy Turkey Chili Haiku: *Ooo-wee it is spicy! The few things I didn&#39;t have, I will do next time!* Thanks for sharing Jay. This is now my go to chili recipe. Herewith is the Recipe in Short for Jain Paneer Chilly.
 
 
 To get started with this recipe, we have to first prepare a few ingredients. You can have jai&#39;s chilly recipe using 13 ingredients and 5 steps. Here is how you can achieve that.

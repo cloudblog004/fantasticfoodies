@@ -49,7 +49,7 @@ recipecategory: Lunch
 
 Hello everybody, it is me, Dave, welcome to our recipe site. Today, we're going to prepare a special dish, spinach chicken stir fry. It is one of my favorites. This time, I'm gonna make it a little bit unique. This is gonna smell and look delicious.
 
-See recipes for Spinach chicken stir-fry with brown rice too. Looking for an easy stir-fry recipe? This Gingery Chicken &amp; Spinach Stir-Fry Recipe from GoodHousekeeping.com is the best. Serve chicken and spinach with brown rice.
+See recipes for Spinach chicken stir-fry with brown rice too. Looking for an easy stir-fry recipe? This Gingery Chicken & Spinach Stir-Fry Recipe from GoodHousekeeping.com is the best. Serve chicken and spinach with brown rice.
 
 Spinach chicken stir fry is one of the most well liked of recent trending foods in the world. It's simple, it's fast, it tastes delicious. It is appreciated by millions every day. Spinach chicken stir fry is something which I have loved my entire life. They're fine and they look wonderful.
 

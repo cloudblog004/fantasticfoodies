@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Super Quick Homemade My Tasty Lamb &amp;amp; Veg one Pan served with Garlic Bread"
-title: "Recipe of Super Quick Homemade My Tasty Lamb &amp;amp; Veg one Pan served with Garlic Bread"
+description: "Recipe of Super Quick Homemade My Tasty Lamb & Veg one Pan served with Garlic Bread"
+title: "Recipe of Super Quick Homemade My Tasty Lamb & Veg one Pan served with Garlic Bread"
 slug: 453-recipe-of-super-quick-homemade-my-tasty-lamb-and-amp-veg-one-pan-served-with-garlic-bread
 date: 2022-01-16T14:57:28.590Z
 image: https://img-global.cpcdn.com/recipes/1ca273f4184bc158/680x482cq70/my-tasty-lamb-veg-one-pan-served-with-garlic-bread-recipe-main-photo.jpg
@@ -59,20 +59,20 @@ recipecategory: Dinner
 ---
 
 
-![My Tasty Lamb &amp; Veg one Pan served with Garlic Bread](https://img-global.cpcdn.com/recipes/1ca273f4184bc158/680x482cq70/my-tasty-lamb-veg-one-pan-served-with-garlic-bread-recipe-main-photo.jpg)
+![My Tasty Lamb & Veg one Pan served with Garlic Bread](https://img-global.cpcdn.com/recipes/1ca273f4184bc158/680x482cq70/my-tasty-lamb-veg-one-pan-served-with-garlic-bread-recipe-main-photo.jpg)
 
-Hey everyone, hope you are having an amazing day today. Today, we're going to prepare a special dish, my tasty lamb &amp; veg one pan served with garlic bread. One of my favorites. For mine, I will make it a bit tasty. This is gonna smell and look delicious.
-
-
-
-My Tasty Lamb &amp; Veg one Pan served with Garlic Bread is one of the most popular of current trending meals on earth. It's enjoyed by millions every day. It's simple, it is quick, it tastes yummy. They're nice and they look wonderful. My Tasty Lamb &amp; Veg one Pan served with Garlic Bread is something which I have loved my entire life.
+Hey everyone, hope you are having an amazing day today. Today, we're going to prepare a special dish, my tasty lamb & veg one pan served with garlic bread. One of my favorites. For mine, I will make it a bit tasty. This is gonna smell and look delicious.
 
 
-To begin with this recipe, we must prepare a few components. You can have my tasty lamb &amp; veg one pan served with garlic bread using 20 ingredients and 6 steps. Here is how you cook it.
+
+My Tasty Lamb & Veg one Pan served with Garlic Bread is one of the most popular of current trending meals on earth. It's enjoyed by millions every day. It's simple, it is quick, it tastes yummy. They're nice and they look wonderful. My Tasty Lamb & Veg one Pan served with Garlic Bread is something which I have loved my entire life.
+
+
+To begin with this recipe, we must prepare a few components. You can have my tasty lamb & veg one pan served with garlic bread using 20 ingredients and 6 steps. Here is how you cook it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make My Tasty Lamb &amp; Veg one Pan served with Garlic Bread:
+##### The ingredients needed to make My Tasty Lamb & Veg one Pan served with Garlic Bread:
 
 1. Take 1/4 Onion Diced
 1. Prepare 3 tbls olive oil
@@ -100,7 +100,7 @@ To begin with this recipe, we must prepare a few components. You can have my tas
 
 <!--inarticleads2-->
 
-##### Instructions to make My Tasty Lamb &amp; Veg one Pan served with Garlic Bread:
+##### Instructions to make My Tasty Lamb & Veg one Pan served with Garlic Bread:
 
 1. Heat up the oil fry the onions for 2 minutes. Add the dry herbs and fry for a further minute. Then stir, Have the boiling water ready with the 2 stock cubes in and stirred.
 1. Add the stock and stir cook for 1 minute, bring to the boil then add 1/4 cup Red Wine let boil and bubble for 2 minutes.
@@ -112,4 +112,4 @@ To begin with this recipe, we must prepare a few components. You can have my tas
 
 
 
-So that is going to wrap it up for this special food my tasty lamb &amp; veg one pan served with garlic bread recipe. Thank you very much for your time. I am sure you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!
+So that is going to wrap it up for this special food my tasty lamb & veg one pan served with garlic bread recipe. Thank you very much for your time. I am sure you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

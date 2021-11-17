@@ -26,7 +26,7 @@ recipeingredient:
 - "1 clove garlic minced"
 - "Pinch salt and pepper"
 recipeinstructions:
-- "Start by placing some oil into a large, deep skillet just above medium heat. You want enough oil to coat the bottom of the skillet by about 1/4&#34; or so. While it heats up, cut the chicken into small, bite-sized chunks. Place them into a gallon sized Ziploc bag. Pour in the cornstarch, salt and pepper. Then seal the bag and shake it up to evenly coat the chicken."
+- "Start by placing some oil into a large, deep skillet just above medium heat. You want enough oil to coat the bottom of the skillet by about 1/4* or so. While it heats up, cut the chicken into small, bite-sized chunks. Place them into a gallon sized Ziploc bag. Pour in the cornstarch, salt and pepper. Then seal the bag and shake it up to evenly coat the chicken."
 - "In a small bowl, whisk together all the sauce ingredients and set it aside. Once the oil is hot, add the chicken to the skillet in a single layer... you might need to cook the chicken in batches. Fry for 5-6 minutes per side, until they are starting to brown and are cooked through. Remove them to a towel lined plate. Once all the chicken is cooked, empty the oil from the pan, wipe it out and return it to the burner."
 - "Place the chicken back into the pan and pour the sauce over the top. Stir it to evenly coat the chicken. Let it come up to a simmer for a few minutes to thicken the sauce slightly, then serve."
 - "Ready to serve and ENJOY!"
@@ -83,7 +83,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can c
 
 ##### Steps to make Easy Orange Chicken:
 
-1. Start by placing some oil into a large, deep skillet just above medium heat. You want enough oil to coat the bottom of the skillet by about 1/4&#34; or so. While it heats up, cut the chicken into small, bite-sized chunks. Place them into a gallon sized Ziploc bag. Pour in the cornstarch, salt and pepper. Then seal the bag and shake it up to evenly coat the chicken.
+1. Start by placing some oil into a large, deep skillet just above medium heat. You want enough oil to coat the bottom of the skillet by about 1/4* or so. While it heats up, cut the chicken into small, bite-sized chunks. Place them into a gallon sized Ziploc bag. Pour in the cornstarch, salt and pepper. Then seal the bag and shake it up to evenly coat the chicken.
 1. In a small bowl, whisk together all the sauce ingredients and set it aside. Once the oil is hot, add the chicken to the skillet in a single layer... you might need to cook the chicken in batches. Fry for 5-6 minutes per side, until they are starting to brown and are cooked through. Remove them to a towel lined plate. Once all the chicken is cooked, empty the oil from the pan, wipe it out and return it to the burner.
 1. Place the chicken back into the pan and pour the sauce over the top. Stir it to evenly coat the chicken. Let it come up to a simmer for a few minutes to thicken the sauce slightly, then serve.
 1. Ready to serve and ENJOY!

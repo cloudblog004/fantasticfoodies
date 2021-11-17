@@ -28,7 +28,7 @@ recipeinstructions:
 - "Preheat pellet grill to 170-180° and set smoke to desired smoke setting. I set mine at 8 on 1-10 scale."
 - "Remove thighs from marinade and place on multiple layers of paper towels. Use more paper towels to pat the top and remove as much marinade as possible. The drier the skin, the better is will crisp in the final cook."
 - "Brush skin side with light coat of avocado oil for seasoning to adhere. Apply a generous dusting of chili lime seasoning. It does have a kick, so use you best judgement, depending on your taste preference."
-- "Once grill is ready, place thighs on upper grate, skin side up and at least 2&#34; apart. Smoke until internal temp hits about 145°. Remove from grill."
+- "Once grill is ready, place thighs on upper grate, skin side up and at least 2* apart. Smoke until internal temp hits about 145°. Remove from grill."
 - "Increase grill temp setting to 400°. Once temp reaches at least 380°, place thighs back on grill and cook until internal temp hits 165-180° (depending on your preferred level of doneness)."
 - "Cook skin side down in the last few minutes for crisper skin. Be careful not to overcook the skin."
 - "Always be careful when cooking chicken thighs - they have a lot of grease and tend to have flare-ups at high heat. Do not leave grill unattended in final cooking step, and be prepared to pull chicken off quickly in the event of a flare-up."
@@ -89,7 +89,7 @@ To get started with this particular recipe, we have to prepare a few components.
 1. Preheat pellet grill to 170-180° and set smoke to desired smoke setting. I set mine at 8 on 1-10 scale.
 1. Remove thighs from marinade and place on multiple layers of paper towels. Use more paper towels to pat the top and remove as much marinade as possible. The drier the skin, the better is will crisp in the final cook.
 1. Brush skin side with light coat of avocado oil for seasoning to adhere. Apply a generous dusting of chili lime seasoning. It does have a kick, so use you best judgement, depending on your taste preference.
-1. Once grill is ready, place thighs on upper grate, skin side up and at least 2&#34; apart. Smoke until internal temp hits about 145°. Remove from grill.
+1. Once grill is ready, place thighs on upper grate, skin side up and at least 2* apart. Smoke until internal temp hits about 145°. Remove from grill.
 1. Increase grill temp setting to 400°. Once temp reaches at least 380°, place thighs back on grill and cook until internal temp hits 165-180° (depending on your preferred level of doneness).
 1. Cook skin side down in the last few minutes for crisper skin. Be careful not to overcook the skin.
 1. Always be careful when cooking chicken thighs - they have a lot of grease and tend to have flare-ups at high heat. Do not leave grill unattended in final cooking step, and be prepared to pull chicken off quickly in the event of a flare-up.

@@ -80,7 +80,7 @@ To begin with this particular recipe, we must prepare a few components. You can 
 1. Make ready  Green chilies chopped
 
 
-Home Recipes Soups &amp; Stocks Chicken Corn Egg Drop Soup. As fall and winter sets in, this Chicken Corn Egg Drop Soup really hits the spot on a cold day. Great recipe for Chicken corn soup. After that take a bowl and add Corn Flour and add some water and mix it well and put it into pot and stir it well and then add. Куриный суп с кукурузой / Chicken and sweet corn soup. 
+Home Recipes Soups & Stocks Chicken Corn Egg Drop Soup. As fall and winter sets in, this Chicken Corn Egg Drop Soup really hits the spot on a cold day. Great recipe for Chicken corn soup. After that take a bowl and add Corn Flour and add some water and mix it well and put it into pot and stir it well and then add. Куриный суп с кукурузой / Chicken and sweet corn soup. 
 
 <!--inarticleads2-->
 

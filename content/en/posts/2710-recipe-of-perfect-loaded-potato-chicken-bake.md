@@ -27,15 +27,15 @@ recipeingredient:
 - "1 cup green onion diced"
 - "6 tsp butter"
 recipeinstructions:
-- "Preheat oven to 450°. Wash &amp; cube potatoes, put into a bowl &amp; set aside."
-- "In a seperate bowl add paprika, salt, black pepper &amp; garlic powder. Set aside! In another seperate bowl mix olive oil &amp; hot sauce. Now combine both bowls, mix well."
-- "Pour cubed potatoes into sauce mixture &amp; evenly coat the potatoes."
+- "Preheat oven to 450°. Wash & cube potatoes, put into a bowl & set aside."
+- "In a seperate bowl add paprika, salt, black pepper & garlic powder. Set aside! In another seperate bowl mix olive oil & hot sauce. Now combine both bowls, mix well."
+- "Pour cubed potatoes into sauce mixture & evenly coat the potatoes."
 - "In a sprayed cassarole dish spoon out potatoes. Try to keep as much of the sauce mix in the bowl as possible."
 - "Now put potatoes in the oven, stirring every 10-15 mins. Bake for about 40 mins."
-- "While potatoes are cooking, cube chicken breasts. Add breasts to remaining sauce &amp; evenly coat. Then dice up onion &amp; add to the chicken &amp; sauce."
-- "In seperate bowl combine cheese, green onions &amp; bacon bits."
+- "While potatoes are cooking, cube chicken breasts. Add breasts to remaining sauce & evenly coat. Then dice up onion & add to the chicken & sauce."
+- "In seperate bowl combine cheese, green onions & bacon bits."
 - "Once potatoes are almost tender, add chicken mix on top of poatoes, cook for about 20 mins covered."
-- "On top of chicken sprinkle cheese mix &amp; place back in the oven uncovered for another 15-20 mins."
+- "On top of chicken sprinkle cheese mix & place back in the oven uncovered for another 15-20 mins."
 - "When serving you may add additional hot sauce, blue cheese or ranch dressing but this is optional. ENJOY!"
 - "Ready to serve and ENJOY!"
 categories:
@@ -92,15 +92,15 @@ To begin with this particular recipe, we have to first prepare a few components.
 
 ##### Steps to make Loaded Potato Chicken Bake:
 
-1. Preheat oven to 450°. Wash &amp; cube potatoes, put into a bowl &amp; set aside.
-1. In a seperate bowl add paprika, salt, black pepper &amp; garlic powder. Set aside! In another seperate bowl mix olive oil &amp; hot sauce. Now combine both bowls, mix well.
-1. Pour cubed potatoes into sauce mixture &amp; evenly coat the potatoes.
+1. Preheat oven to 450°. Wash & cube potatoes, put into a bowl & set aside.
+1. In a seperate bowl add paprika, salt, black pepper & garlic powder. Set aside! In another seperate bowl mix olive oil & hot sauce. Now combine both bowls, mix well.
+1. Pour cubed potatoes into sauce mixture & evenly coat the potatoes.
 1. In a sprayed cassarole dish spoon out potatoes. Try to keep as much of the sauce mix in the bowl as possible.
 1. Now put potatoes in the oven, stirring every 10-15 mins. Bake for about 40 mins.
-1. While potatoes are cooking, cube chicken breasts. Add breasts to remaining sauce &amp; evenly coat. Then dice up onion &amp; add to the chicken &amp; sauce.
-1. In seperate bowl combine cheese, green onions &amp; bacon bits.
+1. While potatoes are cooking, cube chicken breasts. Add breasts to remaining sauce & evenly coat. Then dice up onion & add to the chicken & sauce.
+1. In seperate bowl combine cheese, green onions & bacon bits.
 1. Once potatoes are almost tender, add chicken mix on top of poatoes, cook for about 20 mins covered.
-1. On top of chicken sprinkle cheese mix &amp; place back in the oven uncovered for another 15-20 mins.
+1. On top of chicken sprinkle cheese mix & place back in the oven uncovered for another 15-20 mins.
 1. When serving you may add additional hot sauce, blue cheese or ranch dressing but this is optional. ENJOY!
 1. Ready to serve and ENJOY!
 

@@ -20,7 +20,7 @@ recipeingredient:
 - " White Rice if desire"
 - "1 tbsp Olive Oil or Butter"
 recipeinstructions:
-- "I used a Skillet. Cook your Chicken &amp; mushrooms (any extras you want) until done. Set aside in separate bowl."
+- "I used a Skillet. Cook your Chicken & mushrooms (any extras you want) until done. Set aside in separate bowl."
 - "Add your olive oil/butter with Zoodles in skillet. Saute for approximately 15 minutes or until a little soft. You don&#39;t want too soft."
 - "Add your already cooked Chicken and bottle of Ragu Sauce with zoodles. Cover and simmer on low/med until hot."
 - "If using with rice, or any other extra if choice. Make desired amount of rice while simmering your Zoodle Alfredo mix in skillet. When done top over rice, Eat and Enjoy!"
@@ -72,7 +72,7 @@ To get started with this recipe, we have to first prepare a few ingredients. You
 
 ##### Steps to make Chicken Garlic Alfredo Zoodles:
 
-1. I used a Skillet. Cook your Chicken &amp; mushrooms (any extras you want) until done. Set aside in separate bowl.
+1. I used a Skillet. Cook your Chicken & mushrooms (any extras you want) until done. Set aside in separate bowl.
 1. Add your olive oil/butter with Zoodles in skillet. Saute for approximately 15 minutes or until a little soft. You don&#39;t want too soft.
 1. Add your already cooked Chicken and bottle of Ragu Sauce with zoodles. Cover and simmer on low/med until hot.
 1. If using with rice, or any other extra if choice. Make desired amount of rice while simmering your Zoodle Alfredo mix in skillet. When done top over rice, Eat and Enjoy!

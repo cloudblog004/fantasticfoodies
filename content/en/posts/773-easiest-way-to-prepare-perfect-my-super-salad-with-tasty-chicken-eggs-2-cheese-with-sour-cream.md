@@ -84,7 +84,7 @@ To begin with this recipe, we must prepare a few components. You can have my sup
 1. Get  Hard boiled egg
 1. Get  Red Onion
 1. Make ready  Cucumber
-1. Take  Salt &amp; Pepper
+1. Take  Salt & Pepper
 1. Take 1 tsp Balsamic vinegar
 1. Make ready 1 Squeeze a Lemon
 

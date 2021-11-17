@@ -64,7 +64,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 
 1. Take 1/2 lb 1 lb. ground beef, chicken or turkey
 1. Prepare 1/4 lb to 1/2 lb. Bacon
-1. Get 1 large Can (3 lb.) Pork &amp; Beans
+1. Get 1 large Can (3 lb.) Pork & Beans
 1. Get 1 lb Can Butter Limas
 1. Get 1 lb Can Kidney Beans
 1. Take 1 cup Ketchup

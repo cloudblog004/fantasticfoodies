@@ -93,7 +93,7 @@ To begin with this recipe, we have to first prepare a few components. You can ha
 1. Take  Red onion
 
 
-Than, bake it in the oven &amp; later. Greek Chicken Gyros are easy, flavorful, make ahead and healthy - winning! The combination of juicy Greek lemon chicken, creamy cucumber dill tzatziki Fish Gyros: use my Greek Baked Salmon with Dill Sauce and stuff the pitas with fish instead. You can leave the rest of the filling ingredients the same. 
+Than, bake it in the oven & later. Greek Chicken Gyros are easy, flavorful, make ahead and healthy - winning! The combination of juicy Greek lemon chicken, creamy cucumber dill tzatziki Fish Gyros: use my Greek Baked Salmon with Dill Sauce and stuff the pitas with fish instead. You can leave the rest of the filling ingredients the same. 
 
 <!--inarticleads2-->
 

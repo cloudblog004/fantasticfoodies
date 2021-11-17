@@ -22,11 +22,11 @@ recipeingredient:
 - "2 cups breadcrumbs"
 recipeinstructions:
 - "Lay chicken cutlets on cutting board, place parchment paper on top. Pound meat with rolling pin."
-- "Remove parchment paper, salt &amp; pepper chicken."
-- "Set up your mixing station. 1st bowl place flour in first bowl. Then eggs with a splash of water in second bowl, whisk. Place breadcrumbs &amp; fish seasoning in third bowl."
-- "Place chicken in flour bowl, then egg the breadcrumb mixture, make sure to coat all of the chicken. Place on baking sheet. Repeat. Once you have finished with all the chicken, cover with parchment paper &amp; place in refrigerator for an hour."
-- "Maybe about 10-15min before the hour is up, pour oil into frying pan. Put the burner between medium- medium high. To check if oil is ready, sprinkle water into hot oil. If the water bubbles and makes a &#34;popping sound&#34; your oil is ready. Preheat oven to 250. Place chicken in oil. Cook chicken 3 1/2 min on each side."
-- "Once done, place chicken in paper towl lined paper to excess oil. Remove and place on cookie sheet &amp; put in oven to keep warm. Cook remaining chicken the same way you did before. Enjoy!"
+- "Remove parchment paper, salt & pepper chicken."
+- "Set up your mixing station. 1st bowl place flour in first bowl. Then eggs with a splash of water in second bowl, whisk. Place breadcrumbs & fish seasoning in third bowl."
+- "Place chicken in flour bowl, then egg the breadcrumb mixture, make sure to coat all of the chicken. Place on baking sheet. Repeat. Once you have finished with all the chicken, cover with parchment paper & place in refrigerator for an hour."
+- "Maybe about 10-15min before the hour is up, pour oil into frying pan. Put the burner between medium- medium high. To check if oil is ready, sprinkle water into hot oil. If the water bubbles and makes a *popping sound* your oil is ready. Preheat oven to 250. Place chicken in oil. Cook chicken 3 1/2 min on each side."
+- "Once done, place chicken in paper towl lined paper to excess oil. Remove and place on cookie sheet & put in oven to keep warm. Cook remaining chicken the same way you did before. Enjoy!"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -64,7 +64,7 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 1. Take 1 package raw chicken cutlets
 1. Take 2-3 eggs
 1. Make ready 2 cups flour
-1. Prepare to taste Salt &amp; pepper
+1. Prepare to taste Salt & pepper
 1. Prepare 2-3 tbs Jamacian fish seasoning
 1. Get 2 cups oil
 1. Get 2 cups breadcrumbs
@@ -77,11 +77,11 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 ##### Instructions to make Easy Chicken cutlets with a twist:
 
 1. Lay chicken cutlets on cutting board, place parchment paper on top. Pound meat with rolling pin.
-1. Remove parchment paper, salt &amp; pepper chicken.
-1. Set up your mixing station. 1st bowl place flour in first bowl. Then eggs with a splash of water in second bowl, whisk. Place breadcrumbs &amp; fish seasoning in third bowl.
-1. Place chicken in flour bowl, then egg the breadcrumb mixture, make sure to coat all of the chicken. Place on baking sheet. Repeat. Once you have finished with all the chicken, cover with parchment paper &amp; place in refrigerator for an hour.
-1. Maybe about 10-15min before the hour is up, pour oil into frying pan. Put the burner between medium- medium high. To check if oil is ready, sprinkle water into hot oil. If the water bubbles and makes a &#34;popping sound&#34; your oil is ready. Preheat oven to 250. Place chicken in oil. Cook chicken 3 1/2 min on each side.
-1. Once done, place chicken in paper towl lined paper to excess oil. Remove and place on cookie sheet &amp; put in oven to keep warm. Cook remaining chicken the same way you did before. Enjoy!
+1. Remove parchment paper, salt & pepper chicken.
+1. Set up your mixing station. 1st bowl place flour in first bowl. Then eggs with a splash of water in second bowl, whisk. Place breadcrumbs & fish seasoning in third bowl.
+1. Place chicken in flour bowl, then egg the breadcrumb mixture, make sure to coat all of the chicken. Place on baking sheet. Repeat. Once you have finished with all the chicken, cover with parchment paper & place in refrigerator for an hour.
+1. Maybe about 10-15min before the hour is up, pour oil into frying pan. Put the burner between medium- medium high. To check if oil is ready, sprinkle water into hot oil. If the water bubbles and makes a *popping sound* your oil is ready. Preheat oven to 250. Place chicken in oil. Cook chicken 3 1/2 min on each side.
+1. Once done, place chicken in paper towl lined paper to excess oil. Remove and place on cookie sheet & put in oven to keep warm. Cook remaining chicken the same way you did before. Enjoy!
 1. Ready to serve and ENJOY!
 
 

@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Speedy Tory&amp;#39;s diet Cabbage with chicken"
-title: "Recipe of Speedy Tory&amp;#39;s diet Cabbage with chicken"
+description: "Recipe of Speedy Tory's diet Cabbage with chicken"
+title: "Recipe of Speedy Tory's diet Cabbage with chicken"
 slug: 1384-recipe-of-speedy-tory-and-39-s-diet-cabbage-with-chicken
 date: 2022-04-22T21:16:15.438Z
 image: https://img-global.cpcdn.com/recipes/5020846034780160/680x482cq70/torys-diet-cabbage-with-chicken-recipe-main-photo.jpg
@@ -67,7 +67,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 1. Prepare 100 grams low fat natural yougurt
 1. Get 20 grams chopped parsley
 1. Prepare 3 clove garlic
-1. Make ready 1 pepper&amp;salt
+1. Make ready 1 pepper&salt
 
 
 Home Diets on cabbage Chicken and Broccoli diet. Based on the name of the diet, it is clear that the main two components are Broccoli Sprouts and chicken. Chicken is rich in protein, and broccoli contains many essential minerals, vitamins, and dietary fiber. Cabbage Soup Diet Ingredients and Side Effects. 

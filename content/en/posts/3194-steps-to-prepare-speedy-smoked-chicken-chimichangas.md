@@ -38,12 +38,12 @@ recipeingredient:
 - " Toothpicks"
 - " Shredded Monterey Jack Cheese"
 recipeinstructions:
-- "Mix the smoked Paprika, oregano, thyme, salt, pepper, garlic &amp; onion powder, ground mustard and cayenne pepper in a bowl"
+- "Mix the smoked Paprika, oregano, thyme, salt, pepper, garlic & onion powder, ground mustard and cayenne pepper in a bowl"
 - "Lay out chicken on a rack and lightly coat with olive oil. Then season with mix from step 1 (both sides)"
 - "Preheat smoker to 250°F or 130°C. Use Hickory wood/Pellets and smoke for 1 hour or until internal temperature of 160-165°F. Remove and rest for 10 minutes."
 - "In a blender, mix the water, Avocado, jalapeno, pinch of salt and pepper, juice of 1 lime, 1 tsp garlic powder and sour cream. Blend until smooth. Add splashes of water to get desired consistency."
 - "Rinse black beans and set aside"
-- "Put 1/4&#34; of fry oil in a large pot or cast iron pan. Preheat over medium heat."
+- "Put 1/4* of fry oil in a large pot or cast iron pan. Preheat over medium heat."
 - "When chicken hits internal temperature of 150°F, up grill temperature to 300°F. Chicken does not accept smoke flavoring after 150°F, so you can up the temperature to finish."
 - "Warm the Tortilla for easy wrapping. Put plastic wrap over plate and put in microwave for 30 seconds."
 - "Cut chicken into strips, then assemble Tortilla. Place black beans, Avocado crema, chicken and Shredded Monterey jack  cheese."
@@ -115,12 +115,12 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 
 ##### Instructions to make Smoked Chicken Chimichangas:
 
-1. Mix the smoked Paprika, oregano, thyme, salt, pepper, garlic &amp; onion powder, ground mustard and cayenne pepper in a bowl
+1. Mix the smoked Paprika, oregano, thyme, salt, pepper, garlic & onion powder, ground mustard and cayenne pepper in a bowl
 1. Lay out chicken on a rack and lightly coat with olive oil. Then season with mix from step 1 (both sides)
 1. Preheat smoker to 250°F or 130°C. Use Hickory wood/Pellets and smoke for 1 hour or until internal temperature of 160-165°F. Remove and rest for 10 minutes.
 1. In a blender, mix the water, Avocado, jalapeno, pinch of salt and pepper, juice of 1 lime, 1 tsp garlic powder and sour cream. Blend until smooth. Add splashes of water to get desired consistency.
 1. Rinse black beans and set aside
-1. Put 1/4&#34; of fry oil in a large pot or cast iron pan. Preheat over medium heat.
+1. Put 1/4* of fry oil in a large pot or cast iron pan. Preheat over medium heat.
 1. When chicken hits internal temperature of 150°F, up grill temperature to 300°F. Chicken does not accept smoke flavoring after 150°F, so you can up the temperature to finish.
 1. Warm the Tortilla for easy wrapping. Put plastic wrap over plate and put in microwave for 30 seconds.
 1. Cut chicken into strips, then assemble Tortilla. Place black beans, Avocado crema, chicken and Shredded Monterey jack  cheese.

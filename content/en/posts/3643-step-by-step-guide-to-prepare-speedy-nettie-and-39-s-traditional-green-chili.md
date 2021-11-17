@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Prepare Speedy Nettie&amp;#39;s Traditional Green Chili"
-title: "Step-by-Step Guide to Prepare Speedy Nettie&amp;#39;s Traditional Green Chili"
+description: "Step-by-Step Guide to Prepare Speedy Nettie's Traditional Green Chili"
+title: "Step-by-Step Guide to Prepare Speedy Nettie's Traditional Green Chili"
 slug: 3643-step-by-step-guide-to-prepare-speedy-nettie-and-39-s-traditional-green-chili
 date: 2022-01-13T04:59:53.954Z
 image: https://img-global.cpcdn.com/recipes/6719377550344192/680x482cq70/netties-traditional-green-chili-recipe-main-photo.jpg

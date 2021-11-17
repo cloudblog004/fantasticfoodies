@@ -54,7 +54,7 @@ recipecategory: Dinner
 
 Hello everybody, it is John, welcome to my recipe site. Today, we're going to prepare a special dish, really delicious! chicken stir-fry with miso and mayonnaise. One of my favorites. For mine, I will make it a bit unique. This is gonna smell and look delicious.
 
-Zucchini and Chicken in Miso and Mayonaise is one of the most well liked Lightly coat a frying pan with oil, add the chicken, season with salt and cook over a high heat until browned Add the onion and pepper, and quickly stir fry. Introducing the &#34;Miso-pickled chicken breast&#34; recipe, which is convenient to freeze. Just soak it in miso and mayonnaise to make it rich and delicious. When cooking, move it to the refrigerator or thaw it using the microwave function.
+Zucchini and Chicken in Miso and Mayonaise is one of the most well liked Lightly coat a frying pan with oil, add the chicken, season with salt and cook over a high heat until browned Add the onion and pepper, and quickly stir fry. Introducing the *Miso-pickled chicken breast* recipe, which is convenient to freeze. Just soak it in miso and mayonnaise to make it rich and delicious. When cooking, move it to the refrigerator or thaw it using the microwave function.
 
 Really Delicious! Chicken Stir-fry with Miso and Mayonnaise is one of the most well liked of recent trending foods in the world. It is appreciated by millions every day. It's easy, it is fast, it tastes delicious. Really Delicious! Chicken Stir-fry with Miso and Mayonnaise is something that I have loved my whole life. They're nice and they look wonderful.
 

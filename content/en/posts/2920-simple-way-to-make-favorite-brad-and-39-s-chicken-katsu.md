@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Make Favorite Brad&amp;#39;s chicken katsu"
-title: "Simple Way to Make Favorite Brad&amp;#39;s chicken katsu"
+description: "Simple Way to Make Favorite Brad's chicken katsu"
+title: "Simple Way to Make Favorite Brad's chicken katsu"
 slug: 2920-simple-way-to-make-favorite-brad-and-39-s-chicken-katsu
 date: 2022-02-11T09:37:00.224Z
 image: https://img-global.cpcdn.com/recipes/acd73be820949789/680x482cq70/brads-chicken-katsu-recipe-main-photo.jpg
@@ -76,7 +76,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 1. Get 1/2 tsp ground mustard
 1. Take 1 clove minced garlic
 1. Make ready  For the chicken
-1. Get 2 lbs chicken breast, sliced into 1/2 &#34; strips
+1. Get 2 lbs chicken breast, sliced into 1/2 * strips
 1. Make ready  Prepared tempura batter
 
 

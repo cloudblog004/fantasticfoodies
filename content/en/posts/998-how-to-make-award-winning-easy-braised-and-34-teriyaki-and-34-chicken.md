@@ -1,6 +1,6 @@
 ---
-description: "How to Make Award-winning Easy Braised &amp;#34;Teriyaki&amp;#34; Chicken"
-title: "How to Make Award-winning Easy Braised &amp;#34;Teriyaki&amp;#34; Chicken"
+description: "How to Make Award-winning Easy Braised *Teriyaki* Chicken"
+title: "How to Make Award-winning Easy Braised *Teriyaki* Chicken"
 slug: 998-how-to-make-award-winning-easy-braised-and-34-teriyaki-and-34-chicken
 date: 2021-12-18T19:45:43.680Z
 image: https://img-global.cpcdn.com/recipes/c51c9a5f4199ef19/680x482cq70/easy-braised-teriyaki-chicken-recipe-main-photo.jpg
@@ -48,20 +48,20 @@ recipecategory: Lunch
 ---
 
 
-![Easy Braised &#34;Teriyaki&#34; Chicken](https://img-global.cpcdn.com/recipes/c51c9a5f4199ef19/680x482cq70/easy-braised-teriyaki-chicken-recipe-main-photo.jpg)
+![Easy Braised *Teriyaki* Chicken](https://img-global.cpcdn.com/recipes/c51c9a5f4199ef19/680x482cq70/easy-braised-teriyaki-chicken-recipe-main-photo.jpg)
 
-Hey everyone, hope you are having an incredible day today. Today, I'm gonna show you how to prepare a special dish, easy braised &#34;teriyaki&#34; chicken. It is one of my favorites food recipes. For mine, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
-
-
-
-Easy Braised &#34;Teriyaki&#34; Chicken is one of the most favored of current trending foods in the world. It is enjoyed by millions daily. It is simple, it's fast, it tastes yummy. Easy Braised &#34;Teriyaki&#34; Chicken is something that I have loved my whole life. They are nice and they look wonderful.
+Hey everyone, hope you are having an incredible day today. Today, I'm gonna show you how to prepare a special dish, easy braised *teriyaki* chicken. It is one of my favorites food recipes. For mine, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
 
 
-To begin with this recipe, we have to first prepare a few components. You can have easy braised &#34;teriyaki&#34; chicken using 9 ingredients and 6 steps. Here is how you can achieve that.
+
+Easy Braised *Teriyaki* Chicken is one of the most favored of current trending foods in the world. It is enjoyed by millions daily. It is simple, it's fast, it tastes yummy. Easy Braised *Teriyaki* Chicken is something that I have loved my whole life. They are nice and they look wonderful.
+
+
+To begin with this recipe, we have to first prepare a few components. You can have easy braised *teriyaki* chicken using 9 ingredients and 6 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Easy Braised &#34;Teriyaki&#34; Chicken:
+##### The ingredients needed to make Easy Braised *Teriyaki* Chicken:
 
 1. Prepare 3 pounds chicken wings, drums or thighs, patted dry and seasoned with 3/4 teaspoon kosher salt
 1. Make ready 1/2 an onion, cut into 1/4-inch wide pieces
@@ -78,7 +78,7 @@ To begin with this recipe, we have to first prepare a few components. You can ha
 
 <!--inarticleads2-->
 
-##### Instructions to make Easy Braised &#34;Teriyaki&#34; Chicken:
+##### Instructions to make Easy Braised *Teriyaki* Chicken:
 
 1. Put all the ingredients into a 4 or 5 quart Dutch oven or a large, deep saute pan, with the chicken skin side down. Bring to a gentle boil, covered, over medium heat.
 1. Once it comes to a gentle boil, let it stay there for about 2 minutes. Give the chicken a gentle stir or two to redistribute the ingredients then turn the heat down to medium low and simmer, lid askew for another 25 to 30 minutes, flipping the pieces of chicken mid way so the skin side is up.
@@ -90,4 +90,4 @@ To begin with this recipe, we have to first prepare a few components. You can ha
 
 
 
-So that is going to wrap this up for this exceptional food easy braised &#34;teriyaki&#34; chicken recipe. Thank you very much for reading. I am confident you can make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
+So that is going to wrap this up for this exceptional food easy braised *teriyaki* chicken recipe. Thank you very much for reading. I am confident you can make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

@@ -1,6 +1,6 @@
 ---
-description: "How to Prepare Award-winning Crockpot Lemon &amp;amp; Herb Chicken W/Gravy"
-title: "How to Prepare Award-winning Crockpot Lemon &amp;amp; Herb Chicken W/Gravy"
+description: "How to Prepare Award-winning Crockpot Lemon & Herb Chicken W/Gravy"
+title: "How to Prepare Award-winning Crockpot Lemon & Herb Chicken W/Gravy"
 slug: 179-how-to-prepare-award-winning-crockpot-lemon-and-amp-herb-chicken-w-gravy
 date: 2022-01-05T17:39:46.553Z
 image: https://img-global.cpcdn.com/recipes/5715668406632448/680x482cq70/crockpot-lemon-herb-chicken-wgravy-recipe-main-photo.jpg
@@ -48,29 +48,29 @@ recipecategory: Dinner
 ---
 
 
-![Crockpot Lemon &amp; Herb Chicken W/Gravy](https://img-global.cpcdn.com/recipes/5715668406632448/680x482cq70/crockpot-lemon-herb-chicken-wgravy-recipe-main-photo.jpg)
+![Crockpot Lemon & Herb Chicken W/Gravy](https://img-global.cpcdn.com/recipes/5715668406632448/680x482cq70/crockpot-lemon-herb-chicken-wgravy-recipe-main-photo.jpg)
 
-Hey everyone, hope you are having an incredible day today. Today, I will show you a way to make a special dish, crockpot lemon &amp; herb chicken w/gravy. One of my favorites food recipes. This time, I will make it a little bit unique. This will be really delicious.
+Hey everyone, hope you are having an incredible day today. Today, I will show you a way to make a special dish, crockpot lemon & herb chicken w/gravy. One of my favorites food recipes. This time, I will make it a little bit unique. This will be really delicious.
 
-Crockpot Lemon &amp; Herb Chicken W/Gravy is one of the most favored of current trending foods in the world. It is enjoyed by millions every day. It is simple, it is quick, it tastes delicious. They're nice and they look fantastic. Crockpot Lemon &amp; Herb Chicken W/Gravy is something which I've loved my whole life.
-
-
+Crockpot Lemon & Herb Chicken W/Gravy is one of the most favored of current trending foods in the world. It is enjoyed by millions every day. It is simple, it is quick, it tastes delicious. They're nice and they look fantastic. Crockpot Lemon & Herb Chicken W/Gravy is something which I've loved my whole life.
 
 
-To get started with this particular recipe, we have to prepare a few components. You can have crockpot lemon &amp; herb chicken w/gravy using 10 ingredients and 5 steps. Here is how you cook that.
+
+
+To get started with this particular recipe, we have to prepare a few components. You can have crockpot lemon & herb chicken w/gravy using 10 ingredients and 5 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Crockpot Lemon &amp; Herb Chicken W/Gravy:
+##### The ingredients needed to make Crockpot Lemon & Herb Chicken W/Gravy:
 
-1. Prepare 1 See my lemon &amp; herb gravy Recipe, ingredients are listed there.
+1. Prepare 1 See my lemon & herb gravy Recipe, ingredients are listed there.
 1. Prepare 1 large or 2 small lemons
 1. Prepare 2 each branches fresh rosemary
 1. Take 2 each to 3 branches fresh taragon
 1. Prepare 2 each fresh oregano
 1. Take  paprika sprinkle for color
 1. Take 2 each fresh sage
-1. Get  salt &amp; pepper
+1. Get  salt & pepper
 1. Get 1/2 stick butter
 1. Get 1 chicken with the skin still on
 
@@ -79,7 +79,7 @@ To get started with this particular recipe, we have to prepare a few components.
 
 <!--inarticleads2-->
 
-##### Steps to make Crockpot Lemon &amp; Herb Chicken W/Gravy:
+##### Steps to make Crockpot Lemon & Herb Chicken W/Gravy:
 
 1. All spices are to be measured to a person&#39;s personal taste. Meaning if you&#39;re not crazy over oregano,then by all means omit, or use less. I used two to three branches per fresh herb.
 1. Prepare chicken leaving skin on. The chicken will not require liquid, because it will be cooking in its own fat. This makes for a very tender chicken.
@@ -90,4 +90,4 @@ To get started with this particular recipe, we have to prepare a few components.
 
 
 
-So that is going to wrap this up with this special food crockpot lemon &amp; herb chicken w/gravy recipe. Thanks so much for reading. I'm sure you will make this at home. There is gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
+So that is going to wrap this up with this special food crockpot lemon & herb chicken w/gravy recipe. Thanks so much for reading. I'm sure you will make this at home. There is gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

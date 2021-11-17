@@ -33,9 +33,9 @@ recipeingredient:
 - "2 tbs sofrito optionalI used bc I didnt have scotch bonnet"
 recipeinstructions:
 - "Rinse chicken with water. Cut into bite size pieces. Place in salt water."
-- "Pat dry. Chop onion, peppers, tomato &amp; scallon. Add 2tbs curry powder, all spice, black pepper to chicken. Add vegetables (except carrots) &amp; minced garlic. (Add sofrito if desired) Marinate overnight in the fridge."
-- "Over medium heat add olive oil &amp; 2 tbs curry powder. Add seasoned chicken mixture to pan, let brown 10 minutes. Chop potatoes &amp; put in water so they don&#39;t turn. Chop carrots."
-- "After 10 minutes, add potatoes, carrots &amp; thyme. (Fresh is better, but my store didn&#39;t have any). Add vinegar. (Your choice to add water, I added half of the potato water to get a little sauce for rice). Add some more curry powder &amp; black pepper. Allow to simmer on medium-low to low for 45 minutes with the lid on. Serve over white rice. Add a sprinkle of salt if desired."
+- "Pat dry. Chop onion, peppers, tomato & scallon. Add 2tbs curry powder, all spice, black pepper to chicken. Add vegetables (except carrots) & minced garlic. (Add sofrito if desired) Marinate overnight in the fridge."
+- "Over medium heat add olive oil & 2 tbs curry powder. Add seasoned chicken mixture to pan, let brown 10 minutes. Chop potatoes & put in water so they don&#39;t turn. Chop carrots."
+- "After 10 minutes, add potatoes, carrots & thyme. (Fresh is better, but my store didn&#39;t have any). Add vinegar. (Your choice to add water, I added half of the potato water to get a little sauce for rice). Add some more curry powder & black pepper. Allow to simmer on medium-low to low for 45 minutes with the lid on. Serve over white rice. Add a sprinkle of salt if desired."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -97,9 +97,9 @@ Taste shares this delicious curry that will be perfect for a quick yet filling m
 ##### Steps to make Jamacian Style Curry Chicken:
 
 1. Rinse chicken with water. Cut into bite size pieces. Place in salt water.
-1. Pat dry. Chop onion, peppers, tomato &amp; scallon. Add 2tbs curry powder, all spice, black pepper to chicken. Add vegetables (except carrots) &amp; minced garlic. (Add sofrito if desired) Marinate overnight in the fridge.
-1. Over medium heat add olive oil &amp; 2 tbs curry powder. Add seasoned chicken mixture to pan, let brown 10 minutes. Chop potatoes &amp; put in water so they don&#39;t turn. Chop carrots.
-1. After 10 minutes, add potatoes, carrots &amp; thyme. (Fresh is better, but my store didn&#39;t have any). Add vinegar. (Your choice to add water, I added half of the potato water to get a little sauce for rice). Add some more curry powder &amp; black pepper. Allow to simmer on medium-low to low for 45 minutes with the lid on. Serve over white rice. Add a sprinkle of salt if desired.
+1. Pat dry. Chop onion, peppers, tomato & scallon. Add 2tbs curry powder, all spice, black pepper to chicken. Add vegetables (except carrots) & minced garlic. (Add sofrito if desired) Marinate overnight in the fridge.
+1. Over medium heat add olive oil & 2 tbs curry powder. Add seasoned chicken mixture to pan, let brown 10 minutes. Chop potatoes & put in water so they don&#39;t turn. Chop carrots.
+1. After 10 minutes, add potatoes, carrots & thyme. (Fresh is better, but my store didn&#39;t have any). Add vinegar. (Your choice to add water, I added half of the potato water to get a little sauce for rice). Add some more curry powder & black pepper. Allow to simmer on medium-low to low for 45 minutes with the lid on. Serve over white rice. Add a sprinkle of salt if desired.
 1. Ready to serve and ENJOY!
 
 In just thirty minutes, you&#39;ll create a flavorful chicken. Typically, a Jamaican style curry consists of chicken that is stewed with potatoes and sometimes carrots (usually Irish potatoes or white sweet potatoes). As mentioned before, each person may tweak the recipe, myself included. See more ideas about jamaican curry, curry chicken, jamaican curry chicken. If you&#39;ve ever had flavorful Jamaican curry chicken, you may be wondering how you can prepare it at home. 

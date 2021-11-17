@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Favorite Dr. Oz&amp;#39;s No-Cook Risotto"
-title: "Recipe of Favorite Dr. Oz&amp;#39;s No-Cook Risotto"
+description: "Recipe of Favorite Dr. Oz's No-Cook Risotto"
+title: "Recipe of Favorite Dr. Oz's No-Cook Risotto"
 slug: 1332-recipe-of-favorite-dr-oz-and-39-s-no-cook-risotto
 date: 2022-05-08T17:32:27.376Z
 image: //assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png

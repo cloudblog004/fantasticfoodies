@@ -59,7 +59,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 1. Make ready 600 g Chicken Breast
 1. Take 500 g Cauliflower
 1. Make ready 100 g Zuchini
-1. Prepare  Salt &amp; Pepper
+1. Prepare  Salt & Pepper
 1. Get  Olive Oil
 
 

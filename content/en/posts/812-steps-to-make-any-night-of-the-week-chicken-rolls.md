@@ -77,7 +77,7 @@ To get started with this particular recipe, we have to prepare a few components.
 1. Prepare  Bread Dough
 1. Prepare 1/2 cup Warm Water OR Warm Milk
 1. Make ready 1-2 teaspoons Dry Yeast *1 teaspoon takes longer time to proof
-1. Get 1 &amp; 3/4 cups Bread Flour *and extra for kneading
+1. Get 1 & 3/4 cups Bread Flour *and extra for kneading
 1. Take 1 tablespoon Caster Sugar
 1. Prepare 1/2 teaspoon Salt
 1. Get 1 Egg *lightly whisked, save 1 tablespoonful for brushing
@@ -90,7 +90,7 @@ To get started with this particular recipe, we have to prepare a few components.
 1. Get 1 Celery Stalk *finely chopped
 1. Make ready 1/2 Onion *finely chopped
 1. Take 150-200 g Chicken Breast Fillet *skinless, cut into 1cm pieces
-1. Prepare  Salt &amp; Pepper
+1. Prepare  Salt & Pepper
 
 
 

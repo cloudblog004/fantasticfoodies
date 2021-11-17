@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Homemade Tami&amp;#39;s Baked Chicken in a yogurt Sauce"
-title: "Easiest Way to Make Homemade Tami&amp;#39;s Baked Chicken in a yogurt Sauce"
+description: "Easiest Way to Make Homemade Tami's Baked Chicken in a yogurt Sauce"
+title: "Easiest Way to Make Homemade Tami's Baked Chicken in a yogurt Sauce"
 slug: 2601-easiest-way-to-make-homemade-tami-and-39-s-baked-chicken-in-a-yogurt-sauce
 date: 2022-06-05T16:47:24.949Z
 image: https://img-global.cpcdn.com/recipes/9fa1592df26dd3af/680x482cq70/tamis-baked-chicken-in-a-yogurt-sauce-recipe-main-photo.jpg

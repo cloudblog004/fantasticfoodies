@@ -31,12 +31,12 @@ recipeingredient:
 - " Red chilli powder 1 teaspoon full"
 - "1/2 teaspoon Turmeric powder"
 recipeinstructions:
-- "Wash and marinate chicken set aside with all spices &amp; curd only"
-- "Take oil in Kadai heat it then add the chopped onion fry till golden then add tomatoe purée if raw or tomato paste was readymade stir a little add ginger garlic paste &amp; sauté it"
+- "Wash and marinate chicken set aside with all spices & curd only"
+- "Take oil in Kadai heat it then add the chopped onion fry till golden then add tomatoe purée if raw or tomato paste was readymade stir a little add ginger garlic paste & sauté it"
 - "Then on low flame add in all the marinated chicken stir with light hands fry until oil separates"
 - "Then taste the spices and add in all the leftover ingredients even cream mix well"
 - "Then keep it on simmer flame until the chicken gets tender once I t’s done adjust the consistency of gravy as required better keep it medium thick gravy and ur done add some fried chasews or roughly chopped cashews"
-- "Serve it hot with rice &amp; sald, chapati etc"
+- "Serve it hot with rice & sald, chapati etc"
 - "Add a cup of if required to adjust the consistency accordingly for the gravy."
 - "Ready to serve and ENJOY!"
 categories:
@@ -60,7 +60,7 @@ recipecategory: Dessert
 
 Hello everybody, hope you are having an amazing day today. Today, I'm gonna show you how to make a special dish, kadai chicken. It is one of my favorites food recipes. This time, I am going to make it a little bit unique. This will be really delicious.
 
-Chicken karahi (known as gosht karahi when prepared with goat or lamb meat instead of chicken), or kadai chicken, is a dish from the Indian subcontinent noted for its spicy taste; it is notable in North Indian and Pakistani cuisine. Kadai chicken is almost there on most Indian restaurant menus &amp; is made differently in each place. See recipes for Instant Kadai chicken recipe, Kadhai chicken too. Kadai Chicken is a delicious Indian chicken curry where chicken is cooked with freshly ground Chicken - I make Chicken very often at home, as it is high in protein.
+Chicken karahi (known as gosht karahi when prepared with goat or lamb meat instead of chicken), or kadai chicken, is a dish from the Indian subcontinent noted for its spicy taste; it is notable in North Indian and Pakistani cuisine. Kadai chicken is almost there on most Indian restaurant menus & is made differently in each place. See recipes for Instant Kadai chicken recipe, Kadhai chicken too. Kadai Chicken is a delicious Indian chicken curry where chicken is cooked with freshly ground Chicken - I make Chicken very often at home, as it is high in protein.
 
 Kadai chicken is one of the most favored of recent trending meals in the world. It's appreciated by millions daily. It is simple, it's fast, it tastes yummy. They're nice and they look wonderful. Kadai chicken is something which I've loved my whole life.
 
@@ -74,7 +74,7 @@ To begin with this recipe, we have to prepare a few components. You can have kad
 1. Make ready 500 grams Chicken
 1. Get 1 Onion
 1. Prepare  Oil for cooking
-1. Make ready  Fresh Cream for good gravy consistency &amp; taste
+1. Make ready  Fresh Cream for good gravy consistency & taste
 1. Take 10-15 Chasew nuts
 1. Make ready  Curd (thick youghurt)
 1. Make ready 1/2 teaspoon Fresh Garam masala powder
@@ -96,12 +96,12 @@ Whole spices ground to a fine paste Besides chicken a variety of vegetables or e
 
 ##### Instructions to make Kadai chicken:
 
-1. Wash and marinate chicken set aside with all spices &amp; curd only
-1. Take oil in Kadai heat it then add the chopped onion fry till golden then add tomatoe purée if raw or tomato paste was readymade stir a little add ginger garlic paste &amp; sauté it
+1. Wash and marinate chicken set aside with all spices & curd only
+1. Take oil in Kadai heat it then add the chopped onion fry till golden then add tomatoe purée if raw or tomato paste was readymade stir a little add ginger garlic paste & sauté it
 1. Then on low flame add in all the marinated chicken stir with light hands fry until oil separates
 1. Then taste the spices and add in all the leftover ingredients even cream mix well
 1. Then keep it on simmer flame until the chicken gets tender once I t’s done adjust the consistency of gravy as required better keep it medium thick gravy and ur done add some fried chasews or roughly chopped cashews
-1. Serve it hot with rice &amp; sald, chapati etc
+1. Serve it hot with rice & sald, chapati etc
 1. Add a cup of if required to adjust the consistency accordingly for the gravy.
 1. Ready to serve and ENJOY!
 

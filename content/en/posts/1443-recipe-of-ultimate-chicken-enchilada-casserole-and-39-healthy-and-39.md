@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Ultimate Chicken Enchilada Casserole (&amp;#39;Healthy&amp;#39;)"
-title: "Recipe of Ultimate Chicken Enchilada Casserole (&amp;#39;Healthy&amp;#39;)"
+description: "Recipe of Ultimate Chicken Enchilada Casserole ('Healthy')"
+title: "Recipe of Ultimate Chicken Enchilada Casserole ('Healthy')"
 slug: 1443-recipe-of-ultimate-chicken-enchilada-casserole-and-39-healthy-and-39
 date: 2022-01-01T15:40:13.996Z
 image: //assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png

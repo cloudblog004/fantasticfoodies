@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Perfect Chef Benny&amp;#39;s NiHao Sweet N&amp;#39; Spicy Chicken Breast (No Sugar)"
-title: "Easiest Way to Make Perfect Chef Benny&amp;#39;s NiHao Sweet N&amp;#39; Spicy Chicken Breast (No Sugar)"
+description: "Easiest Way to Make Perfect Chef Benny's NiHao Sweet N' Spicy Chicken Breast (No Sugar)"
+title: "Easiest Way to Make Perfect Chef Benny's NiHao Sweet N' Spicy Chicken Breast (No Sugar)"
 slug: 3618-easiest-way-to-make-perfect-chef-benny-and-39-s-nihao-sweet-n-and-39-spicy-chicken-breast-no-sugar
 date: 2022-06-01T11:12:34.344Z
 image: https://img-global.cpcdn.com/recipes/5752632814600192/680x482cq70/chef-bennys-nihao-sweet-n-spicy-chicken-breast-no-sugar-recipe-main-photo.jpg

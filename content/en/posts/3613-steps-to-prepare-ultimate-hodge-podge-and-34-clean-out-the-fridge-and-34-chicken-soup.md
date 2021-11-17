@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Ultimate Hodge-Podge &amp;#34;Clean Out the Fridge&amp;#34; Chicken Soup"
-title: "Steps to Prepare Ultimate Hodge-Podge &amp;#34;Clean Out the Fridge&amp;#34; Chicken Soup"
+description: "Steps to Prepare Ultimate Hodge-Podge *Clean Out the Fridge* Chicken Soup"
+title: "Steps to Prepare Ultimate Hodge-Podge *Clean Out the Fridge* Chicken Soup"
 slug: 3613-steps-to-prepare-ultimate-hodge-podge-and-34-clean-out-the-fridge-and-34-chicken-soup
 date: 2022-01-31T17:24:42.954Z
 image: https://img-global.cpcdn.com/recipes/bde22edefec2350e/680x482cq70/hodge-podge-clean-out-the-fridge-chicken-soup-recipe-main-photo.jpg
@@ -48,20 +48,20 @@ recipecategory: Dessert
 ---
 
 
-![Hodge-Podge &#34;Clean Out the Fridge&#34; Chicken Soup](https://img-global.cpcdn.com/recipes/bde22edefec2350e/680x482cq70/hodge-podge-clean-out-the-fridge-chicken-soup-recipe-main-photo.jpg)
+![Hodge-Podge *Clean Out the Fridge* Chicken Soup](https://img-global.cpcdn.com/recipes/bde22edefec2350e/680x482cq70/hodge-podge-clean-out-the-fridge-chicken-soup-recipe-main-photo.jpg)
 
-Hey everyone, it's Jim, welcome to my recipe page. Today, we're going to prepare a distinctive dish, hodge-podge &#34;clean out the fridge&#34; chicken soup. One of my favorites food recipes. For mine, I am going to make it a little bit unique. This will be really delicious.
+Hey everyone, it's Jim, welcome to my recipe page. Today, we're going to prepare a distinctive dish, hodge-podge *clean out the fridge* chicken soup. One of my favorites food recipes. For mine, I am going to make it a little bit unique. This will be really delicious.
 
-Hodge-Podge &#34;Clean Out the Fridge&#34; Chicken Soup is one of the most favored of current trending foods on earth. It's easy, it's quick, it tastes yummy. It's appreciated by millions every day. Hodge-Podge &#34;Clean Out the Fridge&#34; Chicken Soup is something that I've loved my entire life. They're nice and they look fantastic.
-
-
+Hodge-Podge *Clean Out the Fridge* Chicken Soup is one of the most favored of current trending foods on earth. It's easy, it's quick, it tastes yummy. It's appreciated by millions every day. Hodge-Podge *Clean Out the Fridge* Chicken Soup is something that I've loved my entire life. They're nice and they look fantastic.
 
 
-To get started with this recipe, we have to first prepare a few components. You can have hodge-podge &#34;clean out the fridge&#34; chicken soup using 8 ingredients and 7 steps. Here is how you cook that.
+
+
+To get started with this recipe, we have to first prepare a few components. You can have hodge-podge *clean out the fridge* chicken soup using 8 ingredients and 7 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Hodge-Podge &#34;Clean Out the Fridge&#34; Chicken Soup:
+##### The ingredients needed to make Hodge-Podge *Clean Out the Fridge* Chicken Soup:
 
 1. Make ready  Dark-meat chicken 2lbs (I prefer bone on to later make bone broth)
 1. Make ready  Onion- 1/2 large, 1 whole small
@@ -77,7 +77,7 @@ To get started with this recipe, we have to first prepare a few components. You 
 
 <!--inarticleads2-->
 
-##### Steps to make Hodge-Podge &#34;Clean Out the Fridge&#34; Chicken Soup:
+##### Steps to make Hodge-Podge *Clean Out the Fridge* Chicken Soup:
 
 1. In our house, all soups start with the same basic formula (onion, celery, carrot, garlic and bone broth- Love ya mom!). Gather these ingredients and find a heavy pot (we use a cast iron stock pot), but use what you have.
 1. Prepare your protein (chicken in this case) by searing it in butter or any oil you choose covered (in the soup pot if you want to save on dishes!). This step helps the protein to retain its natural moisture content and prevent that rubbery texture of say...of boiled chicken, yuck!
@@ -90,4 +90,4 @@ To get started with this recipe, we have to first prepare a few components. You 
 
 
 
-So that's going to wrap this up with this special food hodge-podge &#34;clean out the fridge&#34; chicken soup recipe. Thank you very much for reading. I am confident you can make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!
+So that's going to wrap this up with this special food hodge-podge *clean out the fridge* chicken soup recipe. Thank you very much for reading. I am confident you can make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

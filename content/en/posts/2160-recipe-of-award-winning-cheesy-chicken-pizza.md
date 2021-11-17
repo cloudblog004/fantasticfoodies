@@ -71,7 +71,7 @@ Hello everybody, I hope you're having an amazing day today. Today, we're going t
 
 Cheesy chicken pizza is one of the most favored of recent trending meals on earth. It is appreciated by millions daily. It's simple, it's quick, it tastes delicious. Cheesy chicken pizza is something which I have loved my entire life. They are nice and they look wonderful.
 
-Hi Friends,This is the third episode of my &#39;quarantine diaries&#39; series. And it&#39;s about a mouthwatering homemade, easy cheese &amp; chicken pizza recipe. Make this easy buffalo chicken pizza recipe with shredded chicken tossed in buffalo wing sauce and topped Jump to the Buffalo Chicken Pizza Sticks Recipe or read on to see our tips for making them. This is a pizza recipe given by a nine years old girl.
+Hi Friends,This is the third episode of my &#39;quarantine diaries&#39; series. And it&#39;s about a mouthwatering homemade, easy cheese & chicken pizza recipe. Make this easy buffalo chicken pizza recipe with shredded chicken tossed in buffalo wing sauce and topped Jump to the Buffalo Chicken Pizza Sticks Recipe or read on to see our tips for making them. This is a pizza recipe given by a nine years old girl.
 
 
 To begin with this recipe, we have to first prepare a few ingredients. You can cook cheesy chicken pizza using 21 ingredients and 11 steps. Here is how you cook it.

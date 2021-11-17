@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Any-night-of-the-week Coco&amp;#39;s Crazy Microwave Oven Teriyaki Chicken"
-title: "Recipe of Any-night-of-the-week Coco&amp;#39;s Crazy Microwave Oven Teriyaki Chicken"
+description: "Recipe of Any-night-of-the-week Coco's Crazy Microwave Oven Teriyaki Chicken"
+title: "Recipe of Any-night-of-the-week Coco's Crazy Microwave Oven Teriyaki Chicken"
 slug: 1199-recipe-of-any-night-of-the-week-coco-and-39-s-crazy-microwave-oven-teriyaki-chicken
 date: 2022-02-21T21:30:23.511Z
 image: https://img-global.cpcdn.com/recipes/faca45f6ef2a0abf/680x482cq70/cocos-crazy-microwave-oven-teriyaki-chicken-recipe-main-photo.jpg

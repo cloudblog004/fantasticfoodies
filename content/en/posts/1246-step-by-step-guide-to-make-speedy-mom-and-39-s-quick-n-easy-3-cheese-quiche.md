@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Speedy Mom&amp;#39;s  quick n easy 3 cheese quiche"
-title: "Step-by-Step Guide to Make Speedy Mom&amp;#39;s  quick n easy 3 cheese quiche"
+description: "Step-by-Step Guide to Make Speedy Mom's  quick n easy 3 cheese quiche"
+title: "Step-by-Step Guide to Make Speedy Mom's  quick n easy 3 cheese quiche"
 slug: 1246-step-by-step-guide-to-make-speedy-mom-and-39-s-quick-n-easy-3-cheese-quiche
 date: 2021-12-28T14:10:17.547Z
 image: https://img-global.cpcdn.com/recipes/49907629/680x482cq70/moms-quick-n-easy-3-cheese-quiche-recipe-main-photo.jpg

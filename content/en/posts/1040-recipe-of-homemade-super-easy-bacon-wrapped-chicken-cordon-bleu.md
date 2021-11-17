@@ -30,7 +30,7 @@ recipeingredient:
 - "1/2 tsp garlic salt"
 recipeinstructions:
 - "Preheat oven to 375°F."
-- "Use a broiler safe dish to bake &amp; broil the chicken in."
+- "Use a broiler safe dish to bake & broil the chicken in."
 - "Take 1/2 slice of cheese and place it in center of a slice of ham and wrap in 3rds. Lay along with the chicken tender and wrap with a slice of bacon. Place in dish with ham side up. Continue with as many pieces as you want to make. I made 15 pieces in a 13x11 baking dish.  Sprinkle with garlic pepper or seasoning of choice."
 - "Place in oven and bake for about 25 minutes."
 - "While chicken is baking, make the sauce."
@@ -96,7 +96,7 @@ To get started with this recipe, we must prepare a few components. You can cook 
 ##### Steps to make Super Easy Bacon-wrapped Chicken Cordon Bleu:
 
 1. Preheat oven to 375°F.
-1. Use a broiler safe dish to bake &amp; broil the chicken in.
+1. Use a broiler safe dish to bake & broil the chicken in.
 1. Take 1/2 slice of cheese and place it in center of a slice of ham and wrap in 3rds. Lay along with the chicken tender and wrap with a slice of bacon. Place in dish with ham side up. Continue with as many pieces as you want to make. I made 15 pieces in a 13x11 baking dish.  Sprinkle with garlic pepper or seasoning of choice.
 1. Place in oven and bake for about 25 minutes.
 1. While chicken is baking, make the sauce.

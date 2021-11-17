@@ -34,8 +34,8 @@ recipeinstructions:
 - "Boil water in pot big enough for box of pasta with salt in water."
 - "When water starts boiling add in olive oil and pasta."
 - "Boil untill noodles are at desired tenderness."
-- "Strain noodles and put in big bowl and add all &#34;the good stuff&#34;."
-- "Once it&#39;s all mixed up add &#34;sauce&#34; ingredients."
+- "Strain noodles and put in big bowl and add all *the good stuff*."
+- "Once it&#39;s all mixed up add *sauce* ingredients."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -97,8 +97,8 @@ To get started with this particular recipe, we must first prepare a few componen
 1. Boil water in pot big enough for box of pasta with salt in water.
 1. When water starts boiling add in olive oil and pasta.
 1. Boil untill noodles are at desired tenderness.
-1. Strain noodles and put in big bowl and add all &#34;the good stuff&#34;.
-1. Once it&#39;s all mixed up add &#34;sauce&#34; ingredients.
+1. Strain noodles and put in big bowl and add all *the good stuff*.
+1. Once it&#39;s all mixed up add *sauce* ingredients.
 1. Ready to serve and ENJOY!
 
 

@@ -98,6 +98,6 @@ This fiery combination of buffalo chicken in a modern wrap is guaranteed to drip
 1. Now make a healthy salad and buffalo wrap is ready to serve.
 1. Ready to serve and ENJOY!
 
-This is a healthy buffalo chicken recipe. To make a balanced meal, pair these chicken wraps with a side of vegetables and fruit. These would go well with a side salad and a few. In addition, naan, pita, spring roll wrappers, or crêpes can be used as a &#34;bread&#34; wrap. Wraps aren&#39;t necessarily healthier than sliced bread. 
+This is a healthy buffalo chicken recipe. To make a balanced meal, pair these chicken wraps with a side of vegetables and fruit. These would go well with a side salad and a few. In addition, naan, pita, spring roll wrappers, or crêpes can be used as a *bread* wrap. Wraps aren&#39;t necessarily healthier than sliced bread. 
 
 So that's going to wrap it up with this exceptional food baffulo wraps with healthy salad recipe. Thank you very much for reading. I am sure that you will make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

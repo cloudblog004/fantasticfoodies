@@ -84,6 +84,6 @@ Sukiyaki is a Japanese dish that has an influence over the Thai kitchen. It is a
 1. Add 3 tablespoon of dark soya sauce, 4 tablespoon of sukiyaki sauce, 1 teaspoon of salt (to taste). Add 2 tablespoon of sesame oil. Bring to boil at high heat and then simmer for half hour at low heat.
 1. Ready to serve and ENJOY!
 
-Make sure that each piece has about the same thickness. Rapini with Mustard Miso Dressing. vegetables. Cabbage &amp; Apple Salad. soups_stews chicken. Chicken stew &amp; ground beef w/ ragu sauce for lunch at kagman Bolis. Red rice Bisteak Fried chicken Sukiyaki Potato salad for lunch at kagman Bolis. 
+Make sure that each piece has about the same thickness. Rapini with Mustard Miso Dressing. vegetables. Cabbage & Apple Salad. soups_stews chicken. Chicken stew & ground beef w/ ragu sauce for lunch at kagman Bolis. Red rice Bisteak Fried chicken Sukiyaki Potato salad for lunch at kagman Bolis. 
 
 So that's going to wrap this up for this exceptional food sukiyaki chicken stew recipe. Thanks so much for reading. I am confident you will make this at home. There's gonna be interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

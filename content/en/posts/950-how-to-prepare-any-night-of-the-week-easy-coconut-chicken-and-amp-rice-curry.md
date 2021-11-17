@@ -1,6 +1,6 @@
 ---
-description: "How to Prepare Any-night-of-the-week Easy Coconut, Chicken &amp;amp; Rice Curry"
-title: "How to Prepare Any-night-of-the-week Easy Coconut, Chicken &amp;amp; Rice Curry"
+description: "How to Prepare Any-night-of-the-week Easy Coconut, Chicken & Rice Curry"
+title: "How to Prepare Any-night-of-the-week Easy Coconut, Chicken & Rice Curry"
 slug: 950-how-to-prepare-any-night-of-the-week-easy-coconut-chicken-and-amp-rice-curry
 date: 2021-11-12T12:54:12.818Z
 image: https://img-global.cpcdn.com/recipes/f486036fdab6bba0/680x482cq70/easy-coconut-chicken-rice-curry-recipe-main-photo.jpg
@@ -52,20 +52,20 @@ recipecategory: Dessert
 ---
 
 
-![Easy Coconut, Chicken &amp; Rice Curry](https://img-global.cpcdn.com/recipes/f486036fdab6bba0/680x482cq70/easy-coconut-chicken-rice-curry-recipe-main-photo.jpg)
+![Easy Coconut, Chicken & Rice Curry](https://img-global.cpcdn.com/recipes/f486036fdab6bba0/680x482cq70/easy-coconut-chicken-rice-curry-recipe-main-photo.jpg)
 
-Hello everybody, I hope you're having an amazing day today. Today, we're going to make a distinctive dish, easy coconut, chicken &amp; rice curry. One of my favorites. For mine, I'm gonna make it a little bit tasty. This will be really delicious.
+Hello everybody, I hope you're having an amazing day today. Today, we're going to make a distinctive dish, easy coconut, chicken & rice curry. One of my favorites. For mine, I'm gonna make it a little bit tasty. This will be really delicious.
 
-Easy Coconut, Chicken &amp; Rice Curry is one of the most well liked of recent trending meals on earth. It is simple, it's fast, it tastes yummy. It is enjoyed by millions every day. Easy Coconut, Chicken &amp; Rice Curry is something that I've loved my entire life. They're fine and they look fantastic.
-
-
+Easy Coconut, Chicken & Rice Curry is one of the most well liked of recent trending meals on earth. It is simple, it's fast, it tastes yummy. It is enjoyed by millions every day. Easy Coconut, Chicken & Rice Curry is something that I've loved my entire life. They're fine and they look fantastic.
 
 
-To get started with this particular recipe, we have to prepare a few components. You can cook easy coconut, chicken &amp; rice curry using 11 ingredients and 8 steps. Here is how you can achieve that.
+
+
+To get started with this particular recipe, we have to prepare a few components. You can cook easy coconut, chicken & rice curry using 11 ingredients and 8 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Easy Coconut, Chicken &amp; Rice Curry:
+##### The ingredients needed to make Easy Coconut, Chicken & Rice Curry:
 
 1. Get 2 Tbl. Oil for the pan
 1. Make ready 2 Medium Onions
@@ -84,7 +84,7 @@ To get started with this particular recipe, we have to prepare a few components.
 
 <!--inarticleads2-->
 
-##### Steps to make Easy Coconut, Chicken &amp; Rice Curry:
+##### Steps to make Easy Coconut, Chicken & Rice Curry:
 
 1. Dice onions
 1. Heat a wok/stir-fry/skillet on medium heat, add oil
@@ -98,4 +98,4 @@ To get started with this particular recipe, we have to prepare a few components.
 
 
 
-So that is going to wrap it up with this special food easy coconut, chicken &amp; rice curry recipe. Thanks so much for your time. I am confident that you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!
+So that is going to wrap it up with this special food easy coconut, chicken & rice curry recipe. Thanks so much for your time. I am confident that you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

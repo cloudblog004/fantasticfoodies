@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Favorite Kandi&amp;#39;s Cream of Lemon Chicken Soup (crockpot)"
-title: "Step-by-Step Guide to Make Favorite Kandi&amp;#39;s Cream of Lemon Chicken Soup (crockpot)"
+description: "Step-by-Step Guide to Make Favorite Kandi's Cream of Lemon Chicken Soup (crockpot)"
+title: "Step-by-Step Guide to Make Favorite Kandi's Cream of Lemon Chicken Soup (crockpot)"
 slug: 3564-step-by-step-guide-to-make-favorite-kandi-and-39-s-cream-of-lemon-chicken-soup-crockpot
 date: 2022-02-16T01:51:37.441Z
 image: https://img-global.cpcdn.com/recipes/4984096974438400/680x482cq70/kandis-cream-of-lemon-chicken-soup-crockpot-recipe-main-photo.jpg

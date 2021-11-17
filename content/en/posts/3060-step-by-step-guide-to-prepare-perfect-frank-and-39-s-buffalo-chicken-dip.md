@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Prepare Perfect Frank&amp;#39;s Buffalo Chicken Dip"
-title: "Step-by-Step Guide to Prepare Perfect Frank&amp;#39;s Buffalo Chicken Dip"
+description: "Step-by-Step Guide to Prepare Perfect Frank's Buffalo Chicken Dip"
+title: "Step-by-Step Guide to Prepare Perfect Frank's Buffalo Chicken Dip"
 slug: 3060-step-by-step-guide-to-prepare-perfect-frank-and-39-s-buffalo-chicken-dip
 date: 2022-06-01T13:25:17.709Z
 image: //assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png

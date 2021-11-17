@@ -22,7 +22,7 @@ recipeingredient:
 recipeinstructions:
 - "Cut chicken breast in half (fillet them) and place them in instantpot"
 - "Add seasoning, garlic, beer, and Jalepenos"
-- "Place lid on and make sure it&#39;s on &#34;sealed&#34;. Seat on high heat for 13 minutes. Once done, let it naturally release for 5 minutes and then do a quick release. Shred chicken and serve on tortillas"
+- "Place lid on and make sure it&#39;s on *sealed*. Seat on high heat for 13 minutes. Once done, let it naturally release for 5 minutes and then do a quick release. Shred chicken and serve on tortillas"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -73,7 +73,7 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 
 1. Cut chicken breast in half (fillet them) and place them in instantpot
 1. Add seasoning, garlic, beer, and Jalepenos
-1. Place lid on and make sure it&#39;s on &#34;sealed&#34;. Seat on high heat for 13 minutes. Once done, let it naturally release for 5 minutes and then do a quick release. Shred chicken and serve on tortillas
+1. Place lid on and make sure it&#39;s on *sealed*. Seat on high heat for 13 minutes. Once done, let it naturally release for 5 minutes and then do a quick release. Shred chicken and serve on tortillas
 1. Ready to serve and ENJOY!
 
 

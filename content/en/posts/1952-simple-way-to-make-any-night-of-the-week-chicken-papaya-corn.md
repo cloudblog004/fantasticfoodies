@@ -73,7 +73,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can have ch
 1. Prepare 1/4 cup shreded cucumber, tomato and onion
 
 
-Download stock pictures of Chicken papaya on Depositphotos Photo stock for commercial use - millions of high-quality, royalty-free photos &amp; images. Wash the whole chicken, remove the skin and trim excess fats. Separate the carcass from the meat and wash. See more ideas about papaya recipes, papaya, recipes. 
+Download stock pictures of Chicken papaya on Depositphotos Photo stock for commercial use - millions of high-quality, royalty-free photos & images. Wash the whole chicken, remove the skin and trim excess fats. Separate the carcass from the meat and wash. See more ideas about papaya recipes, papaya, recipes. 
 
 <!--inarticleads2-->
 

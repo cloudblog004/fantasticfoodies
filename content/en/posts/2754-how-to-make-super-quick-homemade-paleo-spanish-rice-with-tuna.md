@@ -74,7 +74,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 1. Make ready 1 1/3 Cups Brown Rice
 1. Take 4 Cups Water
 1. Make ready 4 Teaspoons Better Than Bouillon Chicken Base
-1. Prepare 10 oz Bumble Bee Prime Fillet Albacore Tuna with Chipotle &amp; Olive Oil
+1. Prepare 10 oz Bumble Bee Prime Fillet Albacore Tuna with Chipotle & Olive Oil
 1. Take To Taste Thyme
 
 

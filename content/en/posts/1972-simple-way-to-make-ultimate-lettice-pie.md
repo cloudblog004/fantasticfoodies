@@ -27,11 +27,11 @@ recipeingredient:
 - "1 Eggwash for basting"
 recipeinstructions:
 - "Saute chicken chunks/pieces in oil.remove from pan.saute dice cut vegies in same pan with pinch of salt."
-- "Mix both together &amp;keep aside."
-- "Divide the puff pastry dough in 2 parts.roll down one part in round shape according to size of pie dish/pan.roll down other part as well &amp; cut straight strips out of it as shown in pics.grease vd drops of oil only."
+- "Mix both together &keep aside."
+- "Divide the puff pastry dough in 2 parts.roll down one part in round shape according to size of pie dish/pan.roll down other part as well & cut straight strips out of it as shown in pics.grease vd drops of oil only."
 - "Grease pie dish with 1/2 tsp Oil. Spread the rolled dough in pie dish smoothly.press the dough in centre while covering the edges of dish as well."
 - "Spread the tomato ketchup or tomato sauce or pizza sauce at rolled pie.spread filling over sauce."
-- "Gently lift the dough strips &amp; place over filling,first vertically then horizontally making a checkerboard pattern (pehly aik taraf sy strips rakhain phir unky uper sy dosri strips rakhain,jaisy chatai ka pattern hota hy."
+- "Gently lift the dough strips & place over filling,first vertically then horizontally making a checkerboard pattern (pehly aik taraf sy strips rakhain phir unky uper sy dosri strips rakhain,jaisy chatai ka pattern hota hy."
 - "When all strips are placed,brush with beaten eggwash.sprinkle sesame seeds over pie.I added black Olives lastly in gaps between strips."
 - "Bake in preheated oven at 180°c for 20-25 min.check in between. As soon as top of pie turning golden and pie has left the sides of dish turn off heat. Give rest for some time.brush with little oil or melted butter for shine (optional)"
 - "Enjoy hot crispy deicious Lettuce pie in safety of home with cookpad."
@@ -89,11 +89,11 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 ##### Steps to make Lettice Pie:
 
 1. Saute chicken chunks/pieces in oil.remove from pan.saute dice cut vegies in same pan with pinch of salt.
-1. Mix both together &amp;keep aside.
-1. Divide the puff pastry dough in 2 parts.roll down one part in round shape according to size of pie dish/pan.roll down other part as well &amp; cut straight strips out of it as shown in pics.grease vd drops of oil only.
+1. Mix both together &keep aside.
+1. Divide the puff pastry dough in 2 parts.roll down one part in round shape according to size of pie dish/pan.roll down other part as well & cut straight strips out of it as shown in pics.grease vd drops of oil only.
 1. Grease pie dish with 1/2 tsp Oil. Spread the rolled dough in pie dish smoothly.press the dough in centre while covering the edges of dish as well.
 1. Spread the tomato ketchup or tomato sauce or pizza sauce at rolled pie.spread filling over sauce.
-1. Gently lift the dough strips &amp; place over filling,first vertically then horizontally making a checkerboard pattern (pehly aik taraf sy strips rakhain phir unky uper sy dosri strips rakhain,jaisy chatai ka pattern hota hy.
+1. Gently lift the dough strips & place over filling,first vertically then horizontally making a checkerboard pattern (pehly aik taraf sy strips rakhain phir unky uper sy dosri strips rakhain,jaisy chatai ka pattern hota hy.
 1. When all strips are placed,brush with beaten eggwash.sprinkle sesame seeds over pie.I added black Olives lastly in gaps between strips.
 1. Bake in preheated oven at 180°c for 20-25 min.check in between. As soon as top of pie turning golden and pie has left the sides of dish turn off heat. Give rest for some time.brush with little oil or melted butter for shine (optional)
 1. Enjoy hot crispy deicious Lettuce pie in safety of home with cookpad.

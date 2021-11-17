@@ -28,8 +28,8 @@ recipeingredient:
 - " Salt  Pepper"
 recipeinstructions:
 - "Preheat oven to 200C."
-- "To make White Sauce, heat butter in a saucepan over medium heat until melted and foaming, add flour and cook stirring until mixture bubbles. Slowly add Milk, stirring constantly until sauce boils and thickens. Season with Salt &amp; Pepper."
-- "Heat Oil in a large frying pan, cook Chicken, Onion and Mushrooms until Chicken are cooked. Season with Salt &amp; Pepper quite well, then add Cooked Rice and combine well. More Salt and Pepper if required."
+- "To make White Sauce, heat butter in a saucepan over medium heat until melted and foaming, add flour and cook stirring until mixture bubbles. Slowly add Milk, stirring constantly until sauce boils and thickens. Season with Salt & Pepper."
+- "Heat Oil in a large frying pan, cook Chicken, Onion and Mushrooms until Chicken are cooked. Season with Salt & Pepper quite well, then add Cooked Rice and combine well. More Salt and Pepper if required."
 - "Slightly oil a large ovenproof dish, place the fried rice and pour the White Sauce over the rice. Sprinkle with grated cheese, and bake for 25-30 minutes or until golden."
 - "Ready to serve and ENJOY!"
 categories:
@@ -69,14 +69,14 @@ To begin with this particular recipe, we must prepare a few components. You can 
 1. Prepare 500 g Chicken Thigh Fillets *cut into bite size pieces
 1. Make ready 1 Onion *finely chopped
 1. Get 6-8 Mushrooms *sliced
-1. Get  Salt &amp; Pepper
+1. Get  Salt & Pepper
 1. Prepare 1 cup Tasty Cheese (Cheddar Cheese) *grated
 1. Take 1/2 cup Parmesan Cheese *grated
 1. Get  White Sauce
 1. Make ready 50 g Butter
 1. Take 1/4 cup Plain Flour
 1. Get 2 cups Milk
-1. Make ready  Salt &amp; Pepper
+1. Make ready  Salt & Pepper
 
 
 
@@ -86,8 +86,8 @@ To begin with this particular recipe, we must prepare a few components. You can 
 ##### Steps to make Chicken Doria:
 
 1. Preheat oven to 200C.
-1. To make White Sauce, heat butter in a saucepan over medium heat until melted and foaming, add flour and cook stirring until mixture bubbles. Slowly add Milk, stirring constantly until sauce boils and thickens. Season with Salt &amp; Pepper.
-1. Heat Oil in a large frying pan, cook Chicken, Onion and Mushrooms until Chicken are cooked. Season with Salt &amp; Pepper quite well, then add Cooked Rice and combine well. More Salt and Pepper if required.
+1. To make White Sauce, heat butter in a saucepan over medium heat until melted and foaming, add flour and cook stirring until mixture bubbles. Slowly add Milk, stirring constantly until sauce boils and thickens. Season with Salt & Pepper.
+1. Heat Oil in a large frying pan, cook Chicken, Onion and Mushrooms until Chicken are cooked. Season with Salt & Pepper quite well, then add Cooked Rice and combine well. More Salt and Pepper if required.
 1. Slightly oil a large ovenproof dish, place the fried rice and pour the White Sauce over the rice. Sprinkle with grated cheese, and bake for 25-30 minutes or until golden.
 1. Ready to serve and ENJOY!
 

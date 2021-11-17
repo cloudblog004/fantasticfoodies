@@ -65,9 +65,9 @@ To get started with this recipe, we must first prepare a few components. You can
 ##### The ingredients needed to make Chicken and Cheese Pillow:
 
 1. Get  Ready to use spring roll skin
-1. Take 200 gr chicken breast - boiled, drained &amp; diced
-1. Prepare  Dried shiitake mushrooms - boiled with chicken, drain &amp; diced
-1. Prepare 100 gr mixed veggies - boiled with chicken &amp; drained
+1. Take 200 gr chicken breast - boiled, drained & diced
+1. Prepare  Dried shiitake mushrooms - boiled with chicken, drain & diced
+1. Prepare 100 gr mixed veggies - boiled with chicken & drained
 1. Get 2 eggs. Egg yolks mixed with filling, egg white to glue the skin
 1. Prepare 100 gr Kraft quick melt cheese
 1. Prepare  Diced onion, shallot and garlic as taste

@@ -64,7 +64,7 @@ To get started with this particular recipe, we have to prepare a few ingredients
 1. Get  Lemon juice
 
 
-Tender &amp; Juicy Southern Fried Chicken That&#39;s WAY Better Than Takeout Perfect fried chicken has to live up to some pretty high expectations. You want it to be shatteringly. Southern fried chicken is one of the main staples of southern cuisine. 
+Tender & Juicy Southern Fried Chicken That&#39;s WAY Better Than Takeout Perfect fried chicken has to live up to some pretty high expectations. You want it to be shatteringly. Southern fried chicken is one of the main staples of southern cuisine. 
 
 <!--inarticleads2-->
 

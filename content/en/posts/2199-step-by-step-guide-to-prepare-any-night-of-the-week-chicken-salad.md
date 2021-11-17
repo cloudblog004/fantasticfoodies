@@ -22,7 +22,7 @@ recipeingredient:
 - " Salad dressing of your choice"
 recipeinstructions:
 - "Wash all the vegetables, tear the lettuce with your hands, be gentle, wash and soak in iced water."
-- "Grate the carrots in strips or cut them julienned. Dice up the bell peppers, tomato &amp; cucumber."
+- "Grate the carrots in strips or cut them julienned. Dice up the bell peppers, tomato & cucumber."
 - "Cook the chicken breast and cut into cubes or shred."
 - "Strain the lettuce from the water, mix everything up, top with some of the chicken. Add dressing of ur choice or serve plain."
 - "Voilá!"
@@ -62,7 +62,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 1. Take 1 bunch lettuce
 1. Get 2 carrots
 1. Make ready 1/2 cucumber
-1. Take 1 each green &amp; red bell pepper
+1. Take 1 each green & red bell pepper
 1. Make ready 1 firm tomatoe
 1. Make ready 1 marinated chicken breast
 1. Make ready  Salad dressing of your choice
@@ -75,7 +75,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 ##### Instructions to make Chicken Salad:
 
 1. Wash all the vegetables, tear the lettuce with your hands, be gentle, wash and soak in iced water.
-1. Grate the carrots in strips or cut them julienned. Dice up the bell peppers, tomato &amp; cucumber.
+1. Grate the carrots in strips or cut them julienned. Dice up the bell peppers, tomato & cucumber.
 1. Cook the chicken breast and cut into cubes or shred.
 1. Strain the lettuce from the water, mix everything up, top with some of the chicken. Add dressing of ur choice or serve plain.
 1. Voilá!

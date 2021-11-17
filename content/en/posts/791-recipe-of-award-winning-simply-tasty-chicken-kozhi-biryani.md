@@ -74,7 +74,7 @@ Hey everyone, it is Brad, welcome to our recipe site. Today, we're going to prep
 
 Simply Tasty Chicken/Kozhi Biryani is one of the most popular of recent trending foods in the world. It's simple, it's fast, it tastes yummy. It's appreciated by millions daily. Simply Tasty Chicken/Kozhi Biryani is something that I have loved my whole life. They're nice and they look fantastic.
 
-In this video we will see how to make Chicken biryani / Kozhi biriyani simple and tasty. Biryani is favorite recipe to most of the people. Traditional chicken biryani is made by layering marinated chicken and then layered with parboiled rice, herbs,saffron milk &amp; then ghee. So what I have shared in this post is not a dum style biriyani yet it will surprise you with a good aroma and taste.
+In this video we will see how to make Chicken biryani / Kozhi biriyani simple and tasty. Biryani is favorite recipe to most of the people. Traditional chicken biryani is made by layering marinated chicken and then layered with parboiled rice, herbs,saffron milk & then ghee. So what I have shared in this post is not a dum style biriyani yet it will surprise you with a good aroma and taste.
 
 
 To get started with this particular recipe, we must first prepare a few ingredients. You can have simply tasty chicken/kozhi biryani using 27 ingredients and 8 steps. Here is how you can achieve that.

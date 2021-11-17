@@ -31,11 +31,11 @@ recipeingredient:
 - "1/4 cup pimiento stuff olives  sliced"
 - "1 2 oz jar of pimentos"
 recipeinstructions:
-- "Place canned fruit, onion, garlic, lemon juice,  squash,  radish,  carrot, crushed red pepper,  curry powder,  salt, &amp; marjoram into the slow cooker.  Stir, then add the chicken.  Scoop some of the mixture on top of the chicken."
-- "Cover &amp; cook on low for 4 to 5 hours until chicken is cooked through."
-- "Remove chicken from slow cooker, place in covered dish &amp; keep warm."
-- "Add sliced olives &amp; pimentos to the sauce. In a separate small bowl,  mix together the water &amp; cornstarch.  Pour the cornstarch mixture into the mixture &amp; stir to combine."
-- "Cover &amp; cook on high for about 15 minutes or until thickened."
+- "Place canned fruit, onion, garlic, lemon juice,  squash,  radish,  carrot, crushed red pepper,  curry powder,  salt, & marjoram into the slow cooker.  Stir, then add the chicken.  Scoop some of the mixture on top of the chicken."
+- "Cover & cook on low for 4 to 5 hours until chicken is cooked through."
+- "Remove chicken from slow cooker, place in covered dish & keep warm."
+- "Add sliced olives & pimentos to the sauce. In a separate small bowl,  mix together the water & cornstarch.  Pour the cornstarch mixture into the mixture & stir to combine."
+- "Cover & cook on high for about 15 minutes or until thickened."
 - "Serve chicken on a bed of couscous,  pour sauce from slow cooker on top."
 - "Ready to serve and ENJOY!"
 categories:
@@ -96,11 +96,11 @@ To begin with this recipe, we have to first prepare a few components. You can ha
 
 ##### Steps to make Moroccan Style Chicken - Slow Cooker:
 
-1. Place canned fruit, onion, garlic, lemon juice,  squash,  radish,  carrot, crushed red pepper,  curry powder,  salt, &amp; marjoram into the slow cooker.  Stir, then add the chicken.  Scoop some of the mixture on top of the chicken.
-1. Cover &amp; cook on low for 4 to 5 hours until chicken is cooked through.
-1. Remove chicken from slow cooker, place in covered dish &amp; keep warm.
-1. Add sliced olives &amp; pimentos to the sauce. In a separate small bowl,  mix together the water &amp; cornstarch.  Pour the cornstarch mixture into the mixture &amp; stir to combine.
-1. Cover &amp; cook on high for about 15 minutes or until thickened.
+1. Place canned fruit, onion, garlic, lemon juice,  squash,  radish,  carrot, crushed red pepper,  curry powder,  salt, & marjoram into the slow cooker.  Stir, then add the chicken.  Scoop some of the mixture on top of the chicken.
+1. Cover & cook on low for 4 to 5 hours until chicken is cooked through.
+1. Remove chicken from slow cooker, place in covered dish & keep warm.
+1. Add sliced olives & pimentos to the sauce. In a separate small bowl,  mix together the water & cornstarch.  Pour the cornstarch mixture into the mixture & stir to combine.
+1. Cover & cook on high for about 15 minutes or until thickened.
 1. Serve chicken on a bed of couscous,  pour sauce from slow cooker on top.
 1. Ready to serve and ENJOY!
 

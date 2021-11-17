@@ -73,7 +73,7 @@ To get started with this particular recipe, we must first prepare a few componen
 1. Get 3/4 oz basil; chiffonade
 1. Take 1/2 red onion; julienne
 1. Prepare 1/4 C champagne vinegar
-1. Get 1 large pinch kosher salt &amp; black pepper
+1. Get 1 large pinch kosher salt & black pepper
 1. Get 1 C french fried onions
 1. Make ready 1/3 C Italian seasoned breadcrumbs
 1. Get 1/4 C grated parmesean

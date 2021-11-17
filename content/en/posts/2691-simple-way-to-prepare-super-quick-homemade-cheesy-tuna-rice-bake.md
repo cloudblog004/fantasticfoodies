@@ -26,8 +26,8 @@ recipeingredient:
 - "1 tsp garlic powder"
 - "1 cup mini crouton mix or seasoned bread crumbs"
 recipeinstructions:
-- "Preheat oven to 425°. Then, begin by boiling your rice to soften. Drain &amp; Place evenly into a small casserole or baking dish/pan."
-- "Next, chop your onions &amp; mix all ingredients together well in casserole dish. (Leaving aside the crouton/crumb topping &amp; 1/2 cup of the shredded cheese.)"
+- "Preheat oven to 425°. Then, begin by boiling your rice to soften. Drain & Place evenly into a small casserole or baking dish/pan."
+- "Next, chop your onions & mix all ingredients together well in casserole dish. (Leaving aside the crouton/crumb topping & 1/2 cup of the shredded cheese.)"
 - "Finally, level mixture off (pressing down gently with a spoon or your preferred tool 😄) and flatten casserole evenly. Top with remaining shredded cheese and croutons."
 - "Cover with foil. Bake for 40-60 minutes or until cheese is melted to your preference. (*for crispier topping remove foil for the last 10-15 minutes.)"
 - "Ready to serve and ENJOY!"
@@ -69,7 +69,7 @@ To get started with this recipe, we have to prepare a few components. You can ha
 1. Make ready 1 can cream of chicken soup (or cream of mushroom)
 1. Make ready 1/2 cup milk
 1. Make ready 1 green onion, sliced thin
-1. Take 2 cups shredded cheddar &amp; monterey (or any shredded cheese)
+1. Take 2 cups shredded cheddar & monterey (or any shredded cheese)
 1. Get 1 small yellow onion, diced
 1. Take 1 tsp salt
 1. Make ready 1 tsp pepper
@@ -84,8 +84,8 @@ To get started with this recipe, we have to prepare a few components. You can ha
 
 ##### Steps to make Cheesy Tuna Rice Bake:
 
-1. Preheat oven to 425°. Then, begin by boiling your rice to soften. Drain &amp; Place evenly into a small casserole or baking dish/pan.
-1. Next, chop your onions &amp; mix all ingredients together well in casserole dish. (Leaving aside the crouton/crumb topping &amp; 1/2 cup of the shredded cheese.)
+1. Preheat oven to 425°. Then, begin by boiling your rice to soften. Drain & Place evenly into a small casserole or baking dish/pan.
+1. Next, chop your onions & mix all ingredients together well in casserole dish. (Leaving aside the crouton/crumb topping & 1/2 cup of the shredded cheese.)
 1. Finally, level mixture off (pressing down gently with a spoon or your preferred tool 😄) and flatten casserole evenly. Top with remaining shredded cheese and croutons.
 1. Cover with foil. Bake for 40-60 minutes or until cheese is melted to your preference. (*for crispier topping remove foil for the last 10-15 minutes.)
 1. Ready to serve and ENJOY!

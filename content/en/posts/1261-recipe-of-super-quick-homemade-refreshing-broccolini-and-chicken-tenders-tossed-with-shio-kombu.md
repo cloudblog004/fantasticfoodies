@@ -70,6 +70,6 @@ Vegetarian Lasagna with Aubergine and Zucchini. Gluten-free rice flour fig cake 
 1. Put the broccolini, shredded chicken tenders, and shio-kombu in a bowl, toss together, then let sit for 5 minutes. When the shio-kombu gets soft, and the salt flavor is evenly distributed, drizzle on yuzu ponzu to taste.
 1. Ready to serve and ENJOY!
 
-Refreshing Broccolini and Chicken Tenders Tossed with Shio-Kombu. Try our Homemade Ponzu Sauce for. Shio Kombu is a traditional Japanese food consisting of thin strips of salted kelp, as &#34;Shio (塩)&#34; means salt in Japanese. It is made by simmering down kombu or kelp with Shoyu or soy sauce. Once the seaweed is cooked and dried, the sauce used changes into crystalline salt on the surface. 
+Refreshing Broccolini and Chicken Tenders Tossed with Shio-Kombu. Try our Homemade Ponzu Sauce for. Shio Kombu is a traditional Japanese food consisting of thin strips of salted kelp, as *Shio (塩)* means salt in Japanese. It is made by simmering down kombu or kelp with Shoyu or soy sauce. Once the seaweed is cooked and dried, the sauce used changes into crystalline salt on the surface. 
 
 So that's going to wrap this up with this special food refreshing broccolini and chicken tenders tossed with shio-kombu recipe. Thank you very much for your time. I am confident that you can make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

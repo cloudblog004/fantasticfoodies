@@ -30,7 +30,7 @@ recipeingredient:
 - "1 tsp Few curry leaves"
 - "1 tsp Cumin seeds"
 recipeinstructions:
-- "Marinate the chicken with ginger garlic paste &amp; salt.Set aside"
+- "Marinate the chicken with ginger garlic paste & salt.Set aside"
 - "Grind the ingredients mentioned to s smooth thick paste/ chutney"
 - "Heat oil add the cumin seeds and Curry leaves"
 - "Add the marinated chicken"
@@ -95,7 +95,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 
 ##### Steps to make Green Chicken:
 
-1. Marinate the chicken with ginger garlic paste &amp; salt.Set aside
+1. Marinate the chicken with ginger garlic paste & salt.Set aside
 1. Grind the ingredients mentioned to s smooth thick paste/ chutney
 1. Heat oil add the cumin seeds and Curry leaves
 1. Add the marinated chicken

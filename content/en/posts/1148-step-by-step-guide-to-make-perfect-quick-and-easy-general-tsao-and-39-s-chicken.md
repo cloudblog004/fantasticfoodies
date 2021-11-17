@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Perfect Quick and Easy General Tsao&amp;#39;s Chicken"
-title: "Step-by-Step Guide to Make Perfect Quick and Easy General Tsao&amp;#39;s Chicken"
+description: "Step-by-Step Guide to Make Perfect Quick and Easy General Tsao's Chicken"
+title: "Step-by-Step Guide to Make Perfect Quick and Easy General Tsao's Chicken"
 slug: 1148-step-by-step-guide-to-make-perfect-quick-and-easy-general-tsao-and-39-s-chicken
 date: 2021-12-10T02:59:09.875Z
 image: https://img-global.cpcdn.com/recipes/4715079441317888/680x482cq70/quick-and-easy-general-tsaos-chicken-recipe-main-photo.jpg

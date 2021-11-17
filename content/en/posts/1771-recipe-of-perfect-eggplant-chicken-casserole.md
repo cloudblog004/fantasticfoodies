@@ -73,7 +73,7 @@ Hello everybody, it's me again, Dan, welcome to our recipe site. Today, I will s
 
 Eggplant chicken casserole is one of the most favored of current trending foods on earth. It's enjoyed by millions every day. It is easy, it is fast, it tastes yummy. Eggplant chicken casserole is something that I've loved my whole life. They are nice and they look fantastic.
 
-This search takes into account your taste preferences. Learn how to make Eggplant and chicken casserole &amp; see the Smartpoints value of this great Layers of eggplant, ground chicken mixed in a seasoned tomato sauce, andParmesan cheese bake. Expand the green bean casserole into main-dish territory by adding ground chicken and eggplant using this recipe. All Reviews for Chicken, Eggplant, and Green Beans Casserole.
+This search takes into account your taste preferences. Learn how to make Eggplant and chicken casserole & see the Smartpoints value of this great Layers of eggplant, ground chicken mixed in a seasoned tomato sauce, andParmesan cheese bake. Expand the green bean casserole into main-dish territory by adding ground chicken and eggplant using this recipe. All Reviews for Chicken, Eggplant, and Green Beans Casserole.
 
 
 To begin with this particular recipe, we must prepare a few ingredients. You can cook eggplant chicken casserole using 27 ingredients and 7 steps. Here is how you cook it.

@@ -46,7 +46,7 @@ Hello everybody, it's Brad, welcome to our recipe page. Today, I'm gonna show yo
 
 quick chicken and rice everyone will love is one of the most popular of current trending foods on earth. It is enjoyed by millions every day. It is simple, it is fast, it tastes delicious. quick chicken and rice everyone will love is something that I have loved my entire life. They're nice and they look fantastic.
 
-The Chicken and Rice platter on the streets of NYC is easily one of my favorite dishes. It&#39;s actually quite easy to make at home. A Chicken and Rice Soup made by cooking chicken pieces in the broth which yields a beautiful savoury, golden soup I know there are plenty of quick and easy Chicken soups &#34;out there&#34; that will have you using pre cooked chicken or poaching chicken breast quickly then stirring it into the soup. That said, the same chicken with the same rice every day can get boring very quickly.
+The Chicken and Rice platter on the streets of NYC is easily one of my favorite dishes. It&#39;s actually quite easy to make at home. A Chicken and Rice Soup made by cooking chicken pieces in the broth which yields a beautiful savoury, golden soup I know there are plenty of quick and easy Chicken soups *out there* that will have you using pre cooked chicken or poaching chicken breast quickly then stirring it into the soup. That said, the same chicken with the same rice every day can get boring very quickly.
 
 
 To begin with this recipe, we have to first prepare a few ingredients. You can cook quick chicken and rice everyone will love using 5 ingredients and 2 steps. Here is how you cook it.

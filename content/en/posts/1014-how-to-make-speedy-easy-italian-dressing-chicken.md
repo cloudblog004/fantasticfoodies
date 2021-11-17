@@ -18,9 +18,9 @@ recipeingredient:
 - "to taste Salt  Pepper"
 - " Oil"
 recipeinstructions:
-- "Clean &amp; cut the chicken. Poke each chicken strip with a fork.  That will help the marinade penatrate better. Even though I cut my chicken into strips, you can leave them whole."
+- "Clean & cut the chicken. Poke each chicken strip with a fork.  That will help the marinade penatrate better. Even though I cut my chicken into strips, you can leave them whole."
 - "Place all the chicken in a bowl with a cover.  Place in refrigerator for a minimum of 1 hr max overnight. No need to cover the chicken with dressing especially if marinating overnight."
-- "Put some oil in a pan &amp; fry till desired wellness.  I like them a little brown."
+- "Put some oil in a pan & fry till desired wellness.  I like them a little brown."
 - ""
 - "Ready to serve and ENJOY!"
 categories:
@@ -58,7 +58,7 @@ To get started with this particular recipe, we have to prepare a few components.
 
 1. Prepare 4 Boneless Chicken Breast cut into strips
 1. Prepare  Italian dressing to Marinate
-1. Take to taste Salt &amp; Pepper
+1. Take to taste Salt & Pepper
 1. Make ready  Oil
 
 
@@ -68,9 +68,9 @@ To get started with this particular recipe, we have to prepare a few components.
 
 ##### Instructions to make Easy Italian Dressing Chicken:
 
-1. Clean &amp; cut the chicken. Poke each chicken strip with a fork.  That will help the marinade penatrate better. Even though I cut my chicken into strips, you can leave them whole.
+1. Clean & cut the chicken. Poke each chicken strip with a fork.  That will help the marinade penatrate better. Even though I cut my chicken into strips, you can leave them whole.
 1. Place all the chicken in a bowl with a cover.  Place in refrigerator for a minimum of 1 hr max overnight. No need to cover the chicken with dressing especially if marinating overnight.
-1. Put some oil in a pan &amp; fry till desired wellness.  I like them a little brown.
+1. Put some oil in a pan & fry till desired wellness.  I like them a little brown.
 1. 
 1. Ready to serve and ENJOY!
 

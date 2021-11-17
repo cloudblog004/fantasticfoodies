@@ -95,7 +95,7 @@ To begin with this particular recipe, we must prepare a few components. You can 
 1. Get  Meat thermometer
 
 
-The herby baked chicken absorbs the briny taste of the olives Healthy Weeknight Dinner Recipes. Herb-Roasted Chicken with Potatoes, Olives &amp; Feta. Chicken thighs, slathered in herb vinaigrette, roasted on bed of sliced potatoes and shallots. Here&#39;s great idea for an easy, one-dish meal—herb roasted chicken thighs baked on a bed of potatoes. 
+The herby baked chicken absorbs the briny taste of the olives Healthy Weeknight Dinner Recipes. Herb-Roasted Chicken with Potatoes, Olives & Feta. Chicken thighs, slathered in herb vinaigrette, roasted on bed of sliced potatoes and shallots. Here&#39;s great idea for an easy, one-dish meal—herb roasted chicken thighs baked on a bed of potatoes. 
 
 <!--inarticleads2-->
 

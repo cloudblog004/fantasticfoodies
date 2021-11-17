@@ -1,6 +1,6 @@
 ---
-description: "How to Make Homemade Papa&amp;#39;s Bruschetta Chicken Bake"
-title: "How to Make Homemade Papa&amp;#39;s Bruschetta Chicken Bake"
+description: "How to Make Homemade Papa's Bruschetta Chicken Bake"
+title: "How to Make Homemade Papa's Bruschetta Chicken Bake"
 slug: 2638-how-to-make-homemade-papa-and-39-s-bruschetta-chicken-bake
 date: 2021-12-21T10:27:59.713Z
 image: https://img-global.cpcdn.com/recipes/2d7d422488893e96/680x482cq70/papas-bruschetta-chicken-bake-recipe-main-photo.jpg

@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Make Homemade Jen&amp;#39;s Chicken Fajitas"
-title: "Simple Way to Make Homemade Jen&amp;#39;s Chicken Fajitas"
+description: "Simple Way to Make Homemade Jen's Chicken Fajitas"
+title: "Simple Way to Make Homemade Jen's Chicken Fajitas"
 slug: 3351-simple-way-to-make-homemade-jen-and-39-s-chicken-fajitas
 date: 2022-05-21T20:54:41.545Z
 image: https://img-global.cpcdn.com/recipes/af6de760f8b2f98f/680x482cq70/jens-chicken-fajitas-recipe-main-photo.jpg

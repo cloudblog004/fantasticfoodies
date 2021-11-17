@@ -49,7 +49,7 @@ Hey everyone, I hope you are having an incredible day today. Today, I will show 
 
 Parmesan Chicken is one of the most favored of current trending meals in the world. It is enjoyed by millions every day. It's simple, it is fast, it tastes yummy. They are nice and they look wonderful. Parmesan Chicken is something which I have loved my whole life.
 
-Chicken parmigiana, or chicken parmesan (Italian pollo alla parmigiana), is a dish that consists of breaded chicken breast covered in tomato sauce and mozzarella, parmesan, or provolone cheese. My version of chicken parmesan is a little different than what they do in the restaurants, with less sauce and a crispier crust. Chicken Parmigiana (or Chicken Parmesan) - the great pub favourite has finally landed! Pollo alla parmigiana in Italian, but affectionately referred by Aussies as Parma, Parmi or &#34;a schnitty with tomato.
+Chicken parmigiana, or chicken parmesan (Italian pollo alla parmigiana), is a dish that consists of breaded chicken breast covered in tomato sauce and mozzarella, parmesan, or provolone cheese. My version of chicken parmesan is a little different than what they do in the restaurants, with less sauce and a crispier crust. Chicken Parmigiana (or Chicken Parmesan) - the great pub favourite has finally landed! Pollo alla parmigiana in Italian, but affectionately referred by Aussies as Parma, Parmi or *a schnitty with tomato.
 
 
 To begin with this particular recipe, we must prepare a few components. You can have parmesan chicken using 5 ingredients and 6 steps. Here is how you can achieve it.
@@ -79,6 +79,6 @@ This is an easy chicken dinner the whole family will love! Made with homemade ma
 1. Once cheese is melted let sit for 10 minutes and serve on its own or with pasta like I did in the picture shown.
 1. Ready to serve and ENJOY!
 
-Serve it over pasta, zucchini noodles. Editor&#39;s Note: Chicken Parmesan and Chicken Parmigiana are the same dish. We use &#34;Parmesan&#34; throughout this recipe to reflect the dish&#39;s American origin. I can count the number of times I&#39;ve had. Chicken parmesan is one of the most common Italian-American dishes and a ubiquitous menu item at family-style Italian restaurants. 
+Serve it over pasta, zucchini noodles. Editor&#39;s Note: Chicken Parmesan and Chicken Parmigiana are the same dish. We use *Parmesan* throughout this recipe to reflect the dish&#39;s American origin. I can count the number of times I&#39;ve had. Chicken parmesan is one of the most common Italian-American dishes and a ubiquitous menu item at family-style Italian restaurants. 
 
 So that's going to wrap this up for this special food parmesan chicken recipe. Thank you very much for your time. I am confident that you will make this at home. There's gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

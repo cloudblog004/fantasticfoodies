@@ -56,7 +56,7 @@ Hello everybody, I hope you're having an amazing day today. Today, we're going t
 
 Chicken teriyaki is one of the most favored of current trending meals on earth. It is enjoyed by millions daily. It is simple, it's quick, it tastes yummy. They are fine and they look wonderful. Chicken teriyaki is something that I have loved my whole life.
 
-Moist and Juicy Chicken thigh glazed with a sweet and flavorful sauce!! Check out this easy to make recipe made with simple ingredients. Although the name &#34;Teriyaki&#34; is relatively recent nomenclature, the practice of cooking meat and fish in a mixture of soy sauce and sugar has a long history going back. Teriyaki chicken is a quick and hearty dish that wins every time.
+Moist and Juicy Chicken thigh glazed with a sweet and flavorful sauce!! Check out this easy to make recipe made with simple ingredients. Although the name *Teriyaki* is relatively recent nomenclature, the practice of cooking meat and fish in a mixture of soy sauce and sugar has a long history going back. Teriyaki chicken is a quick and hearty dish that wins every time.
 
 
 To begin with this recipe, we have to first prepare a few components. You can have chicken teriyaki using 11 ingredients and 7 steps. Here is how you can achieve that.

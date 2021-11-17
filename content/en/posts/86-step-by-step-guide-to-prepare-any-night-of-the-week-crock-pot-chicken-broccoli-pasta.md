@@ -47,7 +47,7 @@ recipecategory: Dessert
 
 Hey everyone, it's Brad, welcome to our recipe page. Today, I will show you a way to prepare a distinctive dish, crock pot chicken broccoli pasta. One of my favorites food recipes. This time, I will make it a bit unique. This is gonna smell and look delicious.
 
-Takeout Crock Pot Chicken and BroccoliThis is a very easy dish to make. Making dishes like this at home allow you to use the best quality ingredients you. This crockpot chicken and broccoli is definitely easier. Slow Cooker Chicken, Broccoli &amp; RiceCampbell&#39;s®.
+Takeout Crock Pot Chicken and BroccoliThis is a very easy dish to make. Making dishes like this at home allow you to use the best quality ingredients you. This crockpot chicken and broccoli is definitely easier. Slow Cooker Chicken, Broccoli & RiceCampbell&#39;s®.
 
 Crock pot chicken broccoli pasta is one of the most well liked of recent trending foods in the world. It is appreciated by millions every day. It's simple, it's quick, it tastes delicious. Crock pot chicken broccoli pasta is something which I have loved my entire life. They are fine and they look wonderful.
 

@@ -78,6 +78,6 @@ It&#39;s loaded with crisp vegetables, seasoned ground beef, and taco classics s
 1. Add it to a bowl and the meat as well. Put your favorite toppings on it and booooom done
 1. Ready to serve and ENJOY!
 
-It is easy, filling and a family favorite. It has all of the favorites - avocado, black beans, cheese and salsa! I&#39;ve had salads on my mind! For those of you that know me well, you know that there a few places I consider my &#34;happy place&#34;… the local craft store, my kitchen, and the grocery store! All the flavors of tacos in a healthy salad with a tasty cilantro-lime vinaigrette! 
+It is easy, filling and a family favorite. It has all of the favorites - avocado, black beans, cheese and salsa! I&#39;ve had salads on my mind! For those of you that know me well, you know that there a few places I consider my *happy place*… the local craft store, my kitchen, and the grocery store! All the flavors of tacos in a healthy salad with a tasty cilantro-lime vinaigrette! 
 
 So that's going to wrap this up for this exceptional food healthy taco salad recipe. Thank you very much for your time. I am confident you will make this at home. There's gonna be interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

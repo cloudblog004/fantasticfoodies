@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Perfect Cheesy Chicken Broccoli &amp;amp; Rice Casserole"
-title: "Step-by-Step Guide to Make Perfect Cheesy Chicken Broccoli &amp;amp; Rice Casserole"
+description: "Step-by-Step Guide to Make Perfect Cheesy Chicken Broccoli & Rice Casserole"
+title: "Step-by-Step Guide to Make Perfect Cheesy Chicken Broccoli & Rice Casserole"
 slug: 1671-step-by-step-guide-to-make-perfect-cheesy-chicken-broccoli-and-amp-rice-casserole
 date: 2022-01-25T19:10:12.204Z
 image: https://img-global.cpcdn.com/recipes/32099959f2b28bf8/680x482cq70/cheesy-chicken-broccoli-rice-casserole-recipe-main-photo.jpg
@@ -54,23 +54,23 @@ recipecategory: Dessert
 ---
 
 
-![Cheesy Chicken Broccoli &amp; Rice Casserole](https://img-global.cpcdn.com/recipes/32099959f2b28bf8/680x482cq70/cheesy-chicken-broccoli-rice-casserole-recipe-main-photo.jpg)
+![Cheesy Chicken Broccoli & Rice Casserole](https://img-global.cpcdn.com/recipes/32099959f2b28bf8/680x482cq70/cheesy-chicken-broccoli-rice-casserole-recipe-main-photo.jpg)
 
-Hello everybody, I hope you are having an incredible day today. Today, I will show you a way to prepare a distinctive dish, cheesy chicken broccoli &amp; rice casserole. It is one of my favorites food recipes. For mine, I will make it a little bit tasty. This will be really delicious.
-
-
-
-Cheesy Chicken Broccoli &amp; Rice Casserole is one of the most well liked of recent trending foods in the world. It is enjoyed by millions every day. It's simple, it is quick, it tastes yummy. They are fine and they look wonderful. Cheesy Chicken Broccoli &amp; Rice Casserole is something which I've loved my whole life.
+Hello everybody, I hope you are having an incredible day today. Today, I will show you a way to prepare a distinctive dish, cheesy chicken broccoli & rice casserole. It is one of my favorites food recipes. For mine, I will make it a little bit tasty. This will be really delicious.
 
 
-To begin with this recipe, we must first prepare a few ingredients. You can cook cheesy chicken broccoli &amp; rice casserole using 11 ingredients and 10 steps. Here is how you cook it.
+
+Cheesy Chicken Broccoli & Rice Casserole is one of the most well liked of recent trending foods in the world. It is enjoyed by millions every day. It's simple, it is quick, it tastes yummy. They are fine and they look wonderful. Cheesy Chicken Broccoli & Rice Casserole is something which I've loved my whole life.
+
+
+To begin with this recipe, we must first prepare a few ingredients. You can cook cheesy chicken broccoli & rice casserole using 11 ingredients and 10 steps. Here is how you cook it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Cheesy Chicken Broccoli &amp; Rice Casserole:
+##### The ingredients needed to make Cheesy Chicken Broccoli & Rice Casserole:
 
 1. Get 4 Chicken Breast
-1. Take to taste Salt &amp; Pepper
+1. Take to taste Salt & Pepper
 1. Get  Smoked Paprika (optional)
 1. Prepare 2 C Quick Cook or Instant Brown Rice
 1. Make ready 1 bag Frozen Broccoli Florets
@@ -86,7 +86,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can cook
 
 <!--inarticleads2-->
 
-##### Instructions to make Cheesy Chicken Broccoli &amp; Rice Casserole:
+##### Instructions to make Cheesy Chicken Broccoli & Rice Casserole:
 
 1. Preheat oven to 375F
 1. Season chicken breast with salt, pepper, and smoked paprika.
@@ -102,4 +102,4 @@ To begin with this recipe, we must first prepare a few ingredients. You can cook
 
 
 
-So that is going to wrap this up with this special food cheesy chicken broccoli &amp; rice casserole recipe. Thank you very much for your time. I am confident you can make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
+So that is going to wrap this up with this special food cheesy chicken broccoli & rice casserole recipe. Thank you very much for your time. I am confident you can make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

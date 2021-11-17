@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Speedy Sultan&amp;#39;s Quick Chicken"
-title: "Easiest Way to Make Speedy Sultan&amp;#39;s Quick Chicken"
+description: "Easiest Way to Make Speedy Sultan's Quick Chicken"
+title: "Easiest Way to Make Speedy Sultan's Quick Chicken"
 slug: 1137-easiest-way-to-make-speedy-sultan-and-39-s-quick-chicken
 date: 2021-12-24T18:23:55.223Z
 image: https://img-global.cpcdn.com/recipes/1145b893040a9d92/680x482cq70/sultans-quick-chicken-recipe-main-photo.jpg

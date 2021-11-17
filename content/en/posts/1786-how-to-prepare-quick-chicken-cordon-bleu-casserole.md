@@ -76,7 +76,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 1. Prepare 6 tbsp unsalted butter
 1. Take 1 1/2 cup panko bread crumbs
 1. Prepare 1 1/2 tsp crushed dried parsley
-1. Get 1 salt &amp; pepper
+1. Get 1 salt & pepper
 1. Get  casserole
 1. Get 6 cup cooked chicken, diced or shredded (rotisserie chicken is excellent)
 1. Get 1/2 lb very thinly sliced deli-style honey ham, rough chopped

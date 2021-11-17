@@ -60,7 +60,7 @@ Hey everyone, I hope you're having an incredible day today. Today, we're going t
 
 Mandi with chicken is one of the most favored of recent trending meals in the world. It is simple, it's fast, it tastes delicious. It is appreciated by millions every day. Mandi with chicken is something that I have loved my entire life. They are nice and they look wonderful.
 
-#Mandi #chickenmandi Easy&amp;tasty chicken mandi #foodtimegoodtime. Chicken Mandi -•chicken drumstick•dried lemon •lemon juice•salt •turmeric powder•onion, chopped•olive oil. The Arabian Chicken Mandi Recipe is a delicious preparation of chicken cooked with mandi powder served over a layer of basmati rice. It is packed with flavours and taste of the perfect blend of spices.
+#Mandi #chickenmandi Easy&tasty chicken mandi #foodtimegoodtime. Chicken Mandi -•chicken drumstick•dried lemon •lemon juice•salt •turmeric powder•onion, chopped•olive oil. The Arabian Chicken Mandi Recipe is a delicious preparation of chicken cooked with mandi powder served over a layer of basmati rice. It is packed with flavours and taste of the perfect blend of spices.
 
 
 To begin with this recipe, we must first prepare a few ingredients. You can cook mandi with chicken using 13 ingredients and 8 steps. Here is how you cook that.

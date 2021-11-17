@@ -38,9 +38,9 @@ recipeinstructions:
 - "Wet half of the Wonton wrapper edge with the corn starch water. Fold Wonton wrapper in half and pinch/plete edges to seal. Place them onto a large sheet for transport. When setting them down on the sheet, press down slightly to create a flat bottom."
 - "Repeat the process until all Wrappers are full or you run out of mixture. Leftover mixture is great on crackers or with Tortilla chips."
 - "Next, you have the choice of a more traditional dumpling (half fry and half steamed) or deep frying the dumpling. I&#39;ll explain both:"
-- "For Traditional, you&#39;ll put about 1/4&#34; of oil in the bottom of your pan and heat over medium heat. Place the dumplings on to fry the bottom of the dumplings."
+- "For Traditional, you&#39;ll put about 1/4* of oil in the bottom of your pan and heat over medium heat. Place the dumplings on to fry the bottom of the dumplings."
 - "Once the bottom is fried to a crisp light brown, add about 1/4 cup of water and cover immediately (the water and oil mixture will spatter when they contact each other, so have the lid ready). Let it steam covered for 1-2 minutes, then remove the dumpling and let them dry."
-- "For fully deep fried dumplings (which is what I&#39;ll be doing), fill the pan with about 3/4&#34; of fryer oil and heat over medium heat. Once the oil is ready, place dumplings in and deep fry. They only take about a minute and once they&#39;re done, remove them into a pan to dry"
+- "For fully deep fried dumplings (which is what I&#39;ll be doing), fill the pan with about 3/4* of fryer oil and heat over medium heat. Once the oil is ready, place dumplings in and deep fry. They only take about a minute and once they&#39;re done, remove them into a pan to dry"
 - "Note: these will stick to paper towel, so it&#39;s best to dry them on a cookie sheet or something similar (like a plate)"
 - "After they&#39;re dry, go ahead and eat! Optionally, these taste great dipped in Ranch Dressing, but normally I eat them as is!"
 - "Ready to serve and ENJOY!"
@@ -109,9 +109,9 @@ To get started with this particular recipe, we have to first prepare a few compo
 1. Wet half of the Wonton wrapper edge with the corn starch water. Fold Wonton wrapper in half and pinch/plete edges to seal. Place them onto a large sheet for transport. When setting them down on the sheet, press down slightly to create a flat bottom.
 1. Repeat the process until all Wrappers are full or you run out of mixture. Leftover mixture is great on crackers or with Tortilla chips.
 1. Next, you have the choice of a more traditional dumpling (half fry and half steamed) or deep frying the dumpling. I&#39;ll explain both:
-1. For Traditional, you&#39;ll put about 1/4&#34; of oil in the bottom of your pan and heat over medium heat. Place the dumplings on to fry the bottom of the dumplings.
+1. For Traditional, you&#39;ll put about 1/4* of oil in the bottom of your pan and heat over medium heat. Place the dumplings on to fry the bottom of the dumplings.
 1. Once the bottom is fried to a crisp light brown, add about 1/4 cup of water and cover immediately (the water and oil mixture will spatter when they contact each other, so have the lid ready). Let it steam covered for 1-2 minutes, then remove the dumpling and let them dry.
-1. For fully deep fried dumplings (which is what I&#39;ll be doing), fill the pan with about 3/4&#34; of fryer oil and heat over medium heat. Once the oil is ready, place dumplings in and deep fry. They only take about a minute and once they&#39;re done, remove them into a pan to dry
+1. For fully deep fried dumplings (which is what I&#39;ll be doing), fill the pan with about 3/4* of fryer oil and heat over medium heat. Once the oil is ready, place dumplings in and deep fry. They only take about a minute and once they&#39;re done, remove them into a pan to dry
 1. Note: these will stick to paper towel, so it&#39;s best to dry them on a cookie sheet or something similar (like a plate)
 1. After they&#39;re dry, go ahead and eat! Optionally, these taste great dipped in Ranch Dressing, but normally I eat them as is!
 1. Ready to serve and ENJOY!

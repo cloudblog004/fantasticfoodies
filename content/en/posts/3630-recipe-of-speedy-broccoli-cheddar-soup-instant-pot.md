@@ -52,7 +52,7 @@ recipecategory: Dinner
 
 Hey everyone, it is Jim, welcome to our recipe page. Today, I'm gonna show you how to make a distinctive dish, broccoli cheddar soup (instant pot). One of my favorites. For mine, I'm gonna make it a bit unique. This will be really delicious.
 
-WHEN are you going to make a Broccoli Cheddar Cheese Soup?!&#34; they&#39;ve been asking me (for years). And if anyone tells you different, never trust them again. The Instant Pot does it again! #pressureluck #instantpot #broccolicheesesoup Get My Best-Selling Cookbook Here!: https. This easy one-pot broccoli cheddar soup is so comforting during cold months.
+WHEN are you going to make a Broccoli Cheddar Cheese Soup?!* they&#39;ve been asking me (for years). And if anyone tells you different, never trust them again. The Instant Pot does it again! #pressureluck #instantpot #broccolicheesesoup Get My Best-Selling Cookbook Here!: https. This easy one-pot broccoli cheddar soup is so comforting during cold months.
 
 Broccoli Cheddar Soup (Instant Pot) is one of the most favored of current trending foods in the world. It's enjoyed by millions every day. It is easy, it's fast, it tastes yummy. Broccoli Cheddar Soup (Instant Pot) is something that I have loved my whole life. They are nice and they look wonderful.
 
@@ -88,6 +88,6 @@ My husband loves Panera® broccoli cheddar soup but it went up in price and ther
 1. Serving Day Directions Add the stock and the contents of the package to the multi-cooker inner pot. Cook on high pressure for 5 minutes. Let the pressure release naturally for 5 minutes, and then manually release any remaining pressure. Gradually stir in the cheddar cheese, butter, and heavy cream until the cheese is melted. Using an immersion blender, puree the soup.
 1. Ready to serve and ENJOY!
 
-This Easy Broccoli Cheese Soup is a cheese-lovers dream. Equipment: Besides an Instant Pot, an Immersion Hand Blender is a very handy tool to help you blend the broccoli cheddar soup into a smooth consistency. Gluten free, extra creamy, extra cheesy, &amp; frozen broccoli. Healthy broccoli cheddar soup packed with carrots, broccoli, garlic, and cheese. Gather all your ingredients and let&#39;s get. 
+This Easy Broccoli Cheese Soup is a cheese-lovers dream. Equipment: Besides an Instant Pot, an Immersion Hand Blender is a very handy tool to help you blend the broccoli cheddar soup into a smooth consistency. Gluten free, extra creamy, extra cheesy, & frozen broccoli. Healthy broccoli cheddar soup packed with carrots, broccoli, garlic, and cheese. Gather all your ingredients and let&#39;s get. 
 
 So that's going to wrap it up with this special food broccoli cheddar soup (instant pot) recipe. Thanks so much for reading. I'm sure you will make this at home. There's gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

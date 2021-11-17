@@ -63,7 +63,7 @@ recipecategory: Lunch
 
 Hello everybody, hope you are having an amazing day today. Today, I will show you a way to make a special dish, huntsman stew. One of my favorites food recipes. This time, I'm gonna make it a bit unique. This is gonna smell and look delicious.
 
-A sturdy forest stew, a Swedish classic, where the juniper berries highlight the earthiness of the mushrooms and your meat. Check Out our Selection &amp; Order Now. Free UK Delivery on Eligible Orders! Here is how you cook it.
+A sturdy forest stew, a Swedish classic, where the juniper berries highlight the earthiness of the mushrooms and your meat. Check Out our Selection & Order Now. Free UK Delivery on Eligible Orders! Here is how you cook it.
 
 Huntsman stew is one of the most favored of current trending meals in the world. It is simple, it's quick, it tastes delicious. It is appreciated by millions daily. They are nice and they look fantastic. Huntsman stew is something which I have loved my whole life.
 
@@ -74,7 +74,7 @@ To get started with this particular recipe, we have to prepare a few components.
 
 ##### The ingredients needed to make Huntsman stew:
 
-1. Make ready 1 chicken breast  ( it is used deer meat in the original recipe that&#39;s why it&#39;s called &#34;huntsman stew&#34;)
+1. Make ready 1 chicken breast  ( it is used deer meat in the original recipe that&#39;s why it&#39;s called *huntsman stew*)
 1. Get 1 can boiled green beans
 1. Take 1/2 white onion
 1. Make ready 1 red pepper

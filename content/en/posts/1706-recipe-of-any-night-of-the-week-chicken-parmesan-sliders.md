@@ -40,7 +40,7 @@ recipeinstructions:
 - "Cover the chicken with the marinara sauce"
 - "Put your mozzarella cheese on next"
 - "Spread the basil on"
-- "Place top half of the rolls, give it a little, light press, just to &#34;set&#34; it"
+- "Place top half of the rolls, give it a little, light press, just to *set* it"
 - "Stir your topping one last time. Brush it over the top of the rolls."
 - "Place in the oven, cook 20 minutes."
 - "Remove, let sit a couple minutes."
@@ -114,7 +114,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 1. Cover the chicken with the marinara sauce
 1. Put your mozzarella cheese on next
 1. Spread the basil on
-1. Place top half of the rolls, give it a little, light press, just to &#34;set&#34; it
+1. Place top half of the rolls, give it a little, light press, just to *set* it
 1. Stir your topping one last time. Brush it over the top of the rolls.
 1. Place in the oven, cook 20 minutes.
 1. Remove, let sit a couple minutes.

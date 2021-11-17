@@ -1,6 +1,6 @@
 ---
-description: "Steps to Make Super Quick Homemade Lauren&amp;#39;s Chicken Stroganoff"
-title: "Steps to Make Super Quick Homemade Lauren&amp;#39;s Chicken Stroganoff"
+description: "Steps to Make Super Quick Homemade Lauren's Chicken Stroganoff"
+title: "Steps to Make Super Quick Homemade Lauren's Chicken Stroganoff"
 slug: 3340-steps-to-make-super-quick-homemade-lauren-and-39-s-chicken-stroganoff
 date: 2022-01-27T06:15:29.150Z
 image: https://img-global.cpcdn.com/recipes/540fdbbf08c71c8d/680x482cq70/laurens-chicken-stroganoff-recipe-main-photo.jpg

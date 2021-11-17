@@ -61,7 +61,7 @@ Hey everyone, hope you're having an amazing day today. Today, I'm gonna show you
 
 Juicy Oven Baked Chicken Breast is one of the most favored of current trending meals on earth. It's simple, it is quick, it tastes delicious. It's appreciated by millions every day. They're nice and they look wonderful. Juicy Oven Baked Chicken Breast is something that I've loved my entire life.
 
-The secret to juicy Oven Baked Chicken Breast is to add a touch of brown sugar into the seasoning and to cook fast at a high temp. This Juicy and Tender Oven Baked Chicken Breast Recipe only takes few minutes of prep but the spice blend and resting the chicken makes it tender and juicy. I learned this way of cooking chicken in culinary school. It&#39;s technically called &#34;dry-poaching,&#34; but that sounds fussy for what This way of cooking chicken is incredibly easy and it&#39;s never failed me.
+The secret to juicy Oven Baked Chicken Breast is to add a touch of brown sugar into the seasoning and to cook fast at a high temp. This Juicy and Tender Oven Baked Chicken Breast Recipe only takes few minutes of prep but the spice blend and resting the chicken makes it tender and juicy. I learned this way of cooking chicken in culinary school. It&#39;s technically called *dry-poaching,* but that sounds fussy for what This way of cooking chicken is incredibly easy and it&#39;s never failed me.
 
 
 To begin with this particular recipe, we have to first prepare a few ingredients. You can cook juicy oven baked chicken breast using 13 ingredients and 9 steps. Here is how you cook that.

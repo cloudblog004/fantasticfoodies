@@ -1,6 +1,6 @@
 ---
-description: "How to Prepare Homemade Brad&amp;#39;s Chicken Verde casserole over Spanish rice"
-title: "How to Prepare Homemade Brad&amp;#39;s Chicken Verde casserole over Spanish rice"
+description: "How to Prepare Homemade Brad's Chicken Verde casserole over Spanish rice"
+title: "How to Prepare Homemade Brad's Chicken Verde casserole over Spanish rice"
 slug: 1676-how-to-prepare-homemade-brad-and-39-s-chicken-verde-casserole-over-spanish-rice
 date: 2022-02-02T16:15:04.461Z
 image: https://img-global.cpcdn.com/recipes/93c059d58fcb4703/680x482cq70/brads-chicken-verde-casserole-over-spanish-rice-recipe-main-photo.jpg

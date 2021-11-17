@@ -79,7 +79,7 @@ To begin with this recipe, we have to prepare a few components. You can cook eas
 1. Get 1 banch fresh coriander
 
 
-Creamy potato soup is an easy meal to make and even easier to freeze and store so you can have hearty soup anytime you want. This beautiful megenta color soup is so tasty and delicious!!!! I modified it a bit - I skipped the roasting part (and skipped peeling the red skinned potatoes) and just. How To Make Beef Stew with Carrots &amp; Potatoes. 
+Creamy potato soup is an easy meal to make and even easier to freeze and store so you can have hearty soup anytime you want. This beautiful megenta color soup is so tasty and delicious!!!! I modified it a bit - I skipped the roasting part (and skipped peeling the red skinned potatoes) and just. How To Make Beef Stew with Carrots & Potatoes. 
 
 <!--inarticleads2-->
 
@@ -94,6 +94,6 @@ Creamy potato soup is an easy meal to make and even easier to freeze and store s
 1. Cook another 5 minutes until potato gets soft and add small piece of coriander and done!
 1. Ready to serve and ENJOY!
 
-I modified it a bit - I skipped the roasting part (and skipped peeling the red skinned potatoes) and just. How To Make Beef Stew with Carrots &amp; Potatoes. Pat the beef dry and season with the salt and pepper. I made this beef stew with carrots and potatoes and it was fabulous! Keywords: beef and potato soup, Beef Potato and Quinoa Soup, hearty soup recipes, potato It was still tasty, although not much of a soup that way. 
+I modified it a bit - I skipped the roasting part (and skipped peeling the red skinned potatoes) and just. How To Make Beef Stew with Carrots & Potatoes. Pat the beef dry and season with the salt and pepper. I made this beef stew with carrots and potatoes and it was fabulous! Keywords: beef and potato soup, Beef Potato and Quinoa Soup, hearty soup recipes, potato It was still tasty, although not much of a soup that way. 
 
 So that's going to wrap it up for this special food easy and tasty beef potato soup recipe. Thank you very much for your time. I am confident you can make this at home. There's gonna be interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

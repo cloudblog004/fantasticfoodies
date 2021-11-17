@@ -63,7 +63,7 @@ recipecategory: Lunch
 
 Hello everybody, I hope you are having an incredible day today. Today, I'm gonna show you how to prepare a special dish, arabic chicken masala. It is one of my favorites. For mine, I'm gonna make it a bit tasty. This will be really delicious.
 
-Hi dears,Today I have a good recipe for you all. This is my mother in laws special recipe, spicy Arabic chicken Masala. Adding chicken masala powder is the secret ingredient, i used Aachi Chicken Masala powder if you don&#39;t have Aachi brand use any. Chicken masala recipe with video &amp; step by step photos - One of the most simple, home style Indian chicken recipe for beginners.
+Hi dears,Today I have a good recipe for you all. This is my mother in laws special recipe, spicy Arabic chicken Masala. Adding chicken masala powder is the secret ingredient, i used Aachi Chicken Masala powder if you don&#39;t have Aachi brand use any. Chicken masala recipe with video & step by step photos - One of the most simple, home style Indian chicken recipe for beginners.
 
 Arabic chicken masala is one of the most favored of recent trending foods on earth. It's easy, it's quick, it tastes delicious. It's appreciated by millions daily. Arabic chicken masala is something that I've loved my whole life. They're fine and they look wonderful.
 

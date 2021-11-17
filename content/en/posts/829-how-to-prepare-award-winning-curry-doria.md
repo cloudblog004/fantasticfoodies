@@ -32,7 +32,7 @@ recipeingredient:
 recipeinstructions:
 - "Preheat oven to 200C."
 - "Heat Oil in a large frying pan, cook Onion and Garlic until aromatic, add Beef and Carrot, then add Mushrooms. Season with Salt and Curry Powder. Add Cooked Rice and combine well."
-- "To make White Sauce, heat Butter in a saucepan over medium heat until melted and foaming, add Flour and cook stirring until mixture bubbles. Slowly add Milk, stirring constantly until sauce boils and thickens. Season with Salt &amp; Pepper."
+- "To make White Sauce, heat Butter in a saucepan over medium heat until melted and foaming, add Flour and cook stirring until mixture bubbles. Slowly add Milk, stirring constantly until sauce boils and thickens. Season with Salt & Pepper."
 - "Lightly oil a large ovenproof dish, place the rice mixture and pour the White Sauce over. Sprinkle with Cheeses, and bake for 25-30 minutes or until golden."
 - "Ready to serve and ENJOY!"
 categories:
@@ -82,7 +82,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Make ready 50 g Butter
 1. Get 1/4 cup Plain Flour
 1. Get 2 cups Milk
-1. Take  Salt &amp; Pepper
+1. Take  Salt & Pepper
 
 
 
@@ -93,7 +93,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 
 1. Preheat oven to 200C.
 1. Heat Oil in a large frying pan, cook Onion and Garlic until aromatic, add Beef and Carrot, then add Mushrooms. Season with Salt and Curry Powder. Add Cooked Rice and combine well.
-1. To make White Sauce, heat Butter in a saucepan over medium heat until melted and foaming, add Flour and cook stirring until mixture bubbles. Slowly add Milk, stirring constantly until sauce boils and thickens. Season with Salt &amp; Pepper.
+1. To make White Sauce, heat Butter in a saucepan over medium heat until melted and foaming, add Flour and cook stirring until mixture bubbles. Slowly add Milk, stirring constantly until sauce boils and thickens. Season with Salt & Pepper.
 1. Lightly oil a large ovenproof dish, place the rice mixture and pour the White Sauce over. Sprinkle with Cheeses, and bake for 25-30 minutes or until golden.
 1. Ready to serve and ENJOY!
 

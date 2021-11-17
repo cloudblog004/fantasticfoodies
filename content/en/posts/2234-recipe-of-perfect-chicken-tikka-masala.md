@@ -83,7 +83,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 1. Get  ▪Ground Cumin (1/2 teaspoon)
 1. Make ready  ▪Garlic (3 cloves)
 1. Make ready  ▪Tumeric (1 teaspoons)
-1. Make ready  ▪Salt &amp; Pepper (a pinch of both)
+1. Make ready  ▪Salt & Pepper (a pinch of both)
 1. Prepare  ▪Fresh Ginger (1 teaspoon grated)
 1. Make ready  ▪Garam Masala (1 teaspoons)
 1. Take  ▪Chillie Power or Crushed (1/2 teaspoon)

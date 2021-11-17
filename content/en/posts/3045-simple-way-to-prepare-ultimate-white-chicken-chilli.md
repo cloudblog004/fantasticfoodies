@@ -66,11 +66,11 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 1. Prepare 1 lb chicken breast; cubed
 1. Take 2 can cannellini beans; 1 can drained
 1. Take 1 can sweet corn; drained
-1. Make ready 2 can rotel; diced tomatoes &amp; green chillies
+1. Make ready 2 can rotel; diced tomatoes & green chillies
 1. Prepare 1 cup shredded cheese; mozzerella/provolone
 1. Make ready 1/4 onion; chopped
 1. Prepare 1/4 sour cream
-1. Make ready 2 tbsp Morton&#39;s &#34;Natures Seasons&#34; Seasoning Blend
+1. Make ready 2 tbsp Morton&#39;s *Natures Seasons* Seasoning Blend
 
 
 Healthy white chicken chili that&#39;s nice and creamy, yet there&#39;s no cream! Made with green chile, chicken, corn and blended chickpeas to make it thick and creamy. White chicken chili is easy to make — and even easier to customize. Make a super hearty batch in the colder months or a lighter version packed with produce in the summer. 

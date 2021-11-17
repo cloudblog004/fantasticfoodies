@@ -47,7 +47,7 @@ Hello everybody, it is John, welcome to my recipe page. Today, I'm gonna show yo
 
 Chicken boneless handi is one of the most well liked of recent trending meals in the world. It's appreciated by millions every day. It is simple, it's fast, it tastes yummy. Chicken boneless handi is something that I have loved my whole life. They're fine and they look wonderful.
 
-It Is Very Simple &amp; Tasty Recipe Of Chicken Boneless Handi By Jairy&#39;s Cook Book Please Don&#39;t Forget To SUBSCRIBE My Channel For More Yummy RecipesShort. Chicken boneless handi. boneless cicken cut in cubes•cup ghee/butter•salt•red chilli powder•tsp termeric powder•tspoon roasted crushed cumin•corriender powder•roasted crushed fengreek leaves. Chicken boneless handi is ready,serve with naan.
+It Is Very Simple & Tasty Recipe Of Chicken Boneless Handi By Jairy&#39;s Cook Book Please Don&#39;t Forget To SUBSCRIBE My Channel For More Yummy RecipesShort. Chicken boneless handi. boneless cicken cut in cubes•cup ghee/butter•salt•red chilli powder•tsp termeric powder•tspoon roasted crushed cumin•corriender powder•roasted crushed fengreek leaves. Chicken boneless handi is ready,serve with naan.
 
 
 To begin with this particular recipe, we have to first prepare a few ingredients. You can cook chicken boneless handi using 6 ingredients and 2 steps. Here is how you cook that.

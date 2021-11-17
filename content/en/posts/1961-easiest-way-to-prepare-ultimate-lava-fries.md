@@ -96,7 +96,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 1. Take 1 tsp Paprika powder
 1. Get 1/2 tsp Dried oregano
 1. Get  Chicken stuffing
-1. Get 1/2 kg Chicken boiled &amp; shreded
+1. Get 1/2 kg Chicken boiled & shreded
 1. Take 1/4 Cup Mayonnaise
 1. Take 1/4 cup Ketchup
 1. Make ready 1/2 tsp Red chilli powder

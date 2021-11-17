@@ -84,7 +84,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 1. Prepare 1 tbsp chilli sauce
 
 
-Macaroni Salad makes a terrific summertime lunch and is made for taking to gatherings. Simple to prepare and as diverse as you want it to be, this is a great classic pasta salad. For a healthier option, try this Macaroni pasta salad with a mayo-free Creamy Lemon Dressing or Ranch Dressing! From Italian maccaroni, obsolete variant of maccheroni (&#34;macaroni&#34;), plural of maccherone. 
+Macaroni Salad makes a terrific summertime lunch and is made for taking to gatherings. Simple to prepare and as diverse as you want it to be, this is a great classic pasta salad. For a healthier option, try this Macaroni pasta salad with a mayo-free Creamy Lemon Dressing or Ranch Dressing! From Italian maccaroni, obsolete variant of maccheroni (*macaroni*), plural of maccherone. 
 
 <!--inarticleads2-->
 
@@ -96,6 +96,6 @@ Macaroni Salad makes a terrific summertime lunch and is made for taking to gathe
 1. Now dishout and serve
 1. Ready to serve and ENJOY!
 
-For a healthier option, try this Macaroni pasta salad with a mayo-free Creamy Lemon Dressing or Ranch Dressing! From Italian maccaroni, obsolete variant of maccheroni (&#34;macaroni&#34;), plural of maccherone. This is of unknown origin, possibly from maccare (&#34;bruise, batter, crush&#34;), which itself is of unknown origin, or from late Ancient Greek μακαρία (makaría, &#34;food made from barley&#34;). Everybody loves macaroni and cheese: the classic and quintessential comfort food. Free for commercial use No attribution required High quality images. 
+For a healthier option, try this Macaroni pasta salad with a mayo-free Creamy Lemon Dressing or Ranch Dressing! From Italian maccaroni, obsolete variant of maccheroni (*macaroni*), plural of maccherone. This is of unknown origin, possibly from maccare (*bruise, batter, crush*), which itself is of unknown origin, or from late Ancient Greek μακαρία (makaría, *food made from barley*). Everybody loves macaroni and cheese: the classic and quintessential comfort food. Free for commercial use No attribution required High quality images. 
 
 So that's going to wrap this up for this special food macaroni recipe. Thanks so much for your time. I'm confident you will make this at home. There's gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

@@ -60,7 +60,7 @@ To begin with this particular recipe, we must prepare a few components. You can 
 
 ##### The ingredients needed to make Blackened Chicken:
 
-1. Take 4 pieces chicken (I used leg&amp;thigh)
+1. Take 4 pieces chicken (I used leg&thigh)
 1. Get as needed non-stick oil spray
 1. Take  Seasonings to taste:
 1. Make ready  Garlic powder

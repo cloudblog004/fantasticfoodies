@@ -70,7 +70,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 
 ##### The ingredients needed to make Oven-Baked Teriyaki Chicken:
 
-1. Make ready 12 boneless &amp; skinless chicken thighs
+1. Make ready 12 boneless & skinless chicken thighs
 1. Take  ~~ Marinade ~~
 1. Make ready 4 oz Korean BBQ sauce for chicken
 1. Get 1/2 tsp salt

@@ -58,7 +58,7 @@ Hello everybody, it is me, Dave, welcome to my recipe site. Today, I will show y
 
 Baked cordon Bleu with creamy chicken corn sauce is one of the most popular of recent trending foods on earth. It is easy, it's fast, it tastes delicious. It's enjoyed by millions daily. They're nice and they look wonderful. Baked cordon Bleu with creamy chicken corn sauce is something which I have loved my entire life.
 
-Try Chicken Corden Bleu recipe with cordon blue sauce to go with it. A delicious French classic, chicken cordon bleu is made of chicken breasts stuffed with ham and The chicken was dry despite correct cooking time. Perhaps a light sauce could have been served with it. He then suggested &#34;steak, lobster or chicken cordon bleu&#34; He knew I was NOT making steak or.
+Try Chicken Corden Bleu recipe with cordon blue sauce to go with it. A delicious French classic, chicken cordon bleu is made of chicken breasts stuffed with ham and The chicken was dry despite correct cooking time. Perhaps a light sauce could have been served with it. He then suggested *steak, lobster or chicken cordon bleu* He knew I was NOT making steak or.
 
 
 To begin with this recipe, we have to prepare a few components. You can cook baked cordon bleu with creamy chicken corn sauce using 13 ingredients and 6 steps. Here is how you can achieve that.

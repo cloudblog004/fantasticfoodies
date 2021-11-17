@@ -94,7 +94,7 @@ To begin with this recipe, we must prepare a few ingredients. You can cook littl
 1. Take 2 large tomatoes,cut into large chunks
 1. Prepare 1 large green zuchini, cut into big chunks
 1. Get 2 pablano peppers, chunked
-1. Prepare 5 medium potatoes,peeled &amp; large chunked
+1. Prepare 5 medium potatoes,peeled & large chunked
 1. Prepare 5 stalks of celery, sliced
 1. Get 1 lb fresh mushrooms, halved
 1. Prepare 2 large yellow bell peppers, chunked

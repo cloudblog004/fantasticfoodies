@@ -102,8 +102,8 @@ To begin with this recipe, we must first prepare a few ingredients. You can cook
 1. Get 1 tbsp minced garlic
 1. Make ready 1 tbsp minced ginger
 1. Get 6 dried red chilies cut into halves and seeds removed
-1. Make ready 1 red capsicum cut into 1&#34; cubes
-1. Take 1 green capsicum cut into 1&#34; cubes
+1. Make ready 1 red capsicum cut into 1* cubes
+1. Take 1 green capsicum cut into 1* cubes
 1. Prepare 3 tbsp fried peanuts for garnish
 1. Get 1 tbsp finely chopped green onions for garnish
 

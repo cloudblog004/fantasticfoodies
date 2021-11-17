@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Ultimate Bachelor&amp;#39;s Chicken (easy and tasty)"
-title: "Easiest Way to Make Ultimate Bachelor&amp;#39;s Chicken (easy and tasty)"
+description: "Easiest Way to Make Ultimate Bachelor's Chicken (easy and tasty)"
+title: "Easiest Way to Make Ultimate Bachelor's Chicken (easy and tasty)"
 slug: 264-easiest-way-to-make-ultimate-bachelor-and-39-s-chicken-easy-and-tasty
 date: 2021-11-24T15:23:55.747Z
 image: https://img-global.cpcdn.com/recipes/6585466422820864/680x482cq70/bachelors-chicken-easy-and-tasty-recipe-main-photo.jpg

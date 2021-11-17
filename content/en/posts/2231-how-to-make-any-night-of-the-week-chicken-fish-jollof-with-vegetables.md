@@ -77,7 +77,7 @@ To get started with this particular recipe, we have to prepare a few ingredients
 1. Get  Little salt
 
 
-Meanwhile place fish on a foil lined baking tray and place under the oven grill for a few minutes or until just cooked. Thieboudienne: Senegalese Jollof Rice and Fish. Vegetable Jollof rice is a vegan version of the famous Jollof rice from Africa. A delicious one pot rice dish made with tomatoes, peppers, veggies &amp; herbs. 
+Meanwhile place fish on a foil lined baking tray and place under the oven grill for a few minutes or until just cooked. Thieboudienne: Senegalese Jollof Rice and Fish. Vegetable Jollof rice is a vegan version of the famous Jollof rice from Africa. A delicious one pot rice dish made with tomatoes, peppers, veggies & herbs. 
 
 <!--inarticleads2-->
 
@@ -96,6 +96,6 @@ Meanwhile place fish on a foil lined baking tray and place under the oven grill 
 1. Garnish your jollof rice with chicken, fish and vegetables
 1. Ready to serve and ENJOY!
 
-Vegetable Jollof rice is a vegan version of the famous Jollof rice from Africa. A delicious one pot rice dish made with tomatoes, peppers, veggies &amp; herbs. Every West African country has at least one variation of Jollof rice, and it both divides and unites the region. With its seductive aroma, deep-red colour and spicy flavour, Jollof rice is the undisputed queen of West African kitchens. It&#39;s our beloved culinary treasure and a dish from our very heart and. 
+Vegetable Jollof rice is a vegan version of the famous Jollof rice from Africa. A delicious one pot rice dish made with tomatoes, peppers, veggies & herbs. Every West African country has at least one variation of Jollof rice, and it both divides and unites the region. With its seductive aroma, deep-red colour and spicy flavour, Jollof rice is the undisputed queen of West African kitchens. It&#39;s our beloved culinary treasure and a dish from our very heart and. 
 
 So that is going to wrap it up for this exceptional food chicken/fish jollof with vegetables recipe. Thank you very much for reading. I am confident you can make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

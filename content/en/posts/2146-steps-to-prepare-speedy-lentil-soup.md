@@ -27,10 +27,10 @@ recipeingredient:
 - "50 grams rice"
 - "50 ml sherry"
 recipeinstructions:
-- "place lentils with stock or water, bay leaves &amp; parsley in sauspan."
+- "place lentils with stock or water, bay leaves & parsley in sauspan."
 - "Fry onion in frying pan for 5 min"
-- "Add garlic, carrot, tomato &amp;red pepper. fry for 5 min. season with salt, paprica, cumin."
-- "add mixture &amp; rice to soup. simmer for 45 min, add sherry &amp; serve"
+- "Add garlic, carrot, tomato &red pepper. fry for 5 min. season with salt, paprica, cumin."
+- "add mixture & rice to soup. simmer for 45 min, add sherry & serve"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -85,10 +85,10 @@ To begin with this recipe, we must first prepare a few components. You can have 
 
 ##### Instructions to make Lentil Soup:
 
-1. place lentils with stock or water, bay leaves &amp; parsley in sauspan.
+1. place lentils with stock or water, bay leaves & parsley in sauspan.
 1. Fry onion in frying pan for 5 min
-1. Add garlic, carrot, tomato &amp;red pepper. fry for 5 min. season with salt, paprica, cumin.
-1. add mixture &amp; rice to soup. simmer for 45 min, add sherry &amp; serve
+1. Add garlic, carrot, tomato &red pepper. fry for 5 min. season with salt, paprica, cumin.
+1. add mixture & rice to soup. simmer for 45 min, add sherry & serve
 1. Ready to serve and ENJOY!
 
 

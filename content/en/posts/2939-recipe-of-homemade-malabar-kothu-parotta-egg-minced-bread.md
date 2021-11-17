@@ -69,7 +69,7 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 
 1. Make ready 2-3 medium sized malabar parotta (I used sumeru frozen parotta)
 1. Take 1 cup chopped onions (purple or white)
-1. Get 1 /2 cup chicken curry gravy (Please check out my recipe for &#34;Kerala Style Spicy Chicken Curry&#34;
+1. Get 1 /2 cup chicken curry gravy (Please check out my recipe for *Kerala Style Spicy Chicken Curry*
 1. Prepare 1 tsp minced ginger
 1. Get 1/2 tsp minced garlic
 1. Take 2 large eggs

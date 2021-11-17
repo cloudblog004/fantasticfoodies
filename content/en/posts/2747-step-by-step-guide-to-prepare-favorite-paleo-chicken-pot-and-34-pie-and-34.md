@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Prepare Favorite Paleo Chicken Pot &amp;#34;pie&amp;#34;"
-title: "Step-by-Step Guide to Prepare Favorite Paleo Chicken Pot &amp;#34;pie&amp;#34;"
+description: "Step-by-Step Guide to Prepare Favorite Paleo Chicken Pot *pie*"
+title: "Step-by-Step Guide to Prepare Favorite Paleo Chicken Pot *pie*"
 slug: 2747-step-by-step-guide-to-prepare-favorite-paleo-chicken-pot-and-34-pie-and-34
 date: 2022-03-29T18:31:33.337Z
 image: https://img-global.cpcdn.com/recipes/cd2c33375fccbe97/680x482cq70/paleo-chicken-pot-pie-recipe-main-photo.jpg
@@ -43,34 +43,34 @@ recipecategory: Dinner
 ---
 
 
-![Paleo Chicken Pot &#34;pie&#34;](https://img-global.cpcdn.com/recipes/cd2c33375fccbe97/680x482cq70/paleo-chicken-pot-pie-recipe-main-photo.jpg)
+![Paleo Chicken Pot *pie*](https://img-global.cpcdn.com/recipes/cd2c33375fccbe97/680x482cq70/paleo-chicken-pot-pie-recipe-main-photo.jpg)
 
-Hey everyone, it is me again, Dan, welcome to my recipe site. Today, we're going to prepare a special dish, paleo chicken pot &#34;pie&#34;. One of my favorites food recipes. For mine, I will make it a little bit unique. This will be really delicious.
+Hey everyone, it is me again, Dan, welcome to my recipe site. Today, we're going to prepare a special dish, paleo chicken pot *pie*. One of my favorites food recipes. For mine, I will make it a little bit unique. This will be really delicious.
 
-Paleo Chicken Pot &#34;pie&#34; is one of the most well liked of recent trending foods on earth. It is easy, it's quick, it tastes yummy. It's appreciated by millions every day. Paleo Chicken Pot &#34;pie&#34; is something which I've loved my entire life. They are nice and they look wonderful.
-
-
+Paleo Chicken Pot *pie* is one of the most well liked of recent trending foods on earth. It is easy, it's quick, it tastes yummy. It's appreciated by millions every day. Paleo Chicken Pot *pie* is something which I've loved my entire life. They are nice and they look wonderful.
 
 
-To begin with this recipe, we have to first prepare a few components. You can cook paleo chicken pot &#34;pie&#34; using 6 ingredients and 4 steps. Here is how you can achieve that.
+
+
+To begin with this recipe, we have to first prepare a few components. You can cook paleo chicken pot *pie* using 6 ingredients and 4 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Paleo Chicken Pot &#34;pie&#34;:
+##### The ingredients needed to make Paleo Chicken Pot *pie*:
 
 1. Make ready 2 large chicken breasts, diced
 1. Get 4 russet potatoes, diced
 1. Make ready 4 large carrots, diced
 1. Get 1 large onion, diced
 1. Prepare 1 clove garlic, minced
-1. Prepare  Salt &amp; pepper
+1. Prepare  Salt & pepper
 
 
 
 
 <!--inarticleads2-->
 
-##### Steps to make Paleo Chicken Pot &#34;pie&#34;:
+##### Steps to make Paleo Chicken Pot *pie*:
 
 1. Dice everything small, even the chicken, so it cooks quicker
 1. All in the Crock-Pot
@@ -80,4 +80,4 @@ To begin with this recipe, we have to first prepare a few components. You can co
 
 
 
-So that is going to wrap this up with this special food paleo chicken pot &#34;pie&#34; recipe. Thanks so much for reading. I am confident you will make this at home. There is gonna be interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
+So that is going to wrap this up with this special food paleo chicken pot *pie* recipe. Thanks so much for reading. I am confident you will make this at home. There is gonna be interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

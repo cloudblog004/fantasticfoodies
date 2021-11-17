@@ -28,7 +28,7 @@ recipeingredient:
 recipeinstructions:
 - "Prepare stuffing.. Wet 2 slices of bread in water till moist scrunch into bowl pre heat oven 200 degrees"
 - "Add choped chive, shallotts, parsley most the diced chilli (keep some chilli for top. Mix thru"
-- "Add juice of have lime in bread mix. Add a Tbls of the oil and Tbls sauce salt&amp;pepper mix well"
+- "Add juice of have lime in bread mix. Add a Tbls of the oil and Tbls sauce salt&pepper mix well"
 - "Roll a handful of bread mix an put onto chicken thigh roll up wrap bacon around put tooth pick to hold"
 - "Roll in egg wash then flour. Place in baking tray with the capsicum. brush with chilli oil. Cook for 25 min then glace (glace is tomatoe chilli sauce with squeeze of lime juice mixed)with sauce mix put back in oven for 30 min"
 - "Take out slice capsicum into 1cm strips place on top an squeeze a little lime on top an serve with veg or rice"
@@ -76,7 +76,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Make ready 3-4 fresh lime basil leaves
 1. Prepare 2 shallots sticks
 1. Prepare 1 cup plain flour add onion salt to own taste
-1. Take 2 eggs &amp;milk mix
+1. Take 2 eggs &milk mix
 1. Make ready 2 rashes of bacon
 
 
@@ -88,7 +88,7 @@ Find recipes for baked, grilled, or even slow cooked chicken thighs, perfect for
 
 1. Prepare stuffing.. Wet 2 slices of bread in water till moist scrunch into bowl pre heat oven 200 degrees
 1. Add choped chive, shallotts, parsley most the diced chilli (keep some chilli for top. Mix thru
-1. Add juice of have lime in bread mix. Add a Tbls of the oil and Tbls sauce salt&amp;pepper mix well
+1. Add juice of have lime in bread mix. Add a Tbls of the oil and Tbls sauce salt&pepper mix well
 1. Roll a handful of bread mix an put onto chicken thigh roll up wrap bacon around put tooth pick to hold
 1. Roll in egg wash then flour. Place in baking tray with the capsicum. brush with chilli oil. Cook for 25 min then glace (glace is tomatoe chilli sauce with squeeze of lime juice mixed)with sauce mix put back in oven for 30 min
 1. Take out slice capsicum into 1cm strips place on top an squeeze a little lime on top an serve with veg or rice

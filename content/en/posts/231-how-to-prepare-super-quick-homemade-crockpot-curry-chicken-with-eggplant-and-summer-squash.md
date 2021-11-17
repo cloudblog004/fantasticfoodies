@@ -81,7 +81,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can have cr
 1. Prepare 1 Juice 1/2 lemon
 
 
-This Crockpot Thai Chicken Curry is healthy, tasty, &amp; only takes one dish &amp; five minutes to put together! But I&#39;m here to tell you that you can. Do you wanna know something else? We only use ONE pot in this crockpot Thai chicken curry, because we whisk together our peanut-ty, red curry. 
+This Crockpot Thai Chicken Curry is healthy, tasty, & only takes one dish & five minutes to put together! But I&#39;m here to tell you that you can. Do you wanna know something else? We only use ONE pot in this crockpot Thai chicken curry, because we whisk together our peanut-ty, red curry. 
 
 <!--inarticleads2-->
 

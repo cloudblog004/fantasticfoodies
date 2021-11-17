@@ -27,7 +27,7 @@ recipeinstructions:
 - "Bake uncovered @ 400°F for 20 min."
 - "Pour 1c sauce over chicken ,top with cheese,then tomato."
 - "Bake 10 min. or until chicken done."
-- "serve with sauce &amp; cooked pasta of your choice ,heated"
+- "serve with sauce & cooked pasta of your choice ,heated"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -83,7 +83,7 @@ To begin with this particular recipe, we have to first prepare a few components.
 1. Bake uncovered @ 400°F for 20 min.
 1. Pour 1c sauce over chicken ,top with cheese,then tomato.
 1. Bake 10 min. or until chicken done.
-1. serve with sauce &amp; cooked pasta of your choice ,heated
+1. serve with sauce & cooked pasta of your choice ,heated
 1. Ready to serve and ENJOY!
 
 

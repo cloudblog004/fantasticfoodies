@@ -71,7 +71,7 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 1. Get 1 1/2 t fresh thyme
 1. Get 1 pinch sugar
 1. Prepare 2 cloves garlic; smashed
-1. Take 1 large pinch kosher salt &amp; black pepper
+1. Take 1 large pinch kosher salt & black pepper
 
 
 

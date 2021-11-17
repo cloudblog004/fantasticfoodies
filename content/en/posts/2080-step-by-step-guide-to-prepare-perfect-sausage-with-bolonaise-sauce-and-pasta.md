@@ -114,6 +114,6 @@ It is customarily used to dress tagliatelle al ragù and to prepare lasagne alla
 1. add cheese if required and serve
 1. Ready to serve and ENJOY!
 
-This one is kind of like an unstructured lasagna. Add the bolognese sauce and stir to combine. Spoon tablespoons of the ricotta mixture over. Bolognese Sauce (Ragù alla Bolognese) is a meat pasta sauce that usually seasones fresh pasta or polenta. The Italian word &#34;ragù&#34; comes from the French &#34;ragôuter&#34; which can be translated as &#34;awaken the appetite&#34;. 
+This one is kind of like an unstructured lasagna. Add the bolognese sauce and stir to combine. Spoon tablespoons of the ricotta mixture over. Bolognese Sauce (Ragù alla Bolognese) is a meat pasta sauce that usually seasones fresh pasta or polenta. The Italian word *ragù* comes from the French *ragôuter* which can be translated as *awaken the appetite*. 
 
 So that is going to wrap it up for this special food sausage with bolonaise sauce and pasta recipe. Thanks so much for your time. I'm sure that you will make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

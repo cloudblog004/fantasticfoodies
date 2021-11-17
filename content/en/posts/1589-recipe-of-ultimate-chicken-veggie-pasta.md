@@ -84,6 +84,6 @@ Veggie, and Pasta Skillet is an easy one-pot comfort food recipe using leftover 
 1. Cook to desired tenderness and serve over pasta of your choice
 1. Ready to serve and ENJOY!
 
-It has so much fresh flavor, it&#39;s a great way to use up those vegetables in the fridge. You can serve this delicious pesto chicken and veggies with pasta or rice or eat it with a fork like I do. It&#39;s great if you&#39;re on a low-carb, paleo or keto diet because it&#39;s packed full of nutrition and very low in. Pasta with Chicken, Tomatoes and Calabrian Chilies. A Healthy Chicken &amp; Veggie Pasta is what you need for a nutritious and delicious dinner for the whole family! 
+It has so much fresh flavor, it&#39;s a great way to use up those vegetables in the fridge. You can serve this delicious pesto chicken and veggies with pasta or rice or eat it with a fork like I do. It&#39;s great if you&#39;re on a low-carb, paleo or keto diet because it&#39;s packed full of nutrition and very low in. Pasta with Chicken, Tomatoes and Calabrian Chilies. A Healthy Chicken & Veggie Pasta is what you need for a nutritious and delicious dinner for the whole family! 
 
 So that's going to wrap this up with this exceptional food chicken veggie pasta recipe. Thank you very much for reading. I'm confident that you will make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

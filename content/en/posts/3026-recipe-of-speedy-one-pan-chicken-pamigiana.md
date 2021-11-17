@@ -61,7 +61,7 @@ Hey everyone, it's Louise, welcome to our recipe page. Today, I'm gonna show you
 
 one pan chicken pamigiana is one of the most favored of current trending meals on earth. It's appreciated by millions every day. It is simple, it's quick, it tastes delicious. one pan chicken pamigiana is something which I have loved my whole life. They're fine and they look wonderful.
 
-Mix breadcrumbs and cornmeal (cornmeal adds a nice texture) and press chicken in crumbs, evenly coating both sides. Tip: To make your chicken cutlets, arrange halved skinless, boneless chicken breasts between plastic wrap and pound to ¼-inch thickness with a mallet, bottom of a small. Chicken Parmigiana (or Chicken Parmesan) - the great pub favourite has finally landed! Pollo alla parmigiana in Italian, but affectionately referred by Aussies as Parma, Parmi or &#34;a schnitty with tomato sauce and cheese&#34;, you&#39;ll love this homemade recipe with extra crispy schnitzel.
+Mix breadcrumbs and cornmeal (cornmeal adds a nice texture) and press chicken in crumbs, evenly coating both sides. Tip: To make your chicken cutlets, arrange halved skinless, boneless chicken breasts between plastic wrap and pound to ¼-inch thickness with a mallet, bottom of a small. Chicken Parmigiana (or Chicken Parmesan) - the great pub favourite has finally landed! Pollo alla parmigiana in Italian, but affectionately referred by Aussies as Parma, Parmi or *a schnitty with tomato sauce and cheese*, you&#39;ll love this homemade recipe with extra crispy schnitzel.
 
 
 To begin with this recipe, we have to prepare a few ingredients. You can cook one pan chicken pamigiana using 14 ingredients and 8 steps. Here is how you can achieve that.

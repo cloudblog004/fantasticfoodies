@@ -64,7 +64,7 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 ##### The ingredients needed to make Woven Chicken Bread:
 
 1. Take  Pizza dough (Any recipe or from my pizza recipe)
-1. Prepare  Tomatoe sauce (Check my chicken &amp; sausage pizza recipe)
+1. Prepare  Tomatoe sauce (Check my chicken & sausage pizza recipe)
 1. Make ready  Chicken breast (Cooked and shredded)
 1. Get  Bechamél sauce
 1. Make ready  Shredded Mozarella cheese

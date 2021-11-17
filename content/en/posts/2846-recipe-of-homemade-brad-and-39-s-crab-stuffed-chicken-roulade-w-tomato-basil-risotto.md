@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Homemade Brad&amp;#39;s crab stuffed chicken roulade w/ tomato basil risotto"
-title: "Recipe of Homemade Brad&amp;#39;s crab stuffed chicken roulade w/ tomato basil risotto"
+description: "Recipe of Homemade Brad's crab stuffed chicken roulade w/ tomato basil risotto"
+title: "Recipe of Homemade Brad's crab stuffed chicken roulade w/ tomato basil risotto"
 slug: 2846-recipe-of-homemade-brad-and-39-s-crab-stuffed-chicken-roulade-w-tomato-basil-risotto
 date: 2022-03-25T23:57:03.592Z
 image: https://img-global.cpcdn.com/recipes/7032739114842081/680x482cq70/brads-crab-stuffed-chicken-roulade-w-tomato-basil-risotto-recipe-main-photo.jpg

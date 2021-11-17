@@ -33,7 +33,7 @@ recipeingredient:
 recipeinstructions:
 - "Take a Handi or a Pan heat 1/2 cup ghee add onion paste fry until golden in colour then add ginger garlic paste cook on high flame until cooked nicely."
 - "Then add all spices except garam masala, add kasuri methi add little water at a time and fry until cooked then add tomatoe puree mix nd cook for 1 mint until Masala ready."
-- "Now add chicken cubes nd fry until colour changed. Then add Yougart mix nicely add 1/2 cup water cover nd cook until chicken tender completely. After cook then add 1/2 packet of fresh cream mix nicely, add green chillis, ginger, coriander leaves, garam masala mix it cover &amp; give dum for 2 to 3 minutes on low flame. Chicken Boneless Handi is ready serve hot."
+- "Now add chicken cubes nd fry until colour changed. Then add Yougart mix nicely add 1/2 cup water cover nd cook until chicken tender completely. After cook then add 1/2 packet of fresh cream mix nicely, add green chillis, ginger, coriander leaves, garam masala mix it cover & give dum for 2 to 3 minutes on low flame. Chicken Boneless Handi is ready serve hot."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -71,7 +71,7 @@ To get started with this particular recipe, we must first prepare a few componen
 1. Take  Boneless chicken cubes 1/2 kg
 1. Prepare  Tomatoe 2 puree
 1. Prepare 2 medium onion smooth paste
-1. Make ready  Garlic Cloves 5 &amp; 1/2 inch ginger make a smooth paste
+1. Make ready  Garlic Cloves 5 & 1/2 inch ginger make a smooth paste
 1. Prepare 3 Tbsp Red chilli powder
 1. Take 1/2 tsp Turmeric
 1. Get 1 tsp Dry Roasted cumin powder
@@ -95,7 +95,7 @@ To get started with this particular recipe, we must first prepare a few componen
 
 1. Take a Handi or a Pan heat 1/2 cup ghee add onion paste fry until golden in colour then add ginger garlic paste cook on high flame until cooked nicely.
 1. Then add all spices except garam masala, add kasuri methi add little water at a time and fry until cooked then add tomatoe puree mix nd cook for 1 mint until Masala ready.
-1. Now add chicken cubes nd fry until colour changed. Then add Yougart mix nicely add 1/2 cup water cover nd cook until chicken tender completely. After cook then add 1/2 packet of fresh cream mix nicely, add green chillis, ginger, coriander leaves, garam masala mix it cover &amp; give dum for 2 to 3 minutes on low flame. Chicken Boneless Handi is ready serve hot.
+1. Now add chicken cubes nd fry until colour changed. Then add Yougart mix nicely add 1/2 cup water cover nd cook until chicken tender completely. After cook then add 1/2 packet of fresh cream mix nicely, add green chillis, ginger, coriander leaves, garam masala mix it cover & give dum for 2 to 3 minutes on low flame. Chicken Boneless Handi is ready serve hot.
 1. Ready to serve and ENJOY!
 
 

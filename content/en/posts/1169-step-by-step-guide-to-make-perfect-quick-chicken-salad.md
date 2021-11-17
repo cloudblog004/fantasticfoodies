@@ -24,7 +24,7 @@ recipeingredient:
 - "1 season all or local spice blend to taste im in new orleans i used tony chacheres Lawrys is pretty good"
 - "1 paprika or cayenne pepper for garnish"
 recipeinstructions:
-- "Shred pre-cooked chicken add to bowl. Combine all remaining ingredients and mix until well blended. Garnish by slicing 2 reserved eggs lengthwise and layer over the top. Sprinkle w/ green onions, &amp; cayenne/paprika. Refrigerate 1 hour or until chilled. Serve w/ crackers, tortillas, or on sub roll. Enjoy!"
+- "Shred pre-cooked chicken add to bowl. Combine all remaining ingredients and mix until well blended. Garnish by slicing 2 reserved eggs lengthwise and layer over the top. Sprinkle w/ green onions, & cayenne/paprika. Refrigerate 1 hour or until chilled. Serve w/ crackers, tortillas, or on sub roll. Enjoy!"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -48,7 +48,7 @@ recipecategory: Lunch
 
 Hey everyone, I hope you're having an incredible day today. Today, I will show you a way to prepare a special dish, quick chicken salad. One of my favorites. For mine, I will make it a little bit unique. This will be really delicious.
 
-If you&#39;ve got the time, or are wanting to impress with an entirely &#34;from scratch&#34; main course size salad, I&#39;d point you in the direction of one of these This chicken salad comes together fast using rotisserie chicken breasts. The herbs, along with The chicken salad is quick and easy. If you want a little &#39;zip&#39;, add a few drops of hot sauce to the mixture! Chicken salad is a quick and nutritious meal.
+If you&#39;ve got the time, or are wanting to impress with an entirely *from scratch* main course size salad, I&#39;d point you in the direction of one of these This chicken salad comes together fast using rotisserie chicken breasts. The herbs, along with The chicken salad is quick and easy. If you want a little &#39;zip&#39;, add a few drops of hot sauce to the mixture! Chicken salad is a quick and nutritious meal.
 
 Quick Chicken Salad is one of the most favored of current trending meals in the world. It is appreciated by millions every day. It is simple, it is fast, it tastes delicious. Quick Chicken Salad is something which I have loved my whole life. They are nice and they look fantastic.
 
@@ -77,7 +77,7 @@ Easy Chicken Salad Recipe - Cool and refreshing chicken salad to prepare at home
 
 ##### Instructions to make Quick Chicken Salad:
 
-1. Shred pre-cooked chicken add to bowl. Combine all remaining ingredients and mix until well blended. Garnish by slicing 2 reserved eggs lengthwise and layer over the top. Sprinkle w/ green onions, &amp; cayenne/paprika. Refrigerate 1 hour or until chilled. Serve w/ crackers, tortillas, or on sub roll. Enjoy!
+1. Shred pre-cooked chicken add to bowl. Combine all remaining ingredients and mix until well blended. Garnish by slicing 2 reserved eggs lengthwise and layer over the top. Sprinkle w/ green onions, & cayenne/paprika. Refrigerate 1 hour or until chilled. Serve w/ crackers, tortillas, or on sub roll. Enjoy!
 1. Ready to serve and ENJOY!
 
 While there, I helped my mom whip up a quick chicken salad one day for lunch. Jazz up leftover chicken or just satisfy a craving for chicken salad with one of these seven takes on the lunchtime staple. This Quick Mexican Chicken Salad comes together so fast, which makes it great for an easy lunch or even mid-afternoon snack. It&#39;s high in protein and packed with veggies (which of course means it&#39;s. Chicken salad is an easy and delicious. 

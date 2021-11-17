@@ -33,8 +33,8 @@ recipeingredient:
 - " tomato sauce"
 - " dry oregano"
 recipeinstructions:
-- "Heat oil in pan, put onions &amp; cook till soft. Then put garlic &amp; cook until slightly golden."
-- "Add other ingredients of Group#1 except butter. Cook for 2-3 min. Then add butter &amp; saute for 2-3 min more. Keep aside when done."
+- "Heat oil in pan, put onions & cook till soft. Then put garlic & cook until slightly golden."
+- "Add other ingredients of Group#1 except butter. Cook for 2-3 min. Then add butter & saute for 2-3 min more. Keep aside when done."
 - "Take one pre backed pizza base ( I always find in superstores) on microwave safe plate,make layers one by one -1#spread tomato sauce,2#cheese, 3#sausage mix, 4#tomato sauce,5#cheese. Finish with sprinkle of dry oregano."
 - "Cover with a lid and microwave on 70% power for 2min 30sec. Serve hot. Enjoy."
 - "You can refrigerate the mix and can use in making pasta. Also mini pizzas can be made by using bread slices."
@@ -99,8 +99,8 @@ To get started with this recipe, we must prepare a few ingredients. You can have
 
 ##### Steps to make Microwave Multi sausages Pizza:
 
-1. Heat oil in pan, put onions &amp; cook till soft. Then put garlic &amp; cook until slightly golden.
-1. Add other ingredients of Group#1 except butter. Cook for 2-3 min. Then add butter &amp; saute for 2-3 min more. Keep aside when done.
+1. Heat oil in pan, put onions & cook till soft. Then put garlic & cook until slightly golden.
+1. Add other ingredients of Group#1 except butter. Cook for 2-3 min. Then add butter & saute for 2-3 min more. Keep aside when done.
 1. Take one pre backed pizza base ( I always find in superstores) on microwave safe plate,make layers one by one -1#spread tomato sauce,2#cheese, 3#sausage mix, 4#tomato sauce,5#cheese. Finish with sprinkle of dry oregano.
 1. Cover with a lid and microwave on 70% power for 2min 30sec. Serve hot. Enjoy.
 1. You can refrigerate the mix and can use in making pasta. Also mini pizzas can be made by using bread slices.

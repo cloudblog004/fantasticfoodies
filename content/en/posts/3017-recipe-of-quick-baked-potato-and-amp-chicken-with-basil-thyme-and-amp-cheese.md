@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Quick Baked Potato &amp;amp; Chicken with Basil, Thyme &amp;amp; Cheese"
-title: "Recipe of Quick Baked Potato &amp;amp; Chicken with Basil, Thyme &amp;amp; Cheese"
+description: "Recipe of Quick Baked Potato & Chicken with Basil, Thyme & Cheese"
+title: "Recipe of Quick Baked Potato & Chicken with Basil, Thyme & Cheese"
 slug: 3017-recipe-of-quick-baked-potato-and-amp-chicken-with-basil-thyme-and-amp-cheese
 date: 2021-11-29T11:30:53.739Z
 image: https://img-global.cpcdn.com/recipes/4817119305793536/680x482cq70/baked-potato-chicken-with-basil-thyme-cheese-recipe-main-photo.jpg
@@ -57,20 +57,20 @@ recipecategory: Lunch
 ---
 
 
-![Baked Potato &amp; Chicken with Basil, Thyme &amp; Cheese](https://img-global.cpcdn.com/recipes/4817119305793536/680x482cq70/baked-potato-chicken-with-basil-thyme-cheese-recipe-main-photo.jpg)
+![Baked Potato & Chicken with Basil, Thyme & Cheese](https://img-global.cpcdn.com/recipes/4817119305793536/680x482cq70/baked-potato-chicken-with-basil-thyme-cheese-recipe-main-photo.jpg)
 
-Hello everybody, it is me again, Dan, welcome to our recipe page. Today, I will show you a way to make a distinctive dish, baked potato &amp; chicken with basil, thyme &amp; cheese. It is one of my favorites food recipes. This time, I am going to make it a bit unique. This is gonna smell and look delicious.
+Hello everybody, it is me again, Dan, welcome to our recipe page. Today, I will show you a way to make a distinctive dish, baked potato & chicken with basil, thyme & cheese. It is one of my favorites food recipes. This time, I am going to make it a bit unique. This is gonna smell and look delicious.
 
-Baked Potato &amp; Chicken with Basil, Thyme &amp; Cheese is one of the most well liked of current trending foods in the world. It's easy, it's quick, it tastes delicious. It is appreciated by millions every day. Baked Potato &amp; Chicken with Basil, Thyme &amp; Cheese is something that I have loved my entire life. They're nice and they look wonderful.
-
-
+Baked Potato & Chicken with Basil, Thyme & Cheese is one of the most well liked of current trending foods in the world. It's easy, it's quick, it tastes delicious. It is appreciated by millions every day. Baked Potato & Chicken with Basil, Thyme & Cheese is something that I have loved my entire life. They're nice and they look wonderful.
 
 
-To begin with this recipe, we have to first prepare a few components. You can cook baked potato &amp; chicken with basil, thyme &amp; cheese using 16 ingredients and 8 steps. Here is how you cook it.
+
+
+To begin with this recipe, we have to first prepare a few components. You can cook baked potato & chicken with basil, thyme & cheese using 16 ingredients and 8 steps. Here is how you cook it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Baked Potato &amp; Chicken with Basil, Thyme &amp; Cheese:
+##### The ingredients needed to make Baked Potato & Chicken with Basil, Thyme & Cheese:
 
 1. Make ready 3 tbsp olive oil, extra virgin
 1. Get 3 tsp ground black pepper
@@ -94,7 +94,7 @@ To begin with this recipe, we have to first prepare a few components. You can co
 
 <!--inarticleads2-->
 
-##### Steps to make Baked Potato &amp; Chicken with Basil, Thyme &amp; Cheese:
+##### Steps to make Baked Potato & Chicken with Basil, Thyme & Cheese:
 
 1. Cube chicken and potato
 1. Mix all items except cheese and spring onion in large bowl as sauce
@@ -108,4 +108,4 @@ To begin with this recipe, we have to first prepare a few components. You can co
 
 
 
-So that is going to wrap this up for this exceptional food baked potato &amp; chicken with basil, thyme &amp; cheese recipe. Thanks so much for reading. I am sure you will make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
+So that is going to wrap this up for this exceptional food baked potato & chicken with basil, thyme & cheese recipe. Thanks so much for reading. I am sure you will make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

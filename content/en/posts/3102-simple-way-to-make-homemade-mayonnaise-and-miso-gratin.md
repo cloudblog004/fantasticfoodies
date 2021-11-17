@@ -30,7 +30,7 @@ recipeinstructions:
 - "Combine the ☆ ingredients to make the mayo-miso sauce."
 - "Place the cooked chicken and the leek into a gratin dish. Pour the mayo-miso sauce on top."
 - "Top with cheese and sprinkle with panko. Bake in the oven for 8 minutes until browned."
-- "&#34;Japanese Mochi Rice Cake Gratin&#34;.  https://cookpad.com/us/recipes/150398-japanese-mochi-rice-cake-gratin           (see recipe)"
+- "*Japanese Mochi Rice Cake Gratin*.  https://cookpad.com/us/recipes/150398-japanese-mochi-rice-cake-gratin           (see recipe)"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -89,7 +89,7 @@ To get started with this recipe, we have to prepare a few ingredients. You can c
 1. Combine the ☆ ingredients to make the mayo-miso sauce.
 1. Place the cooked chicken and the leek into a gratin dish. Pour the mayo-miso sauce on top.
 1. Top with cheese and sprinkle with panko. Bake in the oven for 8 minutes until browned.
-1. &#34;Japanese Mochi Rice Cake Gratin&#34;.  https://cookpad.com/us/recipes/150398-japanese-mochi-rice-cake-gratin           (see recipe)
+1. *Japanese Mochi Rice Cake Gratin*.  https://cookpad.com/us/recipes/150398-japanese-mochi-rice-cake-gratin           (see recipe)
 1. Ready to serve and ENJOY!
 
 

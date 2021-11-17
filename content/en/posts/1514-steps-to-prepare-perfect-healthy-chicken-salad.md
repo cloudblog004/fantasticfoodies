@@ -98,6 +98,6 @@ Rustle up this healthy and filling coronation chicken salad for a packed lunch i
 1. Now in a plate place asparagus,cherry tomato,broccoli,baby corn one side.and one side put lettuce and mix salad.on the top of salad place soute chicken.now healthy salad is ready.enjoy...
 1. Ready to serve and ENJOY!
 
-See more ideas about healthy, cooking recipes, healthy recipes. Use store-bought rotisserie chicken to save even more time on busy weekdays. It&#39;s relatively cheap &amp; easy to make, fills me up and appears on the surface to be healthy, but is it really healthy? I love chicken salad so it&#39;s something I&#39;ll have no problem eating a few times a week too. To create a healthy chicken salad, you must start with shredded chicken breast meat. 
+See more ideas about healthy, cooking recipes, healthy recipes. Use store-bought rotisserie chicken to save even more time on busy weekdays. It&#39;s relatively cheap & easy to make, fills me up and appears on the surface to be healthy, but is it really healthy? I love chicken salad so it&#39;s something I&#39;ll have no problem eating a few times a week too. To create a healthy chicken salad, you must start with shredded chicken breast meat. 
 
 So that's going to wrap it up with this exceptional food healthy chicken salad recipe. Thanks so much for your time. I'm confident you can make this at home. There's gonna be interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

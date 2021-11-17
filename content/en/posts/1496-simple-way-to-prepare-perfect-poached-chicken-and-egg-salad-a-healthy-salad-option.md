@@ -35,7 +35,7 @@ recipeingredient:
 recipeinstructions:
 - "Poach or boil the chicken breast with 2 cups water, salt, pepper and garlic.cover and cook for half an hour."
 - "After that on a grill pan put butter and grill the poached / boiled chicken breast. Dry roast the nuts and seeds for few minutes."
-- "Put the lettuce, pomegranate, strawberry on the plate, sprinkle salt, lemon juice, drizzle little olive oil.now place the grilled chicken breast and the boiled eggs.garnish and top with roasted nuts and seeds &amp; lemon slices (optional)"
+- "Put the lettuce, pomegranate, strawberry on the plate, sprinkle salt, lemon juice, drizzle little olive oil.now place the grilled chicken breast and the boiled eggs.garnish and top with roasted nuts and seeds & lemon slices (optional)"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -99,7 +99,7 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 
 1. Poach or boil the chicken breast with 2 cups water, salt, pepper and garlic.cover and cook for half an hour.
 1. After that on a grill pan put butter and grill the poached / boiled chicken breast. Dry roast the nuts and seeds for few minutes.
-1. Put the lettuce, pomegranate, strawberry on the plate, sprinkle salt, lemon juice, drizzle little olive oil.now place the grilled chicken breast and the boiled eggs.garnish and top with roasted nuts and seeds &amp; lemon slices (optional)
+1. Put the lettuce, pomegranate, strawberry on the plate, sprinkle salt, lemon juice, drizzle little olive oil.now place the grilled chicken breast and the boiled eggs.garnish and top with roasted nuts and seeds & lemon slices (optional)
 1. Ready to serve and ENJOY!
 
 

@@ -109,8 +109,8 @@ To get started with this recipe, we have to prepare a few components. You can co
 1. Prepare 1 teaspoon mint
 1. Prepare 1/2 teaspoon chives (optional)
 1. Make ready  Optional: 1 low-sodium, organic vegetable stock cube
-1. Prepare  to taste salt &amp; pepper
-1. Take  Olive oil or Ghee (to saute onions, garlic &amp; leak)
+1. Prepare  to taste salt & pepper
+1. Take  Olive oil or Ghee (to saute onions, garlic & leak)
 1. Get 1 bunch fresh parsley (replace with dry if not available)
 
 

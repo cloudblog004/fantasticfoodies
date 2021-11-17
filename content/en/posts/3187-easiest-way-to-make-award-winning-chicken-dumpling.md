@@ -48,7 +48,7 @@ Hello everybody, it is John, welcome to our recipe page. Today, I will show you 
 
 Chicken Dumpling is one of the most favored of current trending foods on earth. It is appreciated by millions every day. It's easy, it's quick, it tastes delicious. They're nice and they look fantastic. Chicken Dumpling is something that I have loved my whole life.
 
-Chicken and dumplings is a soup that consists of a chicken cooked in water, with the resulting chicken broth being used to cook the dumplings by boiling. A dumpling—in this context—is a biscuit dough, which is a mixture of flour, shortening, and liquid (water, milk, buttermilk, or chicken stock). This old-fashioned Chicken and Dumplings recipe makes creamy soup loaded with big fluffy dumplings made from This creamy Chicken and Dumplings recipe is the ultimate comfort food! Chicken &amp; Dumplings - Stewed Chicken with Thyme Creme Fraiche Dumplings.
+Chicken and dumplings is a soup that consists of a chicken cooked in water, with the resulting chicken broth being used to cook the dumplings by boiling. A dumpling—in this context—is a biscuit dough, which is a mixture of flour, shortening, and liquid (water, milk, buttermilk, or chicken stock). This old-fashioned Chicken and Dumplings recipe makes creamy soup loaded with big fluffy dumplings made from This creamy Chicken and Dumplings recipe is the ultimate comfort food! Chicken & Dumplings - Stewed Chicken with Thyme Creme Fraiche Dumplings.
 
 
 To get started with this recipe, we must first prepare a few components. You can cook chicken dumpling using 6 ingredients and 4 steps. Here is how you cook it.

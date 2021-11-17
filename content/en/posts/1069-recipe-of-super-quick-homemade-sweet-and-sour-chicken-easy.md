@@ -82,7 +82,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 1. Prepare 2 tbsp vinegar
 
 
-Serve this dish with steamed rice or other rice and noodle dishes. For a wholesome meal and easy weeknight dinner, I recommend the following recipes. I made this sweet and sour chicken quite a few times since you posted, and every time it comes out delicious and perfect, because your recipe is so easy. Sweet And Sour Chicken- Quick &amp; Easy Chinese Recipe. 
+Serve this dish with steamed rice or other rice and noodle dishes. For a wholesome meal and easy weeknight dinner, I recommend the following recipes. I made this sweet and sour chicken quite a few times since you posted, and every time it comes out delicious and perfect, because your recipe is so easy. Sweet And Sour Chicken- Quick & Easy Chinese Recipe. 
 
 <!--inarticleads2-->
 
@@ -94,6 +94,6 @@ Serve this dish with steamed rice or other rice and noodle dishes. For a wholeso
 1. Serve with noodles,  white rice or pasta and have a blast :)
 1. Ready to serve and ENJOY!
 
-I made this sweet and sour chicken quite a few times since you posted, and every time it comes out delicious and perfect, because your recipe is so easy. Sweet And Sour Chicken- Quick &amp; Easy Chinese Recipe. It turns out the best sweet and sour chicken is right in your kitchen. Freshly made, it is insanely delicious. A quick and simple dish for the whole family. 
+I made this sweet and sour chicken quite a few times since you posted, and every time it comes out delicious and perfect, because your recipe is so easy. Sweet And Sour Chicken- Quick & Easy Chinese Recipe. It turns out the best sweet and sour chicken is right in your kitchen. Freshly made, it is insanely delicious. A quick and simple dish for the whole family. 
 
 So that is going to wrap it up for this exceptional food sweet and sour chicken easy recipe. Thanks so much for your time. I am sure that you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

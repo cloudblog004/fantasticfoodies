@@ -54,7 +54,7 @@ recipecategory: Dessert
 
 Hey everyone, I hope you're having an amazing day today. Today, we're going to prepare a distinctive dish, spicy grilled chicken. It is one of my favorites food recipes. For mine, I will make it a little bit tasty. This will be really delicious.
 
-Spicy Grilled Chicken Haiku: &#34;Not spicy enough. But the lime was a nice touch. Marinate longer?&#34; Spicy Grilled chicken/ Delicious Grilled chicken recipe/Easy chicken recipe. Spicy Grilled Chicken with Potato Wedges #spicyfood #grilledfood #chickenrecipes.
+Spicy Grilled Chicken Haiku: *Not spicy enough. But the lime was a nice touch. Marinate longer?* Spicy Grilled chicken/ Delicious Grilled chicken recipe/Easy chicken recipe. Spicy Grilled Chicken with Potato Wedges #spicyfood #grilledfood #chickenrecipes.
 
 Spicy grilled chicken is one of the most well liked of recent trending meals on earth. It's easy, it is quick, it tastes delicious. It's appreciated by millions daily. Spicy grilled chicken is something which I have loved my whole life. They're fine and they look fantastic.
 

@@ -31,7 +31,7 @@ recipeinstructions:
 - "Preheat oven to 425F."
 - "In a pan, add coconut oil and cook onions until soften. Add chicken, curry powder, and turmeric."
 - "Add carrots and potatoes to pan. Pour in milk, sugar, and bay leaf. Stir and bring to a boil."
-- "Layer cooked rice into baking dish. Pour curry mixture over rice. * Add provolone &amp; paprika"
+- "Layer cooked rice into baking dish. Pour curry mixture over rice. * Add provolone & paprika"
 - "Bake for approximately 20-25 mins."
 - "Ready to serve and ENJOY!"
 categories:
@@ -92,7 +92,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 1. Preheat oven to 425F.
 1. In a pan, add coconut oil and cook onions until soften. Add chicken, curry powder, and turmeric.
 1. Add carrots and potatoes to pan. Pour in milk, sugar, and bay leaf. Stir and bring to a boil.
-1. Layer cooked rice into baking dish. Pour curry mixture over rice. * Add provolone &amp; paprika
+1. Layer cooked rice into baking dish. Pour curry mixture over rice. * Add provolone & paprika
 1. Bake for approximately 20-25 mins.
 1. Ready to serve and ENJOY!
 

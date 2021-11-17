@@ -49,7 +49,7 @@ Hello everybody, it's Jim, welcome to my recipe page. Today, we're going to prep
 
 Healthy chicken stuffed peppers is one of the most well liked of recent trending foods in the world. It's enjoyed by millions daily. It's simple, it's fast, it tastes delicious. They are fine and they look fantastic. Healthy chicken stuffed peppers is something which I have loved my whole life.
 
-Here is a healthy entree that takes a little bit of extra time, but it&#39;s is well worth it in the end. These chicken stuffed peppers are filled with so much goodness, and they are basically a full meal in one because you get three veggies (corn, onion and peppers), a whole grain. Replay &#34;Chicken Parm Stuffed Peppers are Your Two Favorite Dinners in One.&#34; Up Next. Here are our favorite stuffed bell pepper recipes for an easy, healthy meal.
+Here is a healthy entree that takes a little bit of extra time, but it&#39;s is well worth it in the end. These chicken stuffed peppers are filled with so much goodness, and they are basically a full meal in one because you get three veggies (corn, onion and peppers), a whole grain. Replay *Chicken Parm Stuffed Peppers are Your Two Favorite Dinners in One.* Up Next. Here are our favorite stuffed bell pepper recipes for an easy, healthy meal.
 
 
 To get started with this recipe, we have to first prepare a few components. You can have healthy chicken stuffed peppers using 4 ingredients and 6 steps. Here is how you cook it.

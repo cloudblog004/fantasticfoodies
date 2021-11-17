@@ -83,7 +83,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can have co
 1. Prepare 1/2 tsp minced garlic
 1. Take  Croutons
 1. Make ready  Pickle
-1. Make ready  Salt &amp; pepper
+1. Make ready  Salt & pepper
 1. Make ready  Eggs
 1. Prepare  Cucumbers
 

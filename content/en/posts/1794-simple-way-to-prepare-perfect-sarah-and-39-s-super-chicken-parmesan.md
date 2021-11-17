@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Prepare Perfect Sarah&amp;#39;s Super Chicken Parmesan"
-title: "Simple Way to Prepare Perfect Sarah&amp;#39;s Super Chicken Parmesan"
+description: "Simple Way to Prepare Perfect Sarah's Super Chicken Parmesan"
+title: "Simple Way to Prepare Perfect Sarah's Super Chicken Parmesan"
 slug: 1794-simple-way-to-prepare-perfect-sarah-and-39-s-super-chicken-parmesan
 date: 2022-02-07T01:43:52.218Z
 image: https://img-global.cpcdn.com/recipes/6321370211287040/680x482cq70/sarahs-super-chicken-parmesan-recipe-main-photo.jpg

@@ -61,7 +61,7 @@ Hello everybody, hope you're having an amazing day today. Today, I will show you
 
 Chicken pulao😊 is one of the most well liked of recent trending foods in the world. It is easy, it is fast, it tastes yummy. It is enjoyed by millions daily. Chicken pulao😊 is something that I have loved my entire life. They're nice and they look fantastic.
 
-Chicken pulao recipe - one pot delicious chicken pilaf made with mild spices, fragrant rice and Chicken pulao How to make chicken pulao (Instant pot &amp; stovetop). Chicken pulao is a simple one pot chicken and rice dish made with mild Indian flavours. Spicy chicken pulao. rice•chicken•onion•tomato•yogurt•black pepper•Pisa garam masala•garam masala.
+Chicken pulao recipe - one pot delicious chicken pilaf made with mild spices, fragrant rice and Chicken pulao How to make chicken pulao (Instant pot & stovetop). Chicken pulao is a simple one pot chicken and rice dish made with mild Indian flavours. Spicy chicken pulao. rice•chicken•onion•tomato•yogurt•black pepper•Pisa garam masala•garam masala.
 
 
 To get started with this recipe, we must first prepare a few ingredients. You can cook chicken pulao😊 using 16 ingredients and 7 steps. Here is how you cook that.

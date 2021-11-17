@@ -94,6 +94,6 @@ Browse our selection for appetizers, main course The best low-carbohydrate recip
 1. (Optional) sprinkle 1 teaspoon of salt.
 1. Ready to serve and ENJOY!
 
-Before eating low carb, I used to love ordering taco salads at restaurants. First, they have all the best flavors and ingredients of a taco. Second, they usually come topped with tortilla strips. Some are even served IN a fried tortilla. See more ideas about recipes, salad recipes, low carb salad. · Here you&#39;ll find delicious low carb salad recipes &amp; keto salad recipes! 
+Before eating low carb, I used to love ordering taco salads at restaurants. First, they have all the best flavors and ingredients of a taco. Second, they usually come topped with tortilla strips. Some are even served IN a fried tortilla. See more ideas about recipes, salad recipes, low carb salad. · Here you&#39;ll find delicious low carb salad recipes & keto salad recipes! 
 
 So that's going to wrap this up with this special food quick low carb salad recipe. Thanks so much for your time. I am sure you can make this at home. There's gonna be interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

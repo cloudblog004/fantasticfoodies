@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Ultimate Lemon-N-Garlic Slow Roasted Chicken &amp;amp; Vegetables"
-title: "Recipe of Ultimate Lemon-N-Garlic Slow Roasted Chicken &amp;amp; Vegetables"
+description: "Recipe of Ultimate Lemon-N-Garlic Slow Roasted Chicken & Vegetables"
+title: "Recipe of Ultimate Lemon-N-Garlic Slow Roasted Chicken & Vegetables"
 slug: 1603-recipe-of-ultimate-lemon-n-garlic-slow-roasted-chicken-and-amp-vegetables
 date: 2022-02-04T15:00:30.758Z
 image: https://img-global.cpcdn.com/recipes/12f6212f526f3064/680x482cq70/lemon-n-garlic-slow-roasted-chicken-vegetables-recipe-main-photo.jpg
@@ -68,20 +68,20 @@ recipecategory: Dessert
 ---
 
 
-![Lemon-N-Garlic Slow Roasted Chicken &amp; Vegetables](https://img-global.cpcdn.com/recipes/12f6212f526f3064/680x482cq70/lemon-n-garlic-slow-roasted-chicken-vegetables-recipe-main-photo.jpg)
+![Lemon-N-Garlic Slow Roasted Chicken & Vegetables](https://img-global.cpcdn.com/recipes/12f6212f526f3064/680x482cq70/lemon-n-garlic-slow-roasted-chicken-vegetables-recipe-main-photo.jpg)
 
-Hello everybody, hope you're having an incredible day today. Today, I will show you a way to make a distinctive dish, lemon-n-garlic slow roasted chicken &amp; vegetables. One of my favorites food recipes. For mine, I am going to make it a little bit unique. This is gonna smell and look delicious.
+Hello everybody, hope you're having an incredible day today. Today, I will show you a way to make a distinctive dish, lemon-n-garlic slow roasted chicken & vegetables. One of my favorites food recipes. For mine, I am going to make it a little bit unique. This is gonna smell and look delicious.
 
-Lemon-N-Garlic Slow Roasted Chicken &amp; Vegetables is one of the most well liked of current trending foods on earth. It is appreciated by millions every day. It is easy, it is fast, it tastes yummy. They are fine and they look fantastic. Lemon-N-Garlic Slow Roasted Chicken &amp; Vegetables is something that I've loved my whole life.
-
-
+Lemon-N-Garlic Slow Roasted Chicken & Vegetables is one of the most well liked of current trending foods on earth. It is appreciated by millions every day. It is easy, it is fast, it tastes yummy. They are fine and they look fantastic. Lemon-N-Garlic Slow Roasted Chicken & Vegetables is something that I've loved my whole life.
 
 
-To begin with this recipe, we have to first prepare a few ingredients. You can have lemon-n-garlic slow roasted chicken &amp; vegetables using 23 ingredients and 12 steps. Here is how you can achieve it.
+
+
+To begin with this recipe, we have to first prepare a few ingredients. You can have lemon-n-garlic slow roasted chicken & vegetables using 23 ingredients and 12 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Lemon-N-Garlic Slow Roasted Chicken &amp; Vegetables:
+##### The ingredients needed to make Lemon-N-Garlic Slow Roasted Chicken & Vegetables:
 
 1. Take 10  -  12 chicken thighs ,  bone -in   skin -on
 1. Get 2 garlic bulbs
@@ -112,7 +112,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can h
 
 <!--inarticleads2-->
 
-##### Steps to make Lemon-N-Garlic Slow Roasted Chicken &amp; Vegetables:
+##### Steps to make Lemon-N-Garlic Slow Roasted Chicken & Vegetables:
 
 1. Clean the chicken thighs as best as you can, leaving the skin on.
 1. Mix the marinade ingredients in a small bowl (heat it if required) and rub it all over the chicken. let the chicken marinate for about 2 hours (or overnight if possible).
@@ -130,4 +130,4 @@ To begin with this recipe, we have to first prepare a few ingredients. You can h
 
 
 
-So that's going to wrap it up for this exceptional food lemon-n-garlic slow roasted chicken &amp; vegetables recipe. Thanks so much for your time. I'm sure that you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!
+So that's going to wrap it up for this exceptional food lemon-n-garlic slow roasted chicken & vegetables recipe. Thanks so much for your time. I'm sure that you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

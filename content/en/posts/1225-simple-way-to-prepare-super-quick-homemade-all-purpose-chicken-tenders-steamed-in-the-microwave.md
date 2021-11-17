@@ -24,9 +24,9 @@ recipeinstructions:
 - "Step 1: Line the tenders on a heat resistant plate and sprinkle on cooking sake. Step 2: Rub salt and pepper into the tenders. Step 3: Add sliced and halved ginger slices and thinly sliced leek on top of the tenders."
 - "Step 4: Cover with cling film, microwave for 2 minutes (700 W). Turn the tenders over and microwave for a further minute.  Step 5: Take it out from the microwave, and without removing the cling film, allow the tenders to cook through in residual heat."
 - "Step 6: Once they have cooled down a little, they are done! If you don&#39;t use them straight away, wrap each tender with cling film as shown in the photo. Put them in a ziplock bag and freeze. This comes in handy as you can use them for various kinds of dishes."
-- "Another Option: Steps 1-3 are &#34;the proper way&#34; to prepare these tenders. When you are short on time, just spread the tubed ginger onto the tenders and sprinkle on sake. By doing so, you can remove the odor from the chicken."
-- "&#34;Fry &#39;Em Up in a Jiffy Chicken Spring Rolls with Salt-Cured Plum and Shiso Leaf&#34;You can make these easily if you have the steamed tenders.  https://cookpad.com/us/recipes/148008-chicken-spring-rolls-with-salt-cured-plum-and-shiso-leaf           (see recipe)"
-- "&#34;Refreshing Broccolini &amp; Chicken Tender with Shio-Konbu (salted kelp)&#34;This dish is delicious using a spring vegetable.  https://cookpad.com/us/recipes/148003-refreshing-broccolini-and-chicken-tenders-tossed-with-shio-kombu           (see recipe)"
+- "Another Option: Steps 1-3 are *the proper way* to prepare these tenders. When you are short on time, just spread the tubed ginger onto the tenders and sprinkle on sake. By doing so, you can remove the odor from the chicken."
+- "*Fry &#39;Em Up in a Jiffy Chicken Spring Rolls with Salt-Cured Plum and Shiso Leaf*You can make these easily if you have the steamed tenders.  https://cookpad.com/us/recipes/148008-chicken-spring-rolls-with-salt-cured-plum-and-shiso-leaf           (see recipe)"
+- "*Refreshing Broccolini & Chicken Tender with Shio-Konbu (salted kelp)*This dish is delicious using a spring vegetable.  https://cookpad.com/us/recipes/148003-refreshing-broccolini-and-chicken-tenders-tossed-with-shio-kombu           (see recipe)"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -79,9 +79,9 @@ To get started with this particular recipe, we have to prepare a few ingredients
 1. Step 1: Line the tenders on a heat resistant plate and sprinkle on cooking sake. Step 2: Rub salt and pepper into the tenders. Step 3: Add sliced and halved ginger slices and thinly sliced leek on top of the tenders.
 1. Step 4: Cover with cling film, microwave for 2 minutes (700 W). Turn the tenders over and microwave for a further minute.  Step 5: Take it out from the microwave, and without removing the cling film, allow the tenders to cook through in residual heat.
 1. Step 6: Once they have cooled down a little, they are done! If you don&#39;t use them straight away, wrap each tender with cling film as shown in the photo. Put them in a ziplock bag and freeze. This comes in handy as you can use them for various kinds of dishes.
-1. Another Option: Steps 1-3 are &#34;the proper way&#34; to prepare these tenders. When you are short on time, just spread the tubed ginger onto the tenders and sprinkle on sake. By doing so, you can remove the odor from the chicken.
-1. &#34;Fry &#39;Em Up in a Jiffy Chicken Spring Rolls with Salt-Cured Plum and Shiso Leaf&#34;You can make these easily if you have the steamed tenders.  https://cookpad.com/us/recipes/148008-chicken-spring-rolls-with-salt-cured-plum-and-shiso-leaf           (see recipe)
-1. &#34;Refreshing Broccolini &amp; Chicken Tender with Shio-Konbu (salted kelp)&#34;This dish is delicious using a spring vegetable.  https://cookpad.com/us/recipes/148003-refreshing-broccolini-and-chicken-tenders-tossed-with-shio-kombu           (see recipe)
+1. Another Option: Steps 1-3 are *the proper way* to prepare these tenders. When you are short on time, just spread the tubed ginger onto the tenders and sprinkle on sake. By doing so, you can remove the odor from the chicken.
+1. *Fry &#39;Em Up in a Jiffy Chicken Spring Rolls with Salt-Cured Plum and Shiso Leaf*You can make these easily if you have the steamed tenders.  https://cookpad.com/us/recipes/148008-chicken-spring-rolls-with-salt-cured-plum-and-shiso-leaf           (see recipe)
+1. *Refreshing Broccolini & Chicken Tender with Shio-Konbu (salted kelp)*This dish is delicious using a spring vegetable.  https://cookpad.com/us/recipes/148003-refreshing-broccolini-and-chicken-tenders-tossed-with-shio-kombu           (see recipe)
 1. Ready to serve and ENJOY!
 
 

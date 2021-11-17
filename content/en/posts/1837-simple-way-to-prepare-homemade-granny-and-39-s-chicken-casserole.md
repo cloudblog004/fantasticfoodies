@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Prepare Homemade Granny&amp;#39;s Chicken Casserole"
-title: "Simple Way to Prepare Homemade Granny&amp;#39;s Chicken Casserole"
+description: "Simple Way to Prepare Homemade Granny's Chicken Casserole"
+title: "Simple Way to Prepare Homemade Granny's Chicken Casserole"
 slug: 1837-simple-way-to-prepare-homemade-granny-and-39-s-chicken-casserole
 date: 2022-03-29T22:52:36.257Z
 image: https://img-global.cpcdn.com/recipes/5437448995733504/680x482cq70/grannys-chicken-casserole-recipe-main-photo.jpg

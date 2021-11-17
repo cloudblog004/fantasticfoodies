@@ -93,6 +93,6 @@ It comes to the rescue when you have one or two friends visiting. It&#39;s surel
 1. Cut onion and cucumber into rings arrange on the sauced chicken also sprinkle shredded cabbage.
 1. Ready to serve and ENJOY!
 
-Lemon Pepper Chicken is an American favorite! It&#39;s super easy to make and only requires a handful of ingredients, one being a seasoning called lemon pepper. It&#39;s a zesty, peppery seasoning that goes. Easy, juicy, flavorful roasted pepper chicken recipe seasoned with herbs &amp; spices and roasted with fresh red bell pepper, green bell peppers, celery, and onions. This Lemon Pepper Chicken from Delish.com will make you excited for chicken again. 
+Lemon Pepper Chicken is an American favorite! It&#39;s super easy to make and only requires a handful of ingredients, one being a seasoning called lemon pepper. It&#39;s a zesty, peppery seasoning that goes. Easy, juicy, flavorful roasted pepper chicken recipe seasoned with herbs & spices and roasted with fresh red bell pepper, green bell peppers, celery, and onions. This Lemon Pepper Chicken from Delish.com will make you excited for chicken again. 
 
 So that's going to wrap it up for this special food peppered chicken recipe. Thank you very much for your time. I'm sure that you can make this at home. There is gonna be more interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

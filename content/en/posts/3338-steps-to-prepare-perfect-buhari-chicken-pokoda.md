@@ -62,7 +62,7 @@ Hey everyone, it is John, welcome to my recipe site. Today, I will show you a wa
 
 Buhari chicken pokoda is one of the most well liked of current trending meals in the world. It is appreciated by millions every day. It's easy, it's fast, it tastes yummy. They're fine and they look fantastic. Buhari chicken pokoda is something that I've loved my entire life.
 
-What differentiates this chicken preparation from others is the usage of fresh whole garlic knob in the curry and the cooking process. quick &amp; easy chicken curry recipe Chicken Pakora or chicken pakoda recipe is an amazing chicken fritter recipe using boneless chicken, maida and spices. There are several other chicken starters on my.
+What differentiates this chicken preparation from others is the usage of fresh whole garlic knob in the curry and the cooking process. quick & easy chicken curry recipe Chicken Pakora or chicken pakoda recipe is an amazing chicken fritter recipe using boneless chicken, maida and spices. There are several other chicken starters on my.
 
 
 To begin with this particular recipe, we have to first prepare a few ingredients. You can have buhari chicken pokoda using 16 ingredients and 7 steps. Here is how you cook it.

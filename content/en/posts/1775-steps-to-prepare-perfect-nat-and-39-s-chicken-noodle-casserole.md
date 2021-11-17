@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Perfect Nat&amp;#39;s Chicken Noodle Casserole"
-title: "Steps to Prepare Perfect Nat&amp;#39;s Chicken Noodle Casserole"
+description: "Steps to Prepare Perfect Nat's Chicken Noodle Casserole"
+title: "Steps to Prepare Perfect Nat's Chicken Noodle Casserole"
 slug: 1775-steps-to-prepare-perfect-nat-and-39-s-chicken-noodle-casserole
 date: 2022-02-22T01:40:35.470Z
 image: https://img-global.cpcdn.com/recipes/5583884276727808/680x482cq70/nats-chicken-noodle-casserole-recipe-main-photo.jpg

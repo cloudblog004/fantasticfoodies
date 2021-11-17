@@ -76,7 +76,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 1. Prepare 1 olive oil to taste
 
 
-These spicy meatballs need only a squeeze of lime juice to bring out their meaty richness. These Easy Chipotle Meatballs are a bit spicy, a bit smoky &amp; make dinner way more interesting! This is meatballs in chipotle sauce (Albondigas al Chipotle) are one of the most preferred and If you like meatballs with Chipotle peppers sauce, you&#39;re absolutely going to like this recipes. Albóndigas (meatballs) are often served in a soup or a sauce, but our skewered version needs only a squeeze of refreshing Spicy chipotle, crumbled bacon, and a hint of cumin make them unforgettable. 
+These spicy meatballs need only a squeeze of lime juice to bring out their meaty richness. These Easy Chipotle Meatballs are a bit spicy, a bit smoky & make dinner way more interesting! This is meatballs in chipotle sauce (Albondigas al Chipotle) are one of the most preferred and If you like meatballs with Chipotle peppers sauce, you&#39;re absolutely going to like this recipes. Albóndigas (meatballs) are often served in a soup or a sauce, but our skewered version needs only a squeeze of refreshing Spicy chipotle, crumbled bacon, and a hint of cumin make them unforgettable. 
 
 <!--inarticleads2-->
 

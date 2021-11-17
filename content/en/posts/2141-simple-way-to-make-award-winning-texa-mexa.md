@@ -67,7 +67,7 @@ recipecategory: Dessert
 
 Hey everyone, it is Brad, welcome to our recipe page. Today, we're going to prepare a special dish, texa mexa. One of my favorites food recipes. This time, I am going to make it a bit tasty. This is gonna smell and look delicious.
 
-Texa-Mexa Black Bean &amp; Corn Chili. In Phoenix, there are Mexican restaurants on every corner. TEXA-MEXA Vendéglátóipari Kereskedelmi és Szolgáltató Korlátolt Felelősségű Társaság. According to Crefoport s.r.o.&#39;s credit report database the TEXA-MEXA Vendéglátóipari Kereskedelmi.
+Texa-Mexa Black Bean & Corn Chili. In Phoenix, there are Mexican restaurants on every corner. TEXA-MEXA Vendéglátóipari Kereskedelmi és Szolgáltató Korlátolt Felelősségű Társaság. According to Crefoport s.r.o.&#39;s credit report database the TEXA-MEXA Vendéglátóipari Kereskedelmi.
 
 TEXA MEXA is one of the most well liked of recent trending meals in the world. It's easy, it is fast, it tastes yummy. It is appreciated by millions daily. They are nice and they look fantastic. TEXA MEXA is something that I have loved my whole life.
 

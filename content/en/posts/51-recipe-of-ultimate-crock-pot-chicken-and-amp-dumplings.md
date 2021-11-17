@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Ultimate Crock-Pot Chicken &amp;amp; Dumplings"
-title: "Recipe of Ultimate Crock-Pot Chicken &amp;amp; Dumplings"
+description: "Recipe of Ultimate Crock-Pot Chicken & Dumplings"
+title: "Recipe of Ultimate Crock-Pot Chicken & Dumplings"
 slug: 51-recipe-of-ultimate-crock-pot-chicken-and-amp-dumplings
 date: 2022-05-15T17:33:05.902Z
 image: https://img-global.cpcdn.com/recipes/b838a34b3d305af9/680x482cq70/crock-pot-chicken-dumplings-recipe-main-photo.jpg
@@ -58,20 +58,20 @@ recipecategory: Dessert
 ---
 
 
-![Crock-Pot Chicken &amp; Dumplings](https://img-global.cpcdn.com/recipes/b838a34b3d305af9/680x482cq70/crock-pot-chicken-dumplings-recipe-main-photo.jpg)
+![Crock-Pot Chicken & Dumplings](https://img-global.cpcdn.com/recipes/b838a34b3d305af9/680x482cq70/crock-pot-chicken-dumplings-recipe-main-photo.jpg)
 
-Hey everyone, it is John, welcome to my recipe page. Today, we're going to make a distinctive dish, crock-pot chicken &amp; dumplings. One of my favorites food recipes. For mine, I will make it a little bit tasty. This will be really delicious.
-
-
-
-Crock-Pot Chicken &amp; Dumplings is one of the most well liked of current trending foods in the world. It is enjoyed by millions every day. It is simple, it's fast, it tastes yummy. Crock-Pot Chicken &amp; Dumplings is something that I have loved my whole life. They're fine and they look fantastic.
+Hey everyone, it is John, welcome to my recipe page. Today, we're going to make a distinctive dish, crock-pot chicken & dumplings. One of my favorites food recipes. For mine, I will make it a little bit tasty. This will be really delicious.
 
 
-To begin with this recipe, we must prepare a few components. You can have crock-pot chicken &amp; dumplings using 20 ingredients and 5 steps. Here is how you can achieve that.
+
+Crock-Pot Chicken & Dumplings is one of the most well liked of current trending foods in the world. It is enjoyed by millions every day. It is simple, it's fast, it tastes yummy. Crock-Pot Chicken & Dumplings is something that I have loved my whole life. They're fine and they look fantastic.
+
+
+To begin with this recipe, we must prepare a few components. You can have crock-pot chicken & dumplings using 20 ingredients and 5 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Crock-Pot Chicken &amp; Dumplings:
+##### The ingredients needed to make Crock-Pot Chicken & Dumplings:
 
 1. Take 2 chicken breasts
 1. Take 1 can cream of chicken soup
@@ -84,7 +84,7 @@ To begin with this recipe, we must prepare a few components. You can have crock-
 1. Prepare  Garlic powder
 1. Make ready  Dry sage
 1. Get  Dry parsley
-1. Get  Salt &amp; pepper
+1. Get  Salt & pepper
 1. Prepare  dumplings*
 1. Prepare 2 cups flour
 1. Take 1 cup warm water
@@ -92,14 +92,14 @@ To begin with this recipe, we must prepare a few components. You can have crock-
 1. Make ready 2 tbs butter
 1. Prepare  Garlic powder
 1. Get  Onion powder
-1. Get  Salt &amp; pepper
+1. Get  Salt & pepper
 
 
 
 
 <!--inarticleads2-->
 
-##### Steps to make Crock-Pot Chicken &amp; Dumplings:
+##### Steps to make Crock-Pot Chicken & Dumplings:
 
 1. Add soup ingredients to crockpot
 1. High 5 hours
@@ -110,4 +110,4 @@ To begin with this recipe, we must prepare a few components. You can have crock-
 
 
 
-So that's going to wrap it up for this exceptional food crock-pot chicken &amp; dumplings recipe. Thanks so much for your time. I'm confident that you will make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!
+So that's going to wrap it up for this exceptional food crock-pot chicken & dumplings recipe. Thanks so much for your time. I'm confident that you will make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

@@ -1,6 +1,6 @@
 ---
-description: "How to Make Quick Vickys British &amp;#39;Pub Grub&amp;#39; Hunters Chicken GF DF EF SF NF"
-title: "How to Make Quick Vickys British &amp;#39;Pub Grub&amp;#39; Hunters Chicken GF DF EF SF NF"
+description: "How to Make Quick Vickys British 'Pub Grub' Hunters Chicken GF DF EF SF NF"
+title: "How to Make Quick Vickys British 'Pub Grub' Hunters Chicken GF DF EF SF NF"
 slug: 3023-how-to-make-quick-vickys-british-and-39-pub-grub-and-39-hunters-chicken-gf-df-ef-sf-nf
 date: 2022-01-15T09:52:25.246Z
 image: https://img-global.cpcdn.com/recipes/5798878087479296/680x482cq70/vickys-british-pub-grub-hunters-chicken-gf-df-ef-sf-nf-recipe-main-photo.jpg
@@ -32,7 +32,7 @@ recipeinstructions:
 - "To make the BBQ sauce, mix all the ingredients in a pan and simmer on a low heat for 30 minutes then let cool"
 - "You can use it straight after simmering for only 3 minutes but if you cook it for the 30 and let it cool, you can keep any extra in the fridge for a good 2 weeks in a glass jar"
 - "Preheat the oven to gas 6 / 200C / 400°F"
-- "Season the chicken lightly with some salt &amp; pepper"
+- "Season the chicken lightly with some salt & pepper"
 - "Wrap 2 slices of bacon around each chicken breast making sure the bacon &#39;seam&#39; is on the bottom"
 - "Set the wrapped chicken in an oven dish or tray and bake for 15 minutes"
 - "Sprinkle the mixed cheese over the top of the chicken and bake a further 5 minutes"
@@ -85,7 +85,7 @@ To get started with this recipe, we have to first prepare a few ingredients. You
 1. Prepare 1 dash tabasco sauce to taste
 1. Make ready  Chicken
 1. Make ready 4 boneless, skinless chicken breasts
-1. Make ready 1 salt &amp; pepper
+1. Make ready 1 salt & pepper
 1. Make ready 8 slice streaky bacon
 1. Prepare 100 grams shredded cheese, I use a mixture of cheddar and mozzerella*
 
@@ -99,7 +99,7 @@ To get started with this recipe, we have to first prepare a few ingredients. You
 1. To make the BBQ sauce, mix all the ingredients in a pan and simmer on a low heat for 30 minutes then let cool
 1. You can use it straight after simmering for only 3 minutes but if you cook it for the 30 and let it cool, you can keep any extra in the fridge for a good 2 weeks in a glass jar
 1. Preheat the oven to gas 6 / 200C / 400°F
-1. Season the chicken lightly with some salt &amp; pepper
+1. Season the chicken lightly with some salt & pepper
 1. Wrap 2 slices of bacon around each chicken breast making sure the bacon &#39;seam&#39; is on the bottom
 1. Set the wrapped chicken in an oven dish or tray and bake for 15 minutes
 1. Sprinkle the mixed cheese over the top of the chicken and bake a further 5 minutes

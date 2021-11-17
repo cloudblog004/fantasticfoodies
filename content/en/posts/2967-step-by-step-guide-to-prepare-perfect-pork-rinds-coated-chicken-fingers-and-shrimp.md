@@ -28,7 +28,7 @@ recipeingredient:
 - "1 whole lime juiced"
 - " Avocado oil for frying"
 recipeinstructions:
-- "Put the chicken strips into a plastic bag with the buttermilk, hot sauce, and S&amp;P. Smush in the bag to coat all the meat. Put shrimp in a separate bag with same sauce."
+- "Put the chicken strips into a plastic bag with the buttermilk, hot sauce, and S&P. Smush in the bag to coat all the meat. Put shrimp in a separate bag with same sauce."
 - "Crush pork rinds into fine crumbs and put in a shallow dish. Beat the eggs in a separate shallow bowl."
 - "Coat the chicken and shrimp in a layer of crumbs, quickly dunk in the egg, then coat again in the crumbs. Lay them on a sheet pan. Heat the oil in a large skillet over medium-high heat."
 - "Fry the chicken and shrimp in batches about 2 1/2 minutes a side, watching they don&#39;t get over browned (lower heat slightly if necessary). Drain them on a cooling rack. Serve with ketchup, ranch or the avocado dip with this recipe."
@@ -83,19 +83,19 @@ To get started with this recipe, we have to first prepare a few components. You 
 1. Get  Avocado oil, for frying
 
 
-Pour your pork rind crumbs onto a plate or large bowl and press each tender into the crumbs until they are fully coated. You can use this same technique on pork chops, fish, shrimp, whole chicken breasts, or even for veggie fries! Chicken ⇒ mayo ⇒ pork rind and parmesan &#34;breading&#34; ⇒ oven. That&#39;s all that&#39;s standing between you and the some truly crispy baked keto chicken fingers. 
+Pour your pork rind crumbs onto a plate or large bowl and press each tender into the crumbs until they are fully coated. You can use this same technique on pork chops, fish, shrimp, whole chicken breasts, or even for veggie fries! Chicken ⇒ mayo ⇒ pork rind and parmesan *breading* ⇒ oven. That&#39;s all that&#39;s standing between you and the some truly crispy baked keto chicken fingers. 
 
 <!--inarticleads2-->
 
 ##### Steps to make Pork rinds coated chicken fingers and shrimp:
 
-1. Put the chicken strips into a plastic bag with the buttermilk, hot sauce, and S&amp;P. Smush in the bag to coat all the meat. Put shrimp in a separate bag with same sauce.
+1. Put the chicken strips into a plastic bag with the buttermilk, hot sauce, and S&P. Smush in the bag to coat all the meat. Put shrimp in a separate bag with same sauce.
 1. Crush pork rinds into fine crumbs and put in a shallow dish. Beat the eggs in a separate shallow bowl.
 1. Coat the chicken and shrimp in a layer of crumbs, quickly dunk in the egg, then coat again in the crumbs. Lay them on a sheet pan. Heat the oil in a large skillet over medium-high heat.
 1. Fry the chicken and shrimp in batches about 2 1/2 minutes a side, watching they don&#39;t get over browned (lower heat slightly if necessary). Drain them on a cooling rack. Serve with ketchup, ranch or the avocado dip with this recipe.
 1. Avocado dip: In a food processor, mix the avocado, mayonnaise, dill, garlic and lime juice until smooth. Chill and serve with the chicken and shrimp. Delicious!
 1. Ready to serve and ENJOY!
 
-Chicken ⇒ mayo ⇒ pork rind and parmesan &#34;breading&#34; ⇒ oven. That&#39;s all that&#39;s standing between you and the some truly crispy baked keto chicken fingers. The crushed pork rinds are glued to the chicken pieces with a thin layer of mayo which not only keeps the coating stick, it also prevents the. Pork rinds must be seasoned immediately after frying so that the spices stick to its surface, making it more flavorful. Pork Rinds Are Healthier Than Carb-Heavy Snacks. 
+Chicken ⇒ mayo ⇒ pork rind and parmesan *breading* ⇒ oven. That&#39;s all that&#39;s standing between you and the some truly crispy baked keto chicken fingers. The crushed pork rinds are glued to the chicken pieces with a thin layer of mayo which not only keeps the coating stick, it also prevents the. Pork rinds must be seasoned immediately after frying so that the spices stick to its surface, making it more flavorful. Pork Rinds Are Healthier Than Carb-Heavy Snacks. 
 
 So that's going to wrap this up for this exceptional food pork rinds coated chicken fingers and shrimp recipe. Thank you very much for your time. I'm confident that you will make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

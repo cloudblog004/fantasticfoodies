@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Quick Quick Shepherd&amp;#39;s Pie"
-title: "Step-by-Step Guide to Make Quick Quick Shepherd&amp;#39;s Pie"
+description: "Step-by-Step Guide to Make Quick Quick Shepherd's Pie"
+title: "Step-by-Step Guide to Make Quick Quick Shepherd's Pie"
 slug: 1202-step-by-step-guide-to-make-quick-quick-shepherd-and-39-s-pie
 date: 2022-01-17T12:45:34.748Z
 image: https://img-global.cpcdn.com/recipes/5759181456932864/680x482cq70/quick-shepherds-pie-recipe-main-photo.jpg

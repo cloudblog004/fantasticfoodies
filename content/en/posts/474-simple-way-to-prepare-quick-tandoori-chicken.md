@@ -62,7 +62,7 @@ Hey everyone, hope you're having an amazing day today. Today, I'm gonna show you
 
 tandoori chicken is one of the most well liked of recent trending meals in the world. It is simple, it is quick, it tastes delicious. It's appreciated by millions daily. They are fine and they look fantastic. tandoori chicken is something that I've loved my entire life.
 
-Tandoori chicken is a chicken dish prepared by roasting chicken marinated in yogurt and spices in a tandoor, a cylindrical clay oven. The dish originated from the Indian subcontinent and is popular in. Tandoori chicken recipe with video &amp; step by step pictures - Learn how to make delicious Tandoori chicken originated from the Mughlai cuisine &amp; is one of the most popular chicken appetizers that. Make tandoori chicken on your grill!
+Tandoori chicken is a chicken dish prepared by roasting chicken marinated in yogurt and spices in a tandoor, a cylindrical clay oven. The dish originated from the Indian subcontinent and is popular in. Tandoori chicken recipe with video & step by step pictures - Learn how to make delicious Tandoori chicken originated from the Mughlai cuisine & is one of the most popular chicken appetizers that. Make tandoori chicken on your grill!
 
 
 To get started with this particular recipe, we have to prepare a few components. You can cook tandoori chicken using 13 ingredients and 11 steps. Here is how you can achieve that.

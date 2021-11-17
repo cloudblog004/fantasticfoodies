@@ -50,7 +50,7 @@ recipecategory: Dinner
 
 Hello everybody, I hope you are having an amazing day today. Today, I'm gonna show you how to prepare a distinctive dish, tasty grilled chicken. One of my favorites food recipes. This time, I am going to make it a bit tasty. This will be really delicious.
 
-quick &amp; easy chicken curry recipe Take chicken outdoors with these yummy grilled chicken recipes. The best chicken on the grill This tasty, ingenious grilled chicken parmesan recipe is a healthier way to prepare this traditional. This was unbelievably tasty and everyone to whom I&#39;ve served has raved and requested the recipe!!!!
+quick & easy chicken curry recipe Take chicken outdoors with these yummy grilled chicken recipes. The best chicken on the grill This tasty, ingenious grilled chicken parmesan recipe is a healthier way to prepare this traditional. This was unbelievably tasty and everyone to whom I&#39;ve served has raved and requested the recipe!!!!
 
 Tasty grilled chicken is one of the most well liked of recent trending meals in the world. It's enjoyed by millions daily. It is simple, it's fast, it tastes delicious. They are nice and they look wonderful. Tasty grilled chicken is something that I've loved my whole life.
 

@@ -52,7 +52,7 @@ Hello everybody, hope you are having an incredible day today. Today, we're going
 
 Corn chicken box samosy is one of the most popular of recent trending meals on earth. It is enjoyed by millions daily. It's simple, it's quick, it tastes yummy. They are fine and they look wonderful. Corn chicken box samosy is something that I've loved my entire life.
 
-Corn chicken box samosy. boiled &amp; shreded chicken•boiled corn•, cup cabbage•salt•black pepper•tblspn cheddarcheese•milk•tblspn butter. #ChickenPockets#ChickenSamosaRecipeIf you enjoyed this recipe video-Give it a Like &amp; do Subscribe STAY HEALTHY ! Give your products an elegant appeal with sublime chicken boxes from Alibaba.com. See more ideas about chicken coop, coop, chicken diy. Slow Cooker Dark Chocolate Banana Healthy Chicken Dessert Vegetarian Lactose Free Gluten Free Fast Quick One Pot Easy Cast Iron Pan Oatmeal Spicy Snack Appetizer Brunch Southern Thai.
+Corn chicken box samosy. boiled & shreded chicken•boiled corn•, cup cabbage•salt•black pepper•tblspn cheddarcheese•milk•tblspn butter. #ChickenPockets#ChickenSamosaRecipeIf you enjoyed this recipe video-Give it a Like & do Subscribe STAY HEALTHY ! Give your products an elegant appeal with sublime chicken boxes from Alibaba.com. See more ideas about chicken coop, coop, chicken diy. Slow Cooker Dark Chocolate Banana Healthy Chicken Dessert Vegetarian Lactose Free Gluten Free Fast Quick One Pot Easy Cast Iron Pan Oatmeal Spicy Snack Appetizer Brunch Southern Thai.
 
 
 To get started with this recipe, we have to first prepare a few components. You can have corn chicken box samosy using 9 ingredients and 4 steps. Here is how you can achieve it.
@@ -61,7 +61,7 @@ To get started with this recipe, we have to first prepare a few components. You 
 
 ##### The ingredients needed to make Corn chicken box samosy:
 
-1. Prepare 1/2 cup boiled &amp; shreded chicken
+1. Prepare 1/2 cup boiled & shreded chicken
 1. Get 1/2 cup boiled corn
 1. Take 1/2 , cup cabbage
 1. Prepare 1 tsp salt

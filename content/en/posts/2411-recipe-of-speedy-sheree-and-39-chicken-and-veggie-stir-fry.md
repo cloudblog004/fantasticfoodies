@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Speedy Sheree&amp;#39; Chicken and Veggie Stir Fry"
-title: "Recipe of Speedy Sheree&amp;#39; Chicken and Veggie Stir Fry"
+description: "Recipe of Speedy Sheree' Chicken and Veggie Stir Fry"
+title: "Recipe of Speedy Sheree' Chicken and Veggie Stir Fry"
 slug: 2411-recipe-of-speedy-sheree-and-39-chicken-and-veggie-stir-fry
 date: 2022-04-29T09:35:42.769Z
 image: https://img-global.cpcdn.com/recipes/55539989/680x482cq70/sheree-chicken-and-veggie-stir-fry-recipe-main-photo.jpg
@@ -27,11 +27,11 @@ recipeingredient:
 - "2 carrots shredded"
 - "3 green onions sliced"
 recipeinstructions:
-- "Mix all the dry ingredients together.  when they are well mixed put vinegar, soy sauce &amp; water with dry ingredients."
+- "Mix all the dry ingredients together.  when they are well mixed put vinegar, soy sauce & water with dry ingredients."
 - "put oil in skillet and fry chicken until it is down."
 - "then add peppers, onions, and carrots to the chicken for about 2-3 minutes.  veggies should be semi-crisp."
 - "add brown sugar mixture. stir well and cover until sauce is thick.  can be served over rice, chow mein,  or lo mein noodles .."
-- "****  this is also one of those recipes that I cut up the semi frozen chicken breast and season chicken with fresh minced onions, s&amp;p, and garlic...  I mix the chicken by hand and put in a freezer bag or air tight container."
+- "****  this is also one of those recipes that I cut up the semi frozen chicken breast and season chicken with fresh minced onions, s&p, and garlic...  I mix the chicken by hand and put in a freezer bag or air tight container."
 - "****  I have also added string beans to the stir fry. can also add squash or broccoli.."
 - "Ready to serve and ENJOY!"
 categories:
@@ -88,11 +88,11 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 
 ##### Instructions to make Sheree&#39; Chicken and Veggie Stir Fry:
 
-1. Mix all the dry ingredients together.  when they are well mixed put vinegar, soy sauce &amp; water with dry ingredients.
+1. Mix all the dry ingredients together.  when they are well mixed put vinegar, soy sauce & water with dry ingredients.
 1. put oil in skillet and fry chicken until it is down.
 1. then add peppers, onions, and carrots to the chicken for about 2-3 minutes.  veggies should be semi-crisp.
 1. add brown sugar mixture. stir well and cover until sauce is thick.  can be served over rice, chow mein,  or lo mein noodles ..
-1. ****  this is also one of those recipes that I cut up the semi frozen chicken breast and season chicken with fresh minced onions, s&amp;p, and garlic...  I mix the chicken by hand and put in a freezer bag or air tight container.
+1. ****  this is also one of those recipes that I cut up the semi frozen chicken breast and season chicken with fresh minced onions, s&p, and garlic...  I mix the chicken by hand and put in a freezer bag or air tight container.
 1. ****  I have also added string beans to the stir fry. can also add squash or broccoli..
 1. Ready to serve and ENJOY!
 

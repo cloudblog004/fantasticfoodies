@@ -50,7 +50,7 @@ Hello everybody, it's me again, Dan, welcome to my recipe site. Today, I'm gonna
 
 Slow Cooker Salsa Chicken Tacos is one of the most well liked of current trending foods in the world. It's appreciated by millions daily. It's simple, it's fast, it tastes yummy. They are nice and they look wonderful. Slow Cooker Salsa Chicken Tacos is something that I've loved my entire life.
 
-Instant Pot or Slow Cooker Salsa Chicken Tacos. This post may contain affiliate links. Salsa Chicken Tacos are one of the easiest dinners you can make, and yet they are still perfectly flavorful and everyone will love them! These Slow Cooker Salsa Verde Chicken Tacos are the best &#34;dump and run&#34; meal I have ever made!
+Instant Pot or Slow Cooker Salsa Chicken Tacos. This post may contain affiliate links. Salsa Chicken Tacos are one of the easiest dinners you can make, and yet they are still perfectly flavorful and everyone will love them! These Slow Cooker Salsa Verde Chicken Tacos are the best *dump and run* meal I have ever made!
 
 
 To get started with this particular recipe, we have to first prepare a few ingredients. You can cook slow cooker salsa chicken tacos using 6 ingredients and 5 steps. Here is how you cook it.

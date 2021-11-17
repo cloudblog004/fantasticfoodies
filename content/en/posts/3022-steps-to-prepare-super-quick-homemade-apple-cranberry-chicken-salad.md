@@ -71,7 +71,7 @@ To get started with this recipe, we have to first prepare a few ingredients. You
 1. Take 1/2 tbsp walnuts
 
 
-Or, stuff it in lettuce leaves, serve it on a buttery croissant or try it on apple slices for a light, delicious meal! Continue to read on for helpful tips on. Skillet Chicken with Cranberries &amp; Apples. Celebrate the flavors of fall with chicken cooked in a fast apple-cranberry sauce. 
+Or, stuff it in lettuce leaves, serve it on a buttery croissant or try it on apple slices for a light, delicious meal! Continue to read on for helpful tips on. Skillet Chicken with Cranberries & Apples. Celebrate the flavors of fall with chicken cooked in a fast apple-cranberry sauce. 
 
 <!--inarticleads2-->
 
@@ -82,6 +82,6 @@ Or, stuff it in lettuce leaves, serve it on a buttery croissant or try it on app
 1. Drizzle the waltnuts and half of your cheese on top. Add chicken when it is done. (Make sure the meat has turned white) drizzle the rest of the cheese so it can melt with the warm chicken. Drizzle the dried cranberries and mix and enjoy:)
 1. Ready to serve and ENJOY!
 
-Skillet Chicken with Cranberries &amp; Apples. Celebrate the flavors of fall with chicken cooked in a fast apple-cranberry sauce. If you prefer a less tart flavor I made this with a simple side salad and was satisfied without any complaints. Try this out and see for yourselves how. This crowd-pleasing recipe for classic chicken salad is perfect for sandwiches, salads, and snacking. 
+Skillet Chicken with Cranberries & Apples. Celebrate the flavors of fall with chicken cooked in a fast apple-cranberry sauce. If you prefer a less tart flavor I made this with a simple side salad and was satisfied without any complaints. Try this out and see for yourselves how. This crowd-pleasing recipe for classic chicken salad is perfect for sandwiches, salads, and snacking. 
 
 So that is going to wrap it up for this exceptional food apple cranberry chicken salad:) recipe. Thanks so much for your time. I'm sure you can make this at home. There is gonna be more interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

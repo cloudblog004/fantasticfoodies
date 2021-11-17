@@ -22,8 +22,8 @@ recipeingredient:
 - "1 dash Salt"
 - "1 dash Pepper"
 recipeinstructions:
-- "Combine chicken, soup, vegetables, salt &amp; pepper in a bowl then spread in an ungreased  9 in pie plate."
-- "In a another bowl mix the egg, milk &amp; Bisquick just until moistened."
+- "Combine chicken, soup, vegetables, salt & pepper in a bowl then spread in an ungreased  9 in pie plate."
+- "In a another bowl mix the egg, milk & Bisquick just until moistened."
 - "Pour over the chicken mixture."
 - "Bake for 30 minutes at 400° or until golden brown."
 - "Ready to serve and ENJOY!"
@@ -76,8 +76,8 @@ This classic Chicken Pot Pie is filled with tender pieces of chicken, carrot, ce
 
 ##### Instructions to make Super Easy Chicken Pot Pie:
 
-1. Combine chicken, soup, vegetables, salt &amp; pepper in a bowl then spread in an ungreased  9 in pie plate.
-1. In a another bowl mix the egg, milk &amp; Bisquick just until moistened.
+1. Combine chicken, soup, vegetables, salt & pepper in a bowl then spread in an ungreased  9 in pie plate.
+1. In a another bowl mix the egg, milk & Bisquick just until moistened.
 1. Pour over the chicken mixture.
 1. Bake for 30 minutes at 400° or until golden brown.
 1. Ready to serve and ENJOY!

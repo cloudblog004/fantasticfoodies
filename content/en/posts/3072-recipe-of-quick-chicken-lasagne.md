@@ -121,7 +121,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 1. Get  pizza sauce
 
 
-This White Chicken Lasagna is rich, satisfying, comforting, flavorful and boasts towering layers for. This chicken lasagna tastes incredible good. The sauce is really delicious and very flavorful, the Parmesan on top gets such a wonderful taste and color while baking. Lasagne with a twist - chicken thighs, oregano, tomato sauce, fresh pasta &amp; cheese sauce. 
+This White Chicken Lasagna is rich, satisfying, comforting, flavorful and boasts towering layers for. This chicken lasagna tastes incredible good. The sauce is really delicious and very flavorful, the Parmesan on top gets such a wonderful taste and color while baking. Lasagne with a twist - chicken thighs, oregano, tomato sauce, fresh pasta & cheese sauce. 
 
 <!--inarticleads2-->
 
@@ -153,6 +153,6 @@ This White Chicken Lasagna is rich, satisfying, comforting, flavorful and boasts
 1. Made by this recipe.delicious and yummy recipe.serve hot by cutting in cubes.
 1. Ready to serve and ENJOY!
 
-The sauce is really delicious and very flavorful, the Parmesan on top gets such a wonderful taste and color while baking. Lasagne with a twist - chicken thighs, oregano, tomato sauce, fresh pasta &amp; cheese sauce. Find dinner ideas for two &amp; lasagne recipes at Tesco Real Food. The cheesiest chicken lasagna layered with cheddar and mozzarella cheese, rich chicken bolognese and no-boil lasagna sheets is a dinner favorite. Cut chicken breasts in half (pound thin if necessary) and season with salt and pepper. 
+The sauce is really delicious and very flavorful, the Parmesan on top gets such a wonderful taste and color while baking. Lasagne with a twist - chicken thighs, oregano, tomato sauce, fresh pasta & cheese sauce. Find dinner ideas for two & lasagne recipes at Tesco Real Food. The cheesiest chicken lasagna layered with cheddar and mozzarella cheese, rich chicken bolognese and no-boil lasagna sheets is a dinner favorite. Cut chicken breasts in half (pound thin if necessary) and season with salt and pepper. 
 
 So that is going to wrap this up for this special food chicken lasagne recipe. Thank you very much for reading. I am sure you can make this at home. There is gonna be more interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

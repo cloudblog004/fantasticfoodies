@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Super Quick Homemade Healthy Chicken &amp;amp; Veggie Pasta"
-title: "Recipe of Super Quick Homemade Healthy Chicken &amp;amp; Veggie Pasta"
+description: "Recipe of Super Quick Homemade Healthy Chicken & Veggie Pasta"
+title: "Recipe of Super Quick Homemade Healthy Chicken & Veggie Pasta"
 slug: 1470-recipe-of-super-quick-homemade-healthy-chicken-and-amp-veggie-pasta
 date: 2022-02-27T12:44:02.720Z
 image: https://img-global.cpcdn.com/recipes/57742112/680x482cq70/healthy-chicken-veggie-pasta-recipe-main-photo.jpg
@@ -76,20 +76,20 @@ recipecategory: Dinner
 ---
 
 
-![Healthy Chicken &amp; Veggie Pasta](https://img-global.cpcdn.com/recipes/57742112/680x482cq70/healthy-chicken-veggie-pasta-recipe-main-photo.jpg)
+![Healthy Chicken & Veggie Pasta](https://img-global.cpcdn.com/recipes/57742112/680x482cq70/healthy-chicken-veggie-pasta-recipe-main-photo.jpg)
 
-Hey everyone, it's Brad, welcome to my recipe site. Today, I will show you a way to prepare a special dish, healthy chicken &amp; veggie pasta. One of my favorites food recipes. For mine, I'm gonna make it a little bit unique. This is gonna smell and look delicious.
+Hey everyone, it's Brad, welcome to my recipe site. Today, I will show you a way to prepare a special dish, healthy chicken & veggie pasta. One of my favorites food recipes. For mine, I'm gonna make it a little bit unique. This is gonna smell and look delicious.
 
-Healthy Chicken &amp; Veggie Pasta is one of the most well liked of current trending meals on earth. It is enjoyed by millions daily. It's easy, it's fast, it tastes yummy. They are nice and they look wonderful. Healthy Chicken &amp; Veggie Pasta is something that I have loved my whole life.
-
-
+Healthy Chicken & Veggie Pasta is one of the most well liked of current trending meals on earth. It is enjoyed by millions daily. It's easy, it's fast, it tastes yummy. They are nice and they look wonderful. Healthy Chicken & Veggie Pasta is something that I have loved my whole life.
 
 
-To get started with this recipe, we must prepare a few ingredients. You can cook healthy chicken &amp; veggie pasta using 22 ingredients and 21 steps. Here is how you can achieve that.
+
+
+To get started with this recipe, we must prepare a few ingredients. You can cook healthy chicken & veggie pasta using 22 ingredients and 21 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Healthy Chicken &amp; Veggie Pasta:
+##### The ingredients needed to make Healthy Chicken & Veggie Pasta:
 
 1. Make ready  Pasta
 1. Take 1/2 lb pasta
@@ -119,7 +119,7 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 
 <!--inarticleads2-->
 
-##### Steps to make Healthy Chicken &amp; Veggie Pasta:
+##### Steps to make Healthy Chicken & Veggie Pasta:
 
 1. This meal requires fast hands. Cut your chicken and veggies up ahead of time and have your pasta on hand.
 1. Boil salted water for your pasta. I used linguine.
@@ -146,4 +146,4 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 
 
 
-So that's going to wrap this up for this special food healthy chicken &amp; veggie pasta recipe. Thank you very much for your time. I am confident you can make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!
+So that's going to wrap this up for this special food healthy chicken & veggie pasta recipe. Thank you very much for your time. I am confident you can make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

@@ -79,7 +79,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 1. Take 3 table spoons of cooking oil
 
 
-Have one &#34;wet hand&#34; and one &#34;dry hand&#34; -- and use your &#34;wet&#34; hand to transfer chicken from the wet mixture to the coating bowl. This chicken wet fry is inspired by my beef wet fry recipe. Music: Secret Sauce Musician: Jef Music: Make Me Feel. Kenyan Kienyeji chicken (free range) wet fry is very tasty and full of flavor. 
+Have one *wet hand* and one *dry hand* -- and use your *wet* hand to transfer chicken from the wet mixture to the coating bowl. This chicken wet fry is inspired by my beef wet fry recipe. Music: Secret Sauce Musician: Jef Music: Make Me Feel. Kenyan Kienyeji chicken (free range) wet fry is very tasty and full of flavor. 
 
 <!--inarticleads2-->
 

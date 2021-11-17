@@ -66,7 +66,7 @@ To begin with this recipe, we must prepare a few ingredients. You can cook easy 
 1. Prepare 1/2 tsp each; soy sauce and oyster sauce
 1. Prepare pinch Chinese five spices
 1. Prepare  salt and white pepper
-1. Make ready  &#34;You can add cut up Shrimp or Chicken if you like as well; to this mixture.&#34;
+1. Make ready  *You can add cut up Shrimp or Chicken if you like as well; to this mixture.*
 
 
 

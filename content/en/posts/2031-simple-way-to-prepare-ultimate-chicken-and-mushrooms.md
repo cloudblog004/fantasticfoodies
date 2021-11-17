@@ -52,7 +52,7 @@ Hello everybody, I hope you're having an incredible day today. Today, I will sho
 
 Chicken and mushrooms is one of the most popular of recent trending foods on earth. It's appreciated by millions every day. It's easy, it's quick, it tastes yummy. Chicken and mushrooms is something which I have loved my entire life. They're nice and they look fantastic.
 
-Creamy chicken and mushroom dish - a fabulous French seasonal recipe. Make these creamy chicken, leek and mushroom pies from scratch or use up leftover roast chicken and make a stock. This Creamy Chicken Casserole with mushrooms (aka &#34;Chicken Gloria&#34;), will win you over. This chicken bake is the PERFECT party dish and is a reader favorite.
+Creamy chicken and mushroom dish - a fabulous French seasonal recipe. Make these creamy chicken, leek and mushroom pies from scratch or use up leftover roast chicken and make a stock. This Creamy Chicken Casserole with mushrooms (aka *Chicken Gloria*), will win you over. This chicken bake is the PERFECT party dish and is a reader favorite.
 
 
 To get started with this recipe, we have to prepare a few components. You can cook chicken and mushrooms using 9 ingredients and 4 steps. Here is how you cook it.
@@ -84,6 +84,6 @@ Kind of winged it with a rotisserie chicken and boxed broth, was still so. Chick
 1. Put o on plate over rice or by itself
 1. Ready to serve and ENJOY!
 
-Mushroom and Chicken Risotto. this link is to an external site that may or may not meet accessibility guidelines. This chicken and mushrooms recipe is unbelievably easy and is sure to become a new favorite! I looked at the homepage of my website the other day and all I could see was golden, brown, yellowy foods. Working backwards from the most recent: Cheesy topped..on Yummly Creamy Chicken Mushroom Soup, Chicken Mushroom Skillet, Chicken &amp; Mushroom Balsamica. 
+Mushroom and Chicken Risotto. this link is to an external site that may or may not meet accessibility guidelines. This chicken and mushrooms recipe is unbelievably easy and is sure to become a new favorite! I looked at the homepage of my website the other day and all I could see was golden, brown, yellowy foods. Working backwards from the most recent: Cheesy topped..on Yummly Creamy Chicken Mushroom Soup, Chicken Mushroom Skillet, Chicken & Mushroom Balsamica. 
 
 So that is going to wrap this up for this exceptional food chicken and mushrooms recipe. Thanks so much for your time. I'm confident you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

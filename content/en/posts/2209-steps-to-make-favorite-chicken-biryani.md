@@ -49,7 +49,7 @@ recipecategory: Lunch
 
 Hello everybody, hope you're having an amazing day today. Today, I'm gonna show you how to prepare a special dish, chicken biryani. One of my favorites. This time, I will make it a little bit tasty. This will be really delicious.
 
-Chicken Dum Biryani-Hyderabadi Chicken Dum Biryani Step by Step-Chicken Biryani Restaurant Style. Traditional chicken biryani is made by layering marinated chicken and then layered with parboiled rice, herbs,saffron milk &amp; then ghee. I have shared that traditional hyderabadi biryani here. Choose from a chicken biryani, vegetable biryani or other protein of choice.
+Chicken Dum Biryani-Hyderabadi Chicken Dum Biryani Step by Step-Chicken Biryani Restaurant Style. Traditional chicken biryani is made by layering marinated chicken and then layered with parboiled rice, herbs,saffron milk & then ghee. I have shared that traditional hyderabadi biryani here. Choose from a chicken biryani, vegetable biryani or other protein of choice.
 
 Chicken biryani is one of the most popular of current trending meals on earth. It's enjoyed by millions every day. It is easy, it's fast, it tastes yummy. They're nice and they look wonderful. Chicken biryani is something that I have loved my whole life.
 

@@ -31,7 +31,7 @@ recipeinstructions:
 - "Make Roux by mixing the Flour with the Oil. Stir constantly over Med. heat until copper color appears."
 - "Make Chicken Stock by adding the Chicken and Chicken Bouillion Granules to a pot of water and boil until cooked."
 - "Cook Okra down with a little Oil. Mash to pieces and continue to fry down."
-- "Add Stock to Roux. Add Water, Onions, and Celery; stirring constantly. (Add cold water for hot Roux; hot water for cold Roux). The Stock/Water level should be more than 1/2 way. Add Tony&#39;s, Chicken, Sausage, Okra and sprinkle of Red Pepper. Cook for about 30-35 minutes. Add Shrimp, Crab, &amp; Oyster when Gumbo is done. Top with Green Onions and Filet. Serve with Rice."
+- "Add Stock to Roux. Add Water, Onions, and Celery; stirring constantly. (Add cold water for hot Roux; hot water for cold Roux). The Stock/Water level should be more than 1/2 way. Add Tony&#39;s, Chicken, Sausage, Okra and sprinkle of Red Pepper. Cook for about 30-35 minutes. Add Shrimp, Crab, & Oyster when Gumbo is done. Top with Green Onions and Filet. Serve with Rice."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -90,7 +90,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Make Roux by mixing the Flour with the Oil. Stir constantly over Med. heat until copper color appears.
 1. Make Chicken Stock by adding the Chicken and Chicken Bouillion Granules to a pot of water and boil until cooked.
 1. Cook Okra down with a little Oil. Mash to pieces and continue to fry down.
-1. Add Stock to Roux. Add Water, Onions, and Celery; stirring constantly. (Add cold water for hot Roux; hot water for cold Roux). The Stock/Water level should be more than 1/2 way. Add Tony&#39;s, Chicken, Sausage, Okra and sprinkle of Red Pepper. Cook for about 30-35 minutes. Add Shrimp, Crab, &amp; Oyster when Gumbo is done. Top with Green Onions and Filet. Serve with Rice.
+1. Add Stock to Roux. Add Water, Onions, and Celery; stirring constantly. (Add cold water for hot Roux; hot water for cold Roux). The Stock/Water level should be more than 1/2 way. Add Tony&#39;s, Chicken, Sausage, Okra and sprinkle of Red Pepper. Cook for about 30-35 minutes. Add Shrimp, Crab, & Oyster when Gumbo is done. Top with Green Onions and Filet. Serve with Rice.
 1. Ready to serve and ENJOY!
 
 

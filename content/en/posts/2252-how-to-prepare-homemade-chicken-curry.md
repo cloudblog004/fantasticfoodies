@@ -83,7 +83,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can cook
 1. Make ready 2 tsps Coriander Powder
 1. Make ready 1/2 tsp Turmeric Powder
 1. Take 1 tbsp Saunf (PERUM JEERAKAM)  crushed
-1. Take 2 tbsps Coconut slices  (1/2&#34; pieces)
+1. Take 2 tbsps Coconut slices  (1/2* pieces)
 1. Make ready  salt
 1. Make ready 1 tbsp Oil
 1. Prepare  Mustard seed

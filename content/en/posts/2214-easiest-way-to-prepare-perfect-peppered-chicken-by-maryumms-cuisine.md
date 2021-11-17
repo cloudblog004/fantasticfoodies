@@ -88,6 +88,6 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 1. 
 1. Ready to serve and ENJOY!
 
-Today, I&#39;m gonna show you how to prepare a special dish, simple sandwiches by chef maryumms cuisine. This Lemon Pepper Chicken from Delish.com will make you excited for chicken again. If you throw chicken into a pan with salt and pepper and bake it for forever, of course it&#39;s going to be terrible. I know this sounds obvious, but it&#39;s what so many people trying to &#34;eat healthy&#34; do. This homemade lemon pepper chicken is made with lemon, pepper, olive oil, garlic, flour and salt. 
+Today, I&#39;m gonna show you how to prepare a special dish, simple sandwiches by chef maryumms cuisine. This Lemon Pepper Chicken from Delish.com will make you excited for chicken again. If you throw chicken into a pan with salt and pepper and bake it for forever, of course it&#39;s going to be terrible. I know this sounds obvious, but it&#39;s what so many people trying to *eat healthy* do. This homemade lemon pepper chicken is made with lemon, pepper, olive oil, garlic, flour and salt. 
 
 So that's going to wrap this up with this special food peppered chicken by maryumms_cuisine recipe. Thank you very much for reading. I'm confident you will make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

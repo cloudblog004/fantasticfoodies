@@ -35,7 +35,7 @@ recipeinstructions:
 - "And add to a preheated oven on 180 or gas 7 cook for 45 minutes then take out and holding the foiled chicken down with a t towel drain off the juices into a sauce pan"
 - "Place the chicken back in the oven foil removed for 20 minutes."
 - "Meanwhile drain the bits out of the saucepan of juices. If there are any."
-- "Heat up the juices and add Salt &amp; Pepper to taste and stir in add 1 chicken Stock cube in Cup boiling water and add to the juices and s"
+- "Heat up the juices and add Salt & Pepper to taste and stir in add 1 chicken Stock cube in Cup boiling water and add to the juices and s"
 - "Thicken the juices with Cornflour add to a little cold water and a small pinch of Cayenne pepper, this add that little extra taste to the sauce"
 - ""
 - "Heat up the sauce and add the corn flour when hot."
@@ -84,7 +84,7 @@ To begin with this recipe, we must first prepare a few components. You can cook 
 1. Get 1/2 tsp Dried Sage
 1. Take  sauce
 1. Take  Juices from the chicken
-1. Get  Salt &amp; Pepper
+1. Get  Salt & Pepper
 1. Make ready 1 tsp Corn flour
 1. Prepare 1 cup Boiling Water
 1. Prepare 1 small pinch of Cayenne pepper
@@ -106,7 +106,7 @@ To begin with this recipe, we must first prepare a few components. You can cook 
 1. And add to a preheated oven on 180 or gas 7 cook for 45 minutes then take out and holding the foiled chicken down with a t towel drain off the juices into a sauce pan
 1. Place the chicken back in the oven foil removed for 20 minutes.
 1. Meanwhile drain the bits out of the saucepan of juices. If there are any.
-1. Heat up the juices and add Salt &amp; Pepper to taste and stir in add 1 chicken Stock cube in Cup boiling water and add to the juices and s
+1. Heat up the juices and add Salt & Pepper to taste and stir in add 1 chicken Stock cube in Cup boiling water and add to the juices and s
 1. Thicken the juices with Cornflour add to a little cold water and a small pinch of Cayenne pepper, this add that little extra taste to the sauce
 1. 
 1. Heat up the sauce and add the corn flour when hot.

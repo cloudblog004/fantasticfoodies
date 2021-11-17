@@ -1,6 +1,6 @@
 ---
-description: "Steps to Make Award-winning Chicken Alfredo in a garlic parm &amp;amp; herb bread bowl"
-title: "Steps to Make Award-winning Chicken Alfredo in a garlic parm &amp;amp; herb bread bowl"
+description: "Steps to Make Award-winning Chicken Alfredo in a garlic parm & herb bread bowl"
+title: "Steps to Make Award-winning Chicken Alfredo in a garlic parm & herb bread bowl"
 slug: 2995-steps-to-make-award-winning-chicken-alfredo-in-a-garlic-parm-and-amp-herb-bread-bowl
 date: 2022-04-03T16:19:50.665Z
 image: https://img-global.cpcdn.com/recipes/f4598176ec181006/680x482cq70/chicken-alfredo-in-a-garlic-parm-herb-bread-bowl-recipe-main-photo.jpg
@@ -49,20 +49,20 @@ recipecategory: Lunch
 ---
 
 
-![Chicken Alfredo in a garlic parm &amp; herb bread bowl](https://img-global.cpcdn.com/recipes/f4598176ec181006/680x482cq70/chicken-alfredo-in-a-garlic-parm-herb-bread-bowl-recipe-main-photo.jpg)
+![Chicken Alfredo in a garlic parm & herb bread bowl](https://img-global.cpcdn.com/recipes/f4598176ec181006/680x482cq70/chicken-alfredo-in-a-garlic-parm-herb-bread-bowl-recipe-main-photo.jpg)
 
-Hey everyone, hope you're having an incredible day today. Today, I'm gonna show you how to prepare a special dish, chicken alfredo in a garlic parm &amp; herb bread bowl. It is one of my favorites. This time, I am going to make it a bit unique. This is gonna smell and look delicious.
-
-
-
-Chicken Alfredo in a garlic parm &amp; herb bread bowl is one of the most favored of recent trending meals on earth. It is appreciated by millions daily. It's easy, it is fast, it tastes yummy. They are fine and they look fantastic. Chicken Alfredo in a garlic parm &amp; herb bread bowl is something which I've loved my whole life.
+Hey everyone, hope you're having an incredible day today. Today, I'm gonna show you how to prepare a special dish, chicken alfredo in a garlic parm & herb bread bowl. It is one of my favorites. This time, I am going to make it a bit unique. This is gonna smell and look delicious.
 
 
-To begin with this recipe, we must first prepare a few ingredients. You can have chicken alfredo in a garlic parm &amp; herb bread bowl using 11 ingredients and 5 steps. Here is how you cook that.
+
+Chicken Alfredo in a garlic parm & herb bread bowl is one of the most favored of recent trending meals on earth. It is appreciated by millions daily. It's easy, it is fast, it tastes yummy. They are fine and they look fantastic. Chicken Alfredo in a garlic parm & herb bread bowl is something which I've loved my whole life.
+
+
+To begin with this recipe, we must first prepare a few ingredients. You can have chicken alfredo in a garlic parm & herb bread bowl using 11 ingredients and 5 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Chicken Alfredo in a garlic parm &amp; herb bread bowl:
+##### The ingredients needed to make Chicken Alfredo in a garlic parm & herb bread bowl:
 
 1. Make ready 1/2 lb (1 half) a box of your favorite pasta)
 1. Get 3 tablespoons melted butter
@@ -81,7 +81,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 
 <!--inarticleads2-->
 
-##### Steps to make Chicken Alfredo in a garlic parm &amp; herb bread bowl:
+##### Steps to make Chicken Alfredo in a garlic parm & herb bread bowl:
 
 1. Cool chicken breasts according to last recipe. Slice into thin strips.
 1. Boil the noodles in salted water until aldente depending on shape time will vary. Drain and rinse in cold water.
@@ -92,4 +92,4 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 
 
 
-So that is going to wrap it up with this special food chicken alfredo in a garlic parm &amp; herb bread bowl recipe. Thanks so much for your time. I am confident that you will make this at home. There is gonna be more interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
+So that is going to wrap it up with this special food chicken alfredo in a garlic parm & herb bread bowl recipe. Thanks so much for your time. I am confident that you will make this at home. There is gonna be more interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

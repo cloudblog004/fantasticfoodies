@@ -86,7 +86,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 1. Take 2 tablespoons lemon grass minced*
 1. Make ready 1 cup red bell pepper julienned
 1. Get 2 cups carrot
-1. Make ready 2 cups BC squash, peeled &amp; diced into 3/4 inch (2 cm) pieces
+1. Make ready 2 cups BC squash, peeled & diced into 3/4 inch (2 cm) pieces
 1. Make ready 6 tablespoons red Thai curry paste
 1. Take 1 coconut milk can (400 ml)
 1. Get 1 coconut cream can (400 ml)
@@ -104,7 +104,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 1. Make ready 2 lbs chicken thigh boneless skinless diced into 1 inch or 3 cm pieces (1 kg)
 
 
-Dishes like this Thai Chicken Stir-fry with Basil &amp; Mint make me think about a lot of people who are just getting started in. Thai basil chicken, better known in Thai as pad kra pao gai (ผัดกระเพราไก่ pad ka prao gai), is a contender for the most popular, and the most beloved Thai street food dish of all time. Crockpot Thai chicken curry is one of the easiest meals to make and is so tasty. Curry paste, coconut milk, and ginger add a ton of flavor to this healthy dinner recipe. 
+Dishes like this Thai Chicken Stir-fry with Basil & Mint make me think about a lot of people who are just getting started in. Thai basil chicken, better known in Thai as pad kra pao gai (ผัดกระเพราไก่ pad ka prao gai), is a contender for the most popular, and the most beloved Thai street food dish of all time. Crockpot Thai chicken curry is one of the easiest meals to make and is so tasty. Curry paste, coconut milk, and ginger add a ton of flavor to this healthy dinner recipe. 
 
 <!--inarticleads2-->
 

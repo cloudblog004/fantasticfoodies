@@ -59,7 +59,7 @@ To begin with this particular recipe, we have to first prepare a few components.
 1. Prepare 15 oz can pinto beans
 
 
-Pour Salsa Over Chicken and Seasoning. This is hands down the most flavorful, healthy and &#34;easy&#34; meal I&#39;ve ever made. Sure, the crock-pot is a miracle worker, but many slow cooker recipes call for super-processed ingredients. Combine the jar of salsa and chopped onion. 
+Pour Salsa Over Chicken and Seasoning. This is hands down the most flavorful, healthy and *easy* meal I&#39;ve ever made. Sure, the crock-pot is a miracle worker, but many slow cooker recipes call for super-processed ingredients. Combine the jar of salsa and chopped onion. 
 
 <!--inarticleads2-->
 

@@ -60,7 +60,7 @@ Hello everybody, I hope you are having an incredible day today. Today, I'm gonna
 
 Chicken in Coconut Water is one of the most well liked of recent trending meals on earth. It's appreciated by millions every day. It is simple, it is quick, it tastes yummy. They're nice and they look fantastic. Chicken in Coconut Water is something which I've loved my entire life.
 
-This coconut chicken curry can be made in ONE POT &amp; is packed with flavor! Cream of coconut is a sweetened version of coconut cream. Chicken pop is chicken braised in coconut water until it cooks tender, then it depends on the personal preference if you want to continue to fry the chicken, baked it or broil it. But also if you would like to serve it after just done braised the chicken.
+This coconut chicken curry can be made in ONE POT & is packed with flavor! Cream of coconut is a sweetened version of coconut cream. Chicken pop is chicken braised in coconut water until it cooks tender, then it depends on the personal preference if you want to continue to fry the chicken, baked it or broil it. But also if you would like to serve it after just done braised the chicken.
 
 
 To begin with this particular recipe, we must prepare a few components. You can have chicken in coconut water using 15 ingredients and 6 steps. Here is how you can achieve it.

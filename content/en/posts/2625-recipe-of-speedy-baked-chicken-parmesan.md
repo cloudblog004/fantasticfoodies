@@ -71,7 +71,7 @@ To get started with this recipe, we must first prepare a few components. You can
 ##### The ingredients needed to make Baked Chicken Parmesan:
 
 1. Get 4 boneless chicken breasts
-1. Make ready  Barilla Pasta Sauce, Tomato &amp; Basil - 24 oz jar
+1. Make ready  Barilla Pasta Sauce, Tomato & Basil - 24 oz jar
 1. Prepare 16 oz Fettuccine
 1. Take 8 oz Finely Shredded Parmesan Cheese
 1. Get Block mozzarella cheese 8 oz

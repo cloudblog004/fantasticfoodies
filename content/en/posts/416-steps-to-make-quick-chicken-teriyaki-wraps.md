@@ -27,8 +27,8 @@ recipeingredient:
 - " Teriyaki sauce needed for garnishing"
 recipeinstructions:
 - "1. First of all add flour in a plate. Then add black pepper powder, salt, and mix"
-- "2. Cut the chicken into strips &amp; coat well with this flour mixture"
-- "3. Heat the oil. Add chicken then cook for 5 minutes &amp; keep aside Your chicken is ready"
+- "2. Cut the chicken into strips & coat well with this flour mixture"
+- "3. Heat the oil. Add chicken then cook for 5 minutes & keep aside Your chicken is ready"
 - "For sauce  Stir and cook the Soy sauce for a while, then add brown sugar, knorr cube Black pepper powder,Worcestershire sauce add Honey then mix"
 - "Take lettuce leave first layer with tomatoes cucumbers than teriyaki chicken then pour sauce and sprinkle sesame seed."
 - "Ready to serve and ENJOY!"
@@ -86,8 +86,8 @@ Teriyaki Chicken Wraps. this link is to an external site that may or may not mee
 ##### Steps to make Chicken teriyaki wraps:
 
 1. 1. First of all add flour in a plate. Then add black pepper powder, salt, and mix
-1. 2. Cut the chicken into strips &amp; coat well with this flour mixture
-1. 3. Heat the oil. Add chicken then cook for 5 minutes &amp; keep aside Your chicken is ready
+1. 2. Cut the chicken into strips & coat well with this flour mixture
+1. 3. Heat the oil. Add chicken then cook for 5 minutes & keep aside Your chicken is ready
 1. For sauce  Stir and cook the Soy sauce for a while, then add brown sugar, knorr cube Black pepper powder,Worcestershire sauce add Honey then mix
 1. Take lettuce leave first layer with tomatoes cucumbers than teriyaki chicken then pour sauce and sprinkle sesame seed.
 1. Ready to serve and ENJOY!

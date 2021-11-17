@@ -24,7 +24,7 @@ recipeingredient:
 - " Optserve alone OR over elbow noodlesrice or in tortillas"
 - " See tips"
 recipeinstructions:
-- "Add everything to crockpot, except the to taste ingredients and cook on high 4 hours or low 6. Once done-Shred chicken in pot and stir. &amp; then decide if u want to serve over elbow noodles/rice/ tortillas or just make you a bowl by itself. Regardless top with cheese,sour cream, &amp; fresh cilantro. Or near the end stir in some sour cream, cilantro, cheese into pot. Your preference."
+- "Add everything to crockpot, except the to taste ingredients and cook on high 4 hours or low 6. Once done-Shred chicken in pot and stir. & then decide if u want to serve over elbow noodles/rice/ tortillas or just make you a bowl by itself. Regardless top with cheese,sour cream, & fresh cilantro. Or near the end stir in some sour cream, cilantro, cheese into pot. Your preference."
 - "Tips:You can also use fiesta ranch powder, chicken taco seasoning or original taco seasoning. Or half chicken taco and half original. Which is what I did with the taco seasoning. I used half chicken taco pk and half original. The chicken one I suggest if u just want to do one pack. I also used regular ranch powder tho. Also, you can serve over rice in a bowl, or mix in cooked elbow noodles at the end. And set to warm."
 - "Main Ingredients. But also remember cilantro, sour cream and cheese on top."
 - "You can serve over rice, elbow noodles, or in tortillas, or alone."
@@ -63,11 +63,11 @@ To begin with this particular recipe, we must prepare a few components. You can 
 ##### The ingredients needed to make Crockpot Chicken Ranch Taco Chili:
 
 1. Prepare 1 pk org hidden valley ranch dressing powder or fiesta ranch pow
-1. Take 1 pack chicken taco seasoning&amp; original 1/2 pk of each
-1. Make ready 3 cans Bush white chili beans or 2 w chili beans &amp; 1 black beans
+1. Take 1 pack chicken taco seasoning& original 1/2 pk of each
+1. Make ready 3 cans Bush white chili beans or 2 w chili beans & 1 black beans
 1. Prepare 1 can Mild rotel tomatoes
 1. Take 2-3 Chicken breasts cut across
-1. Take To taste optional cilantro, sour cream, shredded cheese, s&amp;p
+1. Take To taste optional cilantro, sour cream, shredded cheese, s&p
 1. Make ready As needed diced onion, minced garlic cloves,bell pepper
 1. Take  Opt:kernel corn or Mexican fiesta corn
 1. Take  Opt:serve alone OR over elbow noodles/rice or in tortillas
@@ -80,7 +80,7 @@ To begin with this particular recipe, we must prepare a few components. You can 
 
 ##### Instructions to make Crockpot Chicken Ranch Taco Chili:
 
-1. Add everything to crockpot, except the to taste ingredients and cook on high 4 hours or low 6. Once done-Shred chicken in pot and stir. &amp; then decide if u want to serve over elbow noodles/rice/ tortillas or just make you a bowl by itself. Regardless top with cheese,sour cream, &amp; fresh cilantro. Or near the end stir in some sour cream, cilantro, cheese into pot. Your preference.
+1. Add everything to crockpot, except the to taste ingredients and cook on high 4 hours or low 6. Once done-Shred chicken in pot and stir. & then decide if u want to serve over elbow noodles/rice/ tortillas or just make you a bowl by itself. Regardless top with cheese,sour cream, & fresh cilantro. Or near the end stir in some sour cream, cilantro, cheese into pot. Your preference.
 1. Tips:You can also use fiesta ranch powder, chicken taco seasoning or original taco seasoning. Or half chicken taco and half original. Which is what I did with the taco seasoning. I used half chicken taco pk and half original. The chicken one I suggest if u just want to do one pack. I also used regular ranch powder tho. Also, you can serve over rice in a bowl, or mix in cooked elbow noodles at the end. And set to warm.
 1. Main Ingredients. But also remember cilantro, sour cream and cheese on top.
 1. You can serve over rice, elbow noodles, or in tortillas, or alone.

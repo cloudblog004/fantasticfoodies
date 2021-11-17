@@ -28,8 +28,8 @@ recipeingredient:
 recipeinstructions:
 - "Turn on broiler to high with rack in middle of oven."
 - "Combine 1/4 C breadcrumbs and 1/2 Tbsp oil and set aside."
-- "Put chicken in plastic wrap and pound out to about 1/4&#34;. Sprinkle both sides with S&amp;P."
-- "Using an oven proof skillet, heat 1Tbsp of oil to medium and cook the chicken for 2-3 minutes on each side until golden. Put on a plate. Now add the onion and garlic and cook for 2-3 minutes until soft. Remove the pan from the heat and add the tomatoes, Italian seasoning and remaining S&amp;P. Return pan to medium heat and cook for about 2-3 minutes more. Now add the chicken back in to the sauce and coat well."
+- "Put chicken in plastic wrap and pound out to about 1/4*. Sprinkle both sides with S&P."
+- "Using an oven proof skillet, heat 1Tbsp of oil to medium and cook the chicken for 2-3 minutes on each side until golden. Put on a plate. Now add the onion and garlic and cook for 2-3 minutes until soft. Remove the pan from the heat and add the tomatoes, Italian seasoning and remaining S&P. Return pan to medium heat and cook for about 2-3 minutes more. Now add the chicken back in to the sauce and coat well."
 - "Sprinkle 1/4 C of cheese on each piece of chicken and then put on the breadcrumbs and top with the rest of the cheese. Broil until the cheese is melted. Garnish with basil. Serve over pasta."
 - "Ready to serve and ENJOY!"
 categories:
@@ -56,7 +56,7 @@ Hello everybody, it's John, welcome to our recipe page. Today, I will show you a
 
 Quick chicken parmesan is one of the most favored of recent trending meals in the world. It's appreciated by millions every day. It's easy, it's fast, it tastes yummy. They're fine and they look wonderful. Quick chicken parmesan is something that I've loved my whole life.
 
-Baked chicken Parmesan with spaghetti sauce is a quick meal to put together in weeknights and fancy enough for dinner parties. This faster version of Chicken Parmesan is perfect for a cozy weeknight dinner. Chicken is topped with Prego® Traditional Italian Sauce, mozzarella and Parmesan cheeses, baked to tenderness and served over. Be the first to rate &amp; review!
+Baked chicken Parmesan with spaghetti sauce is a quick meal to put together in weeknights and fancy enough for dinner parties. This faster version of Chicken Parmesan is perfect for a cozy weeknight dinner. Chicken is topped with Prego® Traditional Italian Sauce, mozzarella and Parmesan cheeses, baked to tenderness and served over. Be the first to rate & review!
 
 
 To begin with this particular recipe, we have to first prepare a few components. You can have quick chicken parmesan using 12 ingredients and 5 steps. Here is how you cook that.
@@ -87,8 +87,8 @@ Chicken Parmesan is the Italian comfort food that has it all — crispy chicken 
 
 1. Turn on broiler to high with rack in middle of oven.
 1. Combine 1/4 C breadcrumbs and 1/2 Tbsp oil and set aside.
-1. Put chicken in plastic wrap and pound out to about 1/4&#34;. Sprinkle both sides with S&amp;P.
-1. Using an oven proof skillet, heat 1Tbsp of oil to medium and cook the chicken for 2-3 minutes on each side until golden. Put on a plate. Now add the onion and garlic and cook for 2-3 minutes until soft. Remove the pan from the heat and add the tomatoes, Italian seasoning and remaining S&amp;P. Return pan to medium heat and cook for about 2-3 minutes more. Now add the chicken back in to the sauce and coat well.
+1. Put chicken in plastic wrap and pound out to about 1/4*. Sprinkle both sides with S&P.
+1. Using an oven proof skillet, heat 1Tbsp of oil to medium and cook the chicken for 2-3 minutes on each side until golden. Put on a plate. Now add the onion and garlic and cook for 2-3 minutes until soft. Remove the pan from the heat and add the tomatoes, Italian seasoning and remaining S&P. Return pan to medium heat and cook for about 2-3 minutes more. Now add the chicken back in to the sauce and coat well.
 1. Sprinkle 1/4 C of cheese on each piece of chicken and then put on the breadcrumbs and top with the rest of the cheese. Broil until the cheese is melted. Garnish with basil. Serve over pasta.
 1. Ready to serve and ENJOY!
 

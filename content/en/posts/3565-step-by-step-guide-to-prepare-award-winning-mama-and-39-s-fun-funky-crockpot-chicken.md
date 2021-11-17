@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Prepare Award-winning Mama&amp;#39;s Fun Funky Crockpot Chicken"
-title: "Step-by-Step Guide to Prepare Award-winning Mama&amp;#39;s Fun Funky Crockpot Chicken"
+description: "Step-by-Step Guide to Prepare Award-winning Mama's Fun Funky Crockpot Chicken"
+title: "Step-by-Step Guide to Prepare Award-winning Mama's Fun Funky Crockpot Chicken"
 slug: 3565-step-by-step-guide-to-prepare-award-winning-mama-and-39-s-fun-funky-crockpot-chicken
 date: 2022-05-21T21:20:08.067Z
 image: https://img-global.cpcdn.com/recipes/5997862918815744/680x482cq70/mamas-fun-funky-crockpot-chicken-recipe-main-photo.jpg

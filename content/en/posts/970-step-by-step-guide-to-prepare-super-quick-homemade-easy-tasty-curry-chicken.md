@@ -24,8 +24,8 @@ recipeingredient:
 - " Salt  pepper"
 - " Baby potatoes"
 recipeinstructions:
-- "In a frying pan, place a little bit of oil &amp; butter."
-- "Add the onion &amp; the garlic. Add a pinch of salt &amp; black pepper."
+- "In a frying pan, place a little bit of oil & butter."
+- "Add the onion & the garlic. Add a pinch of salt & black pepper."
 - "About after 5 minutes, put tomato sauce and the curry powder."
 - "Now add the chicken breasts. (The chicken breasts are seasoned.)"
 - "Once the chicken is cooked, time to add the cream! And then put the potatoes in and let it cook for 7 mins. (It can be coconut cream but i think it&#39;s too sweet for the curry so i just used cream)"
@@ -72,7 +72,7 @@ To begin with this particular recipe, we must prepare a few components. You can 
 1. Get  Butter
 1. Get 2-3 tbsp curry powder
 1. Make ready  Cream
-1. Prepare  Salt &amp; pepper
+1. Prepare  Salt & pepper
 1. Make ready  Baby potatoes
 
 
@@ -82,8 +82,8 @@ To begin with this particular recipe, we must prepare a few components. You can 
 
 ##### Steps to make Easy Tasty Curry Chicken:
 
-1. In a frying pan, place a little bit of oil &amp; butter.
-1. Add the onion &amp; the garlic. Add a pinch of salt &amp; black pepper.
+1. In a frying pan, place a little bit of oil & butter.
+1. Add the onion & the garlic. Add a pinch of salt & black pepper.
 1. About after 5 minutes, put tomato sauce and the curry powder.
 1. Now add the chicken breasts. (The chicken breasts are seasoned.)
 1. Once the chicken is cooked, time to add the cream! And then put the potatoes in and let it cook for 7 mins. (It can be coconut cream but i think it&#39;s too sweet for the curry so i just used cream)

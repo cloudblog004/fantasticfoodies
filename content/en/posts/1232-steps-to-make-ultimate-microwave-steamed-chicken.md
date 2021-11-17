@@ -22,7 +22,7 @@ recipeingredient:
 - "1 Sesame oil ginger balsamic vinegar"
 recipeinstructions:
 - "Mix the seasonings together on a plate. Place the chicken tenderloin and flip to marinate. Tightly cover with plastic wrap, and microwave for 1 ~ 2 minutes, then done."
-- "&#34;Quickly Steamed Moist Chicken&#34;is great for sandwiches, salad, and fresh spring rolls.  https://cookpad.com/us/recipes/151307-steamed-moist-chicken-in-a-microwave           (see recipe)"
+- "*Quickly Steamed Moist Chicken*is great for sandwiches, salad, and fresh spring rolls.  https://cookpad.com/us/recipes/151307-steamed-moist-chicken-in-a-microwave           (see recipe)"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -73,7 +73,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 ##### Instructions to make Microwave Steamed Chicken:
 
 1. Mix the seasonings together on a plate. Place the chicken tenderloin and flip to marinate. Tightly cover with plastic wrap, and microwave for 1 ~ 2 minutes, then done.
-1. &#34;Quickly Steamed Moist Chicken&#34;is great for sandwiches, salad, and fresh spring rolls.  https://cookpad.com/us/recipes/151307-steamed-moist-chicken-in-a-microwave           (see recipe)
+1. *Quickly Steamed Moist Chicken*is great for sandwiches, salad, and fresh spring rolls.  https://cookpad.com/us/recipes/151307-steamed-moist-chicken-in-a-microwave           (see recipe)
 1. Ready to serve and ENJOY!
 
 

@@ -49,7 +49,7 @@ recipecategory: Dinner
 
 Hello everybody, it's Louise, welcome to my recipe site. Today, we're going to prepare a distinctive dish, continental veggietable sandwiches. It is one of my favorites food recipes. For mine, I'm gonna make it a little bit unique. This will be really delicious.
 
-Vegetable Sandwich with a glass of juice completes the morning breakfast &amp; provides one with the spirit to work for the Take two slices of bread. Make sandwich with the vegetable filling. Know the easy cooking method of continental recipes step by step. Vegetable sandwich is a type of vegetarian sandwich consisting of a vegetable filling between bread.
+Vegetable Sandwich with a glass of juice completes the morning breakfast & provides one with the spirit to work for the Take two slices of bread. Make sandwich with the vegetable filling. Know the easy cooking method of continental recipes step by step. Vegetable sandwich is a type of vegetarian sandwich consisting of a vegetable filling between bread.
 
 Continental veggietable sandwiches is one of the most well liked of current trending meals on earth. It's easy, it is quick, it tastes yummy. It is enjoyed by millions every day. They are nice and they look fantastic. Continental veggietable sandwiches is something which I've loved my entire life.
 

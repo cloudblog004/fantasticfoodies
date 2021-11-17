@@ -58,7 +58,7 @@ recipecategory: Lunch
 
 Hey everyone, it's Brad, welcome to our recipe page. Today, I will show you a way to make a distinctive dish, chicken keema balls. One of my favorites food recipes. For mine, I will make it a little bit tasty. This is gonna smell and look delicious.
 
-Chicken Keema Balls is a super easy chicken starters recipe. Quick way to impress your guests! Learn more about Chicken keema balls (kola urundai) ,by vahchef sanjay thumma Kola Urundai is one of the delicious recipes of south india. Keema Balls Recipe, is a hot &amp; spicy dish.
+Chicken Keema Balls is a super easy chicken starters recipe. Quick way to impress your guests! Learn more about Chicken keema balls (kola urundai) ,by vahchef sanjay thumma Kola Urundai is one of the delicious recipes of south india. Keema Balls Recipe, is a hot & spicy dish.
 
 Chicken keema balls is one of the most well liked of recent trending foods in the world. It is appreciated by millions daily. It's simple, it is quick, it tastes yummy. Chicken keema balls is something that I have loved my entire life. They're fine and they look fantastic.
 

@@ -67,7 +67,7 @@ To begin with this recipe, we must prepare a few ingredients. You can have chick
 1. Take  Breadcrumbs
 
 
-Pedophile: &#34;I have chicken tenders in my basement.&#34; Robber: &#34;You will put the chicken tenders Crack cocaine tenderized that people with the name Sebastion like to snort and do other things with. Chicken tenders the dish, sometimes also called chicken fingers or chicken strips, are chicken tenders that are breaded and deep fried, which explains why the two are synonymously named. Chicken tenders are a favorite go-to meal for kids and adults alike. So what happens if you want to reheat them, whether they were made a bit earlier or they&#39;ve been sitting in your fridge for a few days? 
+Pedophile: *I have chicken tenders in my basement.* Robber: *You will put the chicken tenders Crack cocaine tenderized that people with the name Sebastion like to snort and do other things with. Chicken tenders the dish, sometimes also called chicken fingers or chicken strips, are chicken tenders that are breaded and deep fried, which explains why the two are synonymously named. Chicken tenders are a favorite go-to meal for kids and adults alike. So what happens if you want to reheat them, whether they were made a bit earlier or they&#39;ve been sitting in your fridge for a few days? 
 
 <!--inarticleads2-->
 

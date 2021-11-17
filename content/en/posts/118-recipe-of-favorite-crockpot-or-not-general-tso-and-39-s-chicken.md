@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Favorite Crockpot (or not) General Tso&amp;#39;s Chicken"
-title: "Recipe of Favorite Crockpot (or not) General Tso&amp;#39;s Chicken"
+description: "Recipe of Favorite Crockpot (or not) General Tso's Chicken"
+title: "Recipe of Favorite Crockpot (or not) General Tso's Chicken"
 slug: 118-recipe-of-favorite-crockpot-or-not-general-tso-and-39-s-chicken
 date: 2022-05-03T17:45:23.235Z
 image: https://img-global.cpcdn.com/recipes/d88b887efdea9342/680x482cq70/crockpot-or-not-general-tsos-chicken-recipe-main-photo.jpg

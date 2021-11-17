@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Award-winning Baked chicken with smedley&amp;#39;s smoke bean"
-title: "Easiest Way to Make Award-winning Baked chicken with smedley&amp;#39;s smoke bean"
+description: "Easiest Way to Make Award-winning Baked chicken with smedley's smoke bean"
+title: "Easiest Way to Make Award-winning Baked chicken with smedley's smoke bean"
 slug: 2577-easiest-way-to-make-award-winning-baked-chicken-with-smedley-and-39-s-smoke-bean
 date: 2022-05-13T14:20:08.182Z
 image: https://img-global.cpcdn.com/recipes/e36112d5b8318d83/680x482cq70/baked-chicken-with-smedleys-smoke-bean-recipe-main-photo.jpg

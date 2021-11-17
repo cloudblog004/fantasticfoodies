@@ -75,7 +75,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 1. Take 1 packet Goya tomato seasoning
 
 
-Picadillo (Spanish pronunciation: [pikaˈðijo], &#34;mince&#34;) is a traditional dish in many Latin American countries and the Philippines. It is made with ground meat (most commonly beef), tomatoes (tomato sauce may be used as a substitute), and also raisins, olives, and other ingredients that vary by region. This Goulash recipe is comfort food at its finest, plus it&#39;s a one-pot wonder! Originally hailing from medieval Hungary, goulash was a common dish prepared by cowboys and herdsmen in the. 
+Picadillo (Spanish pronunciation: [pikaˈðijo], *mince*) is a traditional dish in many Latin American countries and the Philippines. It is made with ground meat (most commonly beef), tomatoes (tomato sauce may be used as a substitute), and also raisins, olives, and other ingredients that vary by region. This Goulash recipe is comfort food at its finest, plus it&#39;s a one-pot wonder! Originally hailing from medieval Hungary, goulash was a common dish prepared by cowboys and herdsmen in the. 
 
 <!--inarticleads2-->
 

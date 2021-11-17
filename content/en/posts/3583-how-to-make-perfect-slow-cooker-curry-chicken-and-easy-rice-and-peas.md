@@ -89,7 +89,7 @@ To get started with this recipe, we have to prepare a few components. You can co
 1. Make ready  soy sauce
 
 
-Perfect to pair with rice or roti/naan. Add all curry ingredients except for the broth, tomatoes rice and garnishes in to the crock pot. Pour the vegetable broth over top. This slow cooker chicken curry is just right - juicy chicken &amp; a flavorful gravy that has the right consistency! 
+Perfect to pair with rice or roti/naan. Add all curry ingredients except for the broth, tomatoes rice and garnishes in to the crock pot. Pour the vegetable broth over top. This slow cooker chicken curry is just right - juicy chicken & a flavorful gravy that has the right consistency! 
 
 <!--inarticleads2-->
 
@@ -106,6 +106,6 @@ Perfect to pair with rice or roti/naan. Add all curry ingredients except for the
 1. Serve chicken over rice and enjoy!
 1. Ready to serve and ENJOY!
 
-Pour the vegetable broth over top. This slow cooker chicken curry is just right - juicy chicken &amp; a flavorful gravy that has the right consistency! It makes for a wholesome dinner. The chicken is juicy, the gravy is luscious and not watery, and its fantastic served with rice or naan bread. It&#39;s incredibly easy, with minimal prep, while. 
+Pour the vegetable broth over top. This slow cooker chicken curry is just right - juicy chicken & a flavorful gravy that has the right consistency! It makes for a wholesome dinner. The chicken is juicy, the gravy is luscious and not watery, and its fantastic served with rice or naan bread. It&#39;s incredibly easy, with minimal prep, while. 
 
 So that is going to wrap it up for this exceptional food slow cooker curry chicken and easy rice and peas recipe. Thank you very much for reading. I am confident that you will make this at home. There's gonna be more interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

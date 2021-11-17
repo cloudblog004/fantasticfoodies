@@ -74,7 +74,7 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 1. Make ready 1/4 cup Oil
 
 
-It is made with tomatoes and common spices present in every kitchen in Pakistan. The chicken is fried in ginger and garlic to get rid of the smell and then all the spices and tomatoes are added to it and it is kept over medium heat to. How To Make Chicken Ka Salan At Home By Jairy&#39;s Cook Book Please Share Like &amp; Subscribe To My Channel For More Yummy Recipes. 
+It is made with tomatoes and common spices present in every kitchen in Pakistan. The chicken is fried in ginger and garlic to get rid of the smell and then all the spices and tomatoes are added to it and it is kept over medium heat to. How To Make Chicken Ka Salan At Home By Jairy&#39;s Cook Book Please Share Like & Subscribe To My Channel For More Yummy Recipes. 
 
 <!--inarticleads2-->
 
@@ -88,6 +88,6 @@ It is made with tomatoes and common spices present in every kitchen in Pakistan.
 1. Phir jab Chicken gll jaey to kitni gravy pasand ho utna pani dal k aik boil anay dain Phir oper say hara dhaiyaa garnish kar lain.
 1. Ready to serve and ENJOY!
 
-How To Make Chicken Ka Salan At Home By Jairy&#39;s Cook Book Please Share Like &amp; Subscribe To My Channel For More Yummy Recipes. We need to grind a paste. Source : Blunder May Onion.adrak Lason. Super Easy Inexpensive Spaghetti Vegetable Chow Mein. 
+How To Make Chicken Ka Salan At Home By Jairy&#39;s Cook Book Please Share Like & Subscribe To My Channel For More Yummy Recipes. We need to grind a paste. Source : Blunder May Onion.adrak Lason. Super Easy Inexpensive Spaghetti Vegetable Chow Mein. 
 
 So that is going to wrap this up for this exceptional food chicken ka salan simple n tasty recipe. Thank you very much for reading. I'm confident you will make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

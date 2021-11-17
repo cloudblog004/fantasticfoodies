@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Prepare Any-night-of-the-week Easy &amp;#39;n&amp;#39; Fast Chicken Soup"
-title: "Step-by-Step Guide to Prepare Any-night-of-the-week Easy &amp;#39;n&amp;#39; Fast Chicken Soup"
+description: "Step-by-Step Guide to Prepare Any-night-of-the-week Easy 'n' Fast Chicken Soup"
+title: "Step-by-Step Guide to Prepare Any-night-of-the-week Easy 'n' Fast Chicken Soup"
 slug: 1121-step-by-step-guide-to-prepare-any-night-of-the-week-easy-and-39-n-and-39-fast-chicken-soup
 date: 2022-03-06T16:22:47.614Z
 image: https://img-global.cpcdn.com/recipes/7d5dc001acb5c34c/680x482cq70/easy-n-fast-chicken-soup-recipe-main-photo.jpg

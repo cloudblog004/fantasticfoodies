@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Favorite Simple &amp;amp; Tasty Green Onion &amp;amp; Chicken Soup"
-title: "Recipe of Favorite Simple &amp;amp; Tasty Green Onion &amp;amp; Chicken Soup"
+description: "Recipe of Favorite Simple & Tasty Green Onion & Chicken Soup"
+title: "Recipe of Favorite Simple & Tasty Green Onion & Chicken Soup"
 slug: 668-recipe-of-favorite-simple-and-amp-tasty-green-onion-and-amp-chicken-soup
 date: 2022-01-25T22:05:42.118Z
 image: https://img-global.cpcdn.com/recipes/5453013884862464/680x482cq70/simple-tasty-green-onion-chicken-soup-recipe-main-photo.jpg
@@ -52,20 +52,20 @@ recipecategory: Dessert
 ---
 
 
-![Simple &amp; Tasty Green Onion &amp; Chicken Soup](https://img-global.cpcdn.com/recipes/5453013884862464/680x482cq70/simple-tasty-green-onion-chicken-soup-recipe-main-photo.jpg)
+![Simple & Tasty Green Onion & Chicken Soup](https://img-global.cpcdn.com/recipes/5453013884862464/680x482cq70/simple-tasty-green-onion-chicken-soup-recipe-main-photo.jpg)
 
-Hello everybody, it is me again, Dan, welcome to my recipe site. Today, we're going to prepare a distinctive dish, simple &amp; tasty green onion &amp; chicken soup. It is one of my favorites food recipes. This time, I'm gonna make it a bit unique. This is gonna smell and look delicious.
-
-
-
-Simple &amp; Tasty Green Onion &amp; Chicken Soup is one of the most favored of recent trending foods in the world. It is appreciated by millions every day. It's simple, it is quick, it tastes yummy. They are nice and they look fantastic. Simple &amp; Tasty Green Onion &amp; Chicken Soup is something that I've loved my whole life.
+Hello everybody, it is me again, Dan, welcome to my recipe site. Today, we're going to prepare a distinctive dish, simple & tasty green onion & chicken soup. It is one of my favorites food recipes. This time, I'm gonna make it a bit unique. This is gonna smell and look delicious.
 
 
-To begin with this recipe, we have to first prepare a few ingredients. You can cook simple &amp; tasty green onion &amp; chicken soup using 8 ingredients and 11 steps. Here is how you can achieve it.
+
+Simple & Tasty Green Onion & Chicken Soup is one of the most favored of recent trending foods in the world. It is appreciated by millions every day. It's simple, it is quick, it tastes yummy. They are nice and they look fantastic. Simple & Tasty Green Onion & Chicken Soup is something that I've loved my whole life.
+
+
+To begin with this recipe, we have to first prepare a few ingredients. You can cook simple & tasty green onion & chicken soup using 8 ingredients and 11 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Simple &amp; Tasty Green Onion &amp; Chicken Soup:
+##### The ingredients needed to make Simple & Tasty Green Onion & Chicken Soup:
 
 1. Make ready 1 Chicken breast
 1. Make ready 1 Green onions
@@ -81,7 +81,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can c
 
 <!--inarticleads2-->
 
-##### Steps to make Simple &amp; Tasty Green Onion &amp; Chicken Soup:
+##### Steps to make Simple & Tasty Green Onion & Chicken Soup:
 
 1. Salt and pepper the chicken breast and fry in a non stick frying pan until golden-browned. You don&#39;t need to cook through at this point.
 1. After it browns, transfer to a paper towel and remove excess fat.
@@ -98,4 +98,4 @@ To begin with this recipe, we have to first prepare a few ingredients. You can c
 
 
 
-So that's going to wrap it up for this special food simple &amp; tasty green onion &amp; chicken soup recipe. Thank you very much for reading. I am sure you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!
+So that's going to wrap it up for this special food simple & tasty green onion & chicken soup recipe. Thank you very much for reading. I am sure you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

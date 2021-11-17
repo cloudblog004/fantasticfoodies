@@ -26,11 +26,11 @@ recipeingredient:
 - "1 packet roll sheets"
 - "5 tbs flour mixed with 6 tbs water paste"
 recipeinstructions:
-- "Heat the oil &amp; add onions. Saute them."
-- "Add capsicum, cabbage, carrots &amp; saute them."
-- "Add potatoes &amp; chicken. Give a good mix."
+- "Heat the oil & add onions. Saute them."
+- "Add capsicum, cabbage, carrots & saute them."
+- "Add potatoes & chicken. Give a good mix."
 - "Remove from heat. Add spices and mix them all"
-- "Take a sheet. Put 1-2 tbsp mixture &amp; fold it in the shape of roll."
+- "Take a sheet. Put 1-2 tbsp mixture & fold it in the shape of roll."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -70,8 +70,8 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Take 1 kg capsicum (chopped)
 1. Make ready 1 large cabbage (chopped)
 1. Take 1/2 kg carrots (chopped)
-1. Prepare 1 kg potatoes (boiled &amp; mashed)
-1. Prepare 1 kg chicken (boiled &amp; shreded)
+1. Prepare 1 kg potatoes (boiled & mashed)
+1. Prepare 1 kg chicken (boiled & shreded)
 1. Take  Salt as per taste
 1. Prepare 4 tbs red chilli powder
 1. Prepare 2 tsp coriander powder
@@ -85,11 +85,11 @@ To get started with this particular recipe, we must prepare a few components. Yo
 
 ##### Steps to make Chicken Veg Spring Roll:
 
-1. Heat the oil &amp; add onions. Saute them.
-1. Add capsicum, cabbage, carrots &amp; saute them.
-1. Add potatoes &amp; chicken. Give a good mix.
+1. Heat the oil & add onions. Saute them.
+1. Add capsicum, cabbage, carrots & saute them.
+1. Add potatoes & chicken. Give a good mix.
 1. Remove from heat. Add spices and mix them all
-1. Take a sheet. Put 1-2 tbsp mixture &amp; fold it in the shape of roll.
+1. Take a sheet. Put 1-2 tbsp mixture & fold it in the shape of roll.
 1. Ready to serve and ENJOY!
 
 

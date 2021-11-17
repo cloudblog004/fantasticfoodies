@@ -79,7 +79,7 @@ recipecategory: Dinner
 
 Hello everybody, it is Drew, welcome to our recipe page. Today, we're going to make a special dish, white sauce cheesy chicken casserole. It is one of my favorites. This time, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
 
-Eat as-is or serve over mashed potatoes or rice. Chicken Florentine casserole, which can also be adapted with either fish or shrimp, lies on a bed of spinach leaves and mushrooms, has a creamy white sauce mixed with garlic, Parmesan cheese, and Italian. For lighter and more sensitive palates, reduce the hot sauce measurement by half. Why should you make Cheesy Chicken &amp; Rice Casserole?
+Eat as-is or serve over mashed potatoes or rice. Chicken Florentine casserole, which can also be adapted with either fish or shrimp, lies on a bed of spinach leaves and mushrooms, has a creamy white sauce mixed with garlic, Parmesan cheese, and Italian. For lighter and more sensitive palates, reduce the hot sauce measurement by half. Why should you make Cheesy Chicken & Rice Casserole?
 
 White sauce cheesy chicken casserole is one of the most popular of current trending meals in the world. It's easy, it is quick, it tastes yummy. It's enjoyed by millions every day. White sauce cheesy chicken casserole is something that I have loved my whole life. They're fine and they look wonderful.
 

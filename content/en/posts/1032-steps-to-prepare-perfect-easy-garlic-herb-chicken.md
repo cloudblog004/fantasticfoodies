@@ -25,7 +25,7 @@ recipeinstructions:
 - "Marinate, covered, for 4-48 hours."
 - "Pat a dab of EVOO on each breast, but be careful not to rub the spices off."
 - "Roast at 350° for approximately 40 minutes or until thermometer reaches 165°"
-- "Variations; Fresh herbs, rosemary, oregano, thyme, marjoram, parsley, basil, fresh garlic, white pepper, dehydrated &amp; chopped minced onions, lemon peel, other chicken parts, pork, beef, fish, veggies, zucchini, yellow squash, parmesean, asiago, herbs de provence,"
+- "Variations; Fresh herbs, rosemary, oregano, thyme, marjoram, parsley, basil, fresh garlic, white pepper, dehydrated & chopped minced onions, lemon peel, other chicken parts, pork, beef, fish, veggies, zucchini, yellow squash, parmesean, asiago, herbs de provence,"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -79,7 +79,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Marinate, covered, for 4-48 hours.
 1. Pat a dab of EVOO on each breast, but be careful not to rub the spices off.
 1. Roast at 350° for approximately 40 minutes or until thermometer reaches 165°
-1. Variations; Fresh herbs, rosemary, oregano, thyme, marjoram, parsley, basil, fresh garlic, white pepper, dehydrated &amp; chopped minced onions, lemon peel, other chicken parts, pork, beef, fish, veggies, zucchini, yellow squash, parmesean, asiago, herbs de provence,
+1. Variations; Fresh herbs, rosemary, oregano, thyme, marjoram, parsley, basil, fresh garlic, white pepper, dehydrated & chopped minced onions, lemon peel, other chicken parts, pork, beef, fish, veggies, zucchini, yellow squash, parmesean, asiago, herbs de provence,
 1. Ready to serve and ENJOY!
 
 

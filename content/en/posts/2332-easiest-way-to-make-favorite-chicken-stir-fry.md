@@ -28,7 +28,7 @@ recipeingredient:
 recipeinstructions:
 - "In a pan; add"
 - "Mix all together for about 10 minutes; add"
-- "Add spinach; carrots &amp; brocolli and cover for 5 minutes. Mix it and serve. Never over Cook your vegetables; a little crunch is great&#34;"
+- "Add spinach; carrots & brocolli and cover for 5 minutes. Mix it and serve. Never over Cook your vegetables; a little crunch is great*"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -65,7 +65,7 @@ To get started with this recipe, we must prepare a few components. You can cook 
 
 1. Get 2 large chicken breast - cut into strips
 1. Prepare 2 tbsp cooking oil
-1. Make ready 1 tbsp garlic &amp; ginger (fresh)
+1. Make ready 1 tbsp garlic & ginger (fresh)
 1. Prepare 1 1/2 green pepper cut into strips
 1. Prepare 1 1/4 bunch spinach
 1. Get 1 1/4 bunch brocolli
@@ -85,7 +85,7 @@ To get started with this recipe, we must prepare a few components. You can cook 
 
 1. In a pan; add
 1. Mix all together for about 10 minutes; add
-1. Add spinach; carrots &amp; brocolli and cover for 5 minutes. Mix it and serve. Never over Cook your vegetables; a little crunch is great&#34;
+1. Add spinach; carrots & brocolli and cover for 5 minutes. Mix it and serve. Never over Cook your vegetables; a little crunch is great*
 1. Ready to serve and ENJOY!
 
 

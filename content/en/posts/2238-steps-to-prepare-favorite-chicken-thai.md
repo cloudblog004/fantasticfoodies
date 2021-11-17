@@ -72,7 +72,7 @@ To get started with this particular recipe, we must first prepare a few componen
 1. Take 2 tsp Peanut butter
 
 
-This homemade Thai Chicken stir-fry is better than your local Thai takeout. Dishes like this Thai Chicken Stir-fry with Basil &amp; Mint make me think about a lot of people who are just getting started in. The Best Thai Panang Chicken Curry we&#39;ve ever made. Cancel your takeout order and give it a try! 
+This homemade Thai Chicken stir-fry is better than your local Thai takeout. Dishes like this Thai Chicken Stir-fry with Basil & Mint make me think about a lot of people who are just getting started in. The Best Thai Panang Chicken Curry we&#39;ve ever made. Cancel your takeout order and give it a try! 
 
 <!--inarticleads2-->
 

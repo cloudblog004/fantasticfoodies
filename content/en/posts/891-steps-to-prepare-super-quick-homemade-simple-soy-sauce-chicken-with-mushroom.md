@@ -58,7 +58,7 @@ To get started with this recipe, we have to prepare a few components. You can co
 1. Get  鸡肉切块 Chicken, cut into pieces (200g)
 1. Get  蘑菇 Mushroom (200g)
 1. Make ready  老姜切丝 Old ginger
-1. Take  酱清，酱油，蚝油个一茶匙 Light &amp; dark soy sauce, oyster sauce (1 tablespoon)
+1. Take  酱清，酱油，蚝油个一茶匙 Light & dark soy sauce, oyster sauce (1 tablespoon)
 1. Prepare  麻油一小茶匙 Sesame oil (1 teaspoon)
 
 

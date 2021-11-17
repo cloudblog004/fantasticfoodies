@@ -63,7 +63,7 @@ To get started with this particular recipe, we have to prepare a few ingredients
 1. Prepare 4 Cherry Tomatoes chopped in 4
 1. Take 3 tbls Grated Cheese
 1. Make ready 1 Ripe Avocado sliced
-1. Take  Salt &amp; Pepper
+1. Take  Salt & Pepper
 1. Make ready 1 Wrap
 
 

@@ -51,7 +51,7 @@ Hello everybody, I hope you are having an incredible day today. Today, I'm gonna
 
 Chicken n rice casserole is one of the most well liked of current trending meals in the world. It is appreciated by millions every day. It's simple, it is fast, it tastes delicious. They're fine and they look wonderful. Chicken n rice casserole is something which I've loved my whole life.
 
-This basic casserole combines chicken, uncooked rice, cream of chicken soup, and seasoned salt, topped off with shredded Monterey Jack cheese and jalapenos. Chicken and rice casseroles are a staple of American cooking. This version uses cream of mushroom, cream of celery, and cream of chicken to give a rich flavor to a quick school-night dinner when getting your back-to-school routine settled. Is there anything more comforting than a chicken &amp; rice casserole?
+This basic casserole combines chicken, uncooked rice, cream of chicken soup, and seasoned salt, topped off with shredded Monterey Jack cheese and jalapenos. Chicken and rice casseroles are a staple of American cooking. This version uses cream of mushroom, cream of celery, and cream of chicken to give a rich flavor to a quick school-night dinner when getting your back-to-school routine settled. Is there anything more comforting than a chicken & rice casserole?
 
 
 To get started with this recipe, we must prepare a few ingredients. You can cook chicken n rice casserole using 8 ingredients and 4 steps. Here is how you can achieve that.

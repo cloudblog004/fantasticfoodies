@@ -85,7 +85,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 1. Prepare 1/2 tsp oregano
 1. Take 1/2 tsp pepper
 1. Take 1/2 tsp salt
-1. Prepare  FOR RED SAUCE - 15 oz tomato sauce &amp; can of red enchilada sauce
+1. Prepare  FOR RED SAUCE - 15 oz tomato sauce & can of red enchilada sauce
 1. Make ready  FOR GREEN SAUCE -large can green enchilada sauce 28-32oz
 
 

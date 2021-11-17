@@ -30,7 +30,7 @@ recipeingredient:
 recipeinstructions:
 - "Heat oil in pan and add garlic and onions. Cook garlic until light golden brown and onions translucent. Add bay leaf. Cook potatoes for about 5 minutes or until soft but not mushy. Set aside."
 - "Using the same pan/pot cook chicken in left over oil for 10-15 minutes or both sides are browned (I like cooking my chicken in oil to give it a crispy outside, you may skip this and just boil chicken in water until cooked)."
-- "Add carrots, peas, green bell peppers the cooked garlic, onions &amp; bay leaf previously set aside. Pour water to deglaze pan add chicken buillon cube and simmer for another five minutes."
+- "Add carrots, peas, green bell peppers the cooked garlic, onions & bay leaf previously set aside. Pour water to deglaze pan add chicken buillon cube and simmer for another five minutes."
 - "Pour tomato sauce and let it simmer on low heat for another 10 minutes. Season with sugar, salt, and pepper. Remove from heat and serve with steamed white rice."
 - "Ready to serve and ENJOY!"
 categories:
@@ -89,7 +89,7 @@ To begin with this particular recipe, we must prepare a few components. You can 
 
 1. Heat oil in pan and add garlic and onions. Cook garlic until light golden brown and onions translucent. Add bay leaf. Cook potatoes for about 5 minutes or until soft but not mushy. Set aside.
 1. Using the same pan/pot cook chicken in left over oil for 10-15 minutes or both sides are browned (I like cooking my chicken in oil to give it a crispy outside, you may skip this and just boil chicken in water until cooked).
-1. Add carrots, peas, green bell peppers the cooked garlic, onions &amp; bay leaf previously set aside. Pour water to deglaze pan add chicken buillon cube and simmer for another five minutes.
+1. Add carrots, peas, green bell peppers the cooked garlic, onions & bay leaf previously set aside. Pour water to deglaze pan add chicken buillon cube and simmer for another five minutes.
 1. Pour tomato sauce and let it simmer on low heat for another 10 minutes. Season with sugar, salt, and pepper. Remove from heat and serve with steamed white rice.
 1. Ready to serve and ENJOY!
 

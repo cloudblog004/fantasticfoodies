@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Ultimate Healthy Chicken Breast with Plum &amp;amp; Grated Radish"
-title: "Step-by-Step Guide to Make Ultimate Healthy Chicken Breast with Plum &amp;amp; Grated Radish"
+description: "Step-by-Step Guide to Make Ultimate Healthy Chicken Breast with Plum & Grated Radish"
+title: "Step-by-Step Guide to Make Ultimate Healthy Chicken Breast with Plum & Grated Radish"
 slug: 1403-step-by-step-guide-to-make-ultimate-healthy-chicken-breast-with-plum-and-amp-grated-radish
 date: 2022-05-23T00:06:03.136Z
 image: https://img-global.cpcdn.com/recipes/6610488277336064/680x482cq70/healthy-chicken-breast-with-plum-grated-radish-recipe-main-photo.jpg
@@ -49,20 +49,20 @@ recipecategory: Dinner
 ---
 
 
-![Healthy Chicken Breast with Plum &amp; Grated Radish](https://img-global.cpcdn.com/recipes/6610488277336064/680x482cq70/healthy-chicken-breast-with-plum-grated-radish-recipe-main-photo.jpg)
+![Healthy Chicken Breast with Plum & Grated Radish](https://img-global.cpcdn.com/recipes/6610488277336064/680x482cq70/healthy-chicken-breast-with-plum-grated-radish-recipe-main-photo.jpg)
 
-Hello everybody, it's Louise, welcome to my recipe page. Today, we're going to prepare a distinctive dish, healthy chicken breast with plum &amp; grated radish. One of my favorites food recipes. For mine, I will make it a bit tasty. This will be really delicious.
+Hello everybody, it's Louise, welcome to my recipe page. Today, we're going to prepare a distinctive dish, healthy chicken breast with plum & grated radish. One of my favorites food recipes. For mine, I will make it a bit tasty. This will be really delicious.
 
-Healthy Chicken Breast with Plum &amp; Grated Radish is one of the most favored of recent trending foods on earth. It's enjoyed by millions every day. It's simple, it is quick, it tastes yummy. They're fine and they look wonderful. Healthy Chicken Breast with Plum &amp; Grated Radish is something which I have loved my entire life.
-
-
+Healthy Chicken Breast with Plum & Grated Radish is one of the most favored of recent trending foods on earth. It's enjoyed by millions every day. It's simple, it is quick, it tastes yummy. They're fine and they look wonderful. Healthy Chicken Breast with Plum & Grated Radish is something which I have loved my entire life.
 
 
-To get started with this recipe, we must first prepare a few components. You can have healthy chicken breast with plum &amp; grated radish using 10 ingredients and 6 steps. Here is how you can achieve that.
+
+
+To get started with this recipe, we must first prepare a few components. You can have healthy chicken breast with plum & grated radish using 10 ingredients and 6 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Healthy Chicken Breast with Plum &amp; Grated Radish:
+##### The ingredients needed to make Healthy Chicken Breast with Plum & Grated Radish:
 
 1. Prepare 400 grams Chicken breasts
 1. Prepare 6 cm Daikon radish
@@ -80,7 +80,7 @@ To get started with this recipe, we must first prepare a few components. You can
 
 <!--inarticleads2-->
 
-##### Instructions to make Healthy Chicken Breast with Plum &amp; Grated Radish:
+##### Instructions to make Healthy Chicken Breast with Plum & Grated Radish:
 
 1. Cut the lettuce into 3 cm strips. Arrange on a plate and leave to chill in the refrigerator.
 1. Cut the chicken breast meat into bite-sized pieces, season with salt and pepper and coat in flour.
@@ -92,4 +92,4 @@ To get started with this recipe, we must first prepare a few components. You can
 
 
 
-So that's going to wrap this up with this exceptional food healthy chicken breast with plum &amp; grated radish recipe. Thanks so much for reading. I'm sure that you can make this at home. There is gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!
+So that's going to wrap this up with this exceptional food healthy chicken breast with plum & grated radish recipe. Thanks so much for reading. I'm sure that you can make this at home. There is gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

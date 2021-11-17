@@ -44,7 +44,7 @@ recipecategory: Dinner
 
 Hey everyone, it is John, welcome to my recipe page. Today, I will show you a way to make a special dish, chicken egg sandwitch with tea. One of my favorites. This time, I'm gonna make it a bit unique. This will be really delicious.
 
-See recipes for Egg &amp; Chicken Sandwich too. They are nice and they look fantastic. Egg chicken sandwich with YUMMy Tea is something that I have loved my whole life. In small bowl, mash egg with fork; add curry powder, mayonnaise, and salt and pepper to taste.
+See recipes for Egg & Chicken Sandwich too. They are nice and they look fantastic. Egg chicken sandwich with YUMMy Tea is something that I have loved my whole life. In small bowl, mash egg with fork; add curry powder, mayonnaise, and salt and pepper to taste.
 
 Chicken egg sandwitch with tea is one of the most well liked of recent trending foods on earth. It's enjoyed by millions daily. It is easy, it's quick, it tastes delicious. Chicken egg sandwitch with tea is something which I've loved my entire life. They're fine and they look wonderful.
 

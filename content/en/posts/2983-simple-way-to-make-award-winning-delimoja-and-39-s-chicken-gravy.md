@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Make Award-winning DeliMoja&amp;#39;s Chicken Gravy"
-title: "Simple Way to Make Award-winning DeliMoja&amp;#39;s Chicken Gravy"
+description: "Simple Way to Make Award-winning DeliMoja's Chicken Gravy"
+title: "Simple Way to Make Award-winning DeliMoja's Chicken Gravy"
 slug: 2983-simple-way-to-make-award-winning-delimoja-and-39-s-chicken-gravy
 date: 2022-02-09T03:52:57.658Z
 image: https://img-global.cpcdn.com/recipes/3a3020be23f252de/680x482cq70/delimojas-chicken-gravy-recipe-main-photo.jpg

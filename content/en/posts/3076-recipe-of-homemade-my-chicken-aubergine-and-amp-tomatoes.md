@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Homemade My Chicken Aubergine &amp;amp; Tomatoes"
-title: "Recipe of Homemade My Chicken Aubergine &amp;amp; Tomatoes"
+description: "Recipe of Homemade My Chicken Aubergine & Tomatoes"
+title: "Recipe of Homemade My Chicken Aubergine & Tomatoes"
 slug: 3076-recipe-of-homemade-my-chicken-aubergine-and-amp-tomatoes
 date: 2022-05-27T04:09:38.374Z
 image: https://img-global.cpcdn.com/recipes/919e7d81e22ff516/680x482cq70/my-chicken-aubergine-tomatoes-recipe-main-photo.jpg
@@ -53,20 +53,20 @@ recipecategory: Dinner
 ---
 
 
-![My Chicken Aubergine &amp; Tomatoes](https://img-global.cpcdn.com/recipes/919e7d81e22ff516/680x482cq70/my-chicken-aubergine-tomatoes-recipe-main-photo.jpg)
+![My Chicken Aubergine & Tomatoes](https://img-global.cpcdn.com/recipes/919e7d81e22ff516/680x482cq70/my-chicken-aubergine-tomatoes-recipe-main-photo.jpg)
 
-Hello everybody, hope you are having an amazing day today. Today, I'm gonna show you how to prepare a special dish, my chicken aubergine &amp; tomatoes. One of my favorites. For mine, I'm gonna make it a little bit tasty. This will be really delicious.
+Hello everybody, hope you are having an amazing day today. Today, I'm gonna show you how to prepare a special dish, my chicken aubergine & tomatoes. One of my favorites. For mine, I'm gonna make it a little bit tasty. This will be really delicious.
 
-My Chicken Aubergine &amp; Tomatoes is one of the most well liked of current trending meals on earth. It's simple, it's quick, it tastes yummy. It's enjoyed by millions daily. My Chicken Aubergine &amp; Tomatoes is something which I've loved my whole life. They're nice and they look wonderful.
-
-
+My Chicken Aubergine & Tomatoes is one of the most well liked of current trending meals on earth. It's simple, it's quick, it tastes yummy. It's enjoyed by millions daily. My Chicken Aubergine & Tomatoes is something which I've loved my whole life. They're nice and they look wonderful.
 
 
-To begin with this recipe, we must prepare a few components. You can cook my chicken aubergine &amp; tomatoes using 14 ingredients and 6 steps. Here is how you cook that.
+
+
+To begin with this recipe, we must prepare a few components. You can cook my chicken aubergine & tomatoes using 14 ingredients and 6 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make My Chicken Aubergine &amp; Tomatoes:
+##### The ingredients needed to make My Chicken Aubergine & Tomatoes:
 
 1. Make ready 3 tbls Olive Oil
 1. Get 3 Chicken Breasts cut into long thick pieces
@@ -88,7 +88,7 @@ To begin with this recipe, we must prepare a few components. You can cook my chi
 
 <!--inarticleads2-->
 
-##### Steps to make My Chicken Aubergine &amp; Tomatoes:
+##### Steps to make My Chicken Aubergine & Tomatoes:
 
 1. Heat up the oil and Add the Garlic fry for 1 minute then the Aubergines
 1. Add the italian Herbs and the Parsley and then the chicken you will need more olive oil at tbis point
@@ -100,4 +100,4 @@ To begin with this recipe, we must prepare a few components. You can cook my chi
 
 
 
-So that is going to wrap it up with this exceptional food my chicken aubergine &amp; tomatoes recipe. Thank you very much for your time. I'm sure you will make this at home. There is gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+So that is going to wrap it up with this exceptional food my chicken aubergine & tomatoes recipe. Thank you very much for your time. I'm sure you will make this at home. There is gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

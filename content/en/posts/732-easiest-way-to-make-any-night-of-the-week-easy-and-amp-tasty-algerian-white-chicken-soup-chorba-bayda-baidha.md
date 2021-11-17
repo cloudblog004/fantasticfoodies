@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Any-night-of-the-week Easy &amp;amp; Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha)"
-title: "Easiest Way to Make Any-night-of-the-week Easy &amp;amp; Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha)"
+description: "Easiest Way to Make Any-night-of-the-week Easy & Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha)"
+title: "Easiest Way to Make Any-night-of-the-week Easy & Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha)"
 slug: 732-easiest-way-to-make-any-night-of-the-week-easy-and-amp-tasty-algerian-white-chicken-soup-chorba-bayda-baidha
 date: 2022-01-29T17:32:13.056Z
 image: https://img-global.cpcdn.com/recipes/32201324f9ff82af/680x482cq70/easy-tasty-algerian-white-chicken-soup-chorba-bayda-baidha-recipe-main-photo.jpg
@@ -60,20 +60,20 @@ recipecategory: Lunch
 ---
 
 
-![Easy &amp; Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha)](https://img-global.cpcdn.com/recipes/32201324f9ff82af/680x482cq70/easy-tasty-algerian-white-chicken-soup-chorba-bayda-baidha-recipe-main-photo.jpg)
+![Easy & Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha)](https://img-global.cpcdn.com/recipes/32201324f9ff82af/680x482cq70/easy-tasty-algerian-white-chicken-soup-chorba-bayda-baidha-recipe-main-photo.jpg)
 
-Hey everyone, it is Louise, welcome to my recipe page. Today, we're going to make a distinctive dish, easy &amp; tasty algerian white chicken soup (chorba bayda / baidha). One of my favorites food recipes. This time, I am going to make it a bit tasty. This will be really delicious.
+Hey everyone, it is Louise, welcome to my recipe page. Today, we're going to make a distinctive dish, easy & tasty algerian white chicken soup (chorba bayda / baidha). One of my favorites food recipes. This time, I am going to make it a bit tasty. This will be really delicious.
 
-Перевод слова easy, американское и британское произношение, транскрипция easy task — лёгкое задание easy path — удобная тропа easy country — воен. легкопроходимая местность. Easy (TV series), an American comedy-drama anthology series. From Middle English eesy, esy, partly from Middle English ese (&#34;ease&#34;) + -y, equivalent to ease +‎ -y, and partly from Old French aisié (&#34;eased, at ease, at leisure&#34;), past participle of aisier (&#34;to put at ease&#34;), from aise (&#34;empty space, elbow room, opportunity&#34;. With Michael Chernus, Jane Adams, Elizabeth Reaser, Jacqueline Toboni.
+Перевод слова easy, американское и британское произношение, транскрипция easy task — лёгкое задание easy path — удобная тропа easy country — воен. легкопроходимая местность. Easy (TV series), an American comedy-drama anthology series. From Middle English eesy, esy, partly from Middle English ese (*ease*) + -y, equivalent to ease +‎ -y, and partly from Old French aisié (*eased, at ease, at leisure*), past participle of aisier (*to put at ease*), from aise (*empty space, elbow room, opportunity*. With Michael Chernus, Jane Adams, Elizabeth Reaser, Jacqueline Toboni.
 
-Easy &amp; Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha) is one of the most well liked of current trending foods on earth. It is appreciated by millions every day. It's simple, it is quick, it tastes yummy. They're nice and they look fantastic. Easy &amp; Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha) is something that I've loved my whole life.
+Easy & Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha) is one of the most well liked of current trending foods on earth. It is appreciated by millions every day. It's simple, it is quick, it tastes yummy. They're nice and they look fantastic. Easy & Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha) is something that I've loved my whole life.
 
 
-To begin with this recipe, we must first prepare a few components. You can cook easy &amp; tasty algerian white chicken soup (chorba bayda / baidha) using 18 ingredients and 9 steps. Here is how you can achieve that.
+To begin with this recipe, we must first prepare a few components. You can cook easy & tasty algerian white chicken soup (chorba bayda / baidha) using 18 ingredients and 9 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Easy &amp; Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha):
+##### The ingredients needed to make Easy & Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha):
 
 1. Make ready  Soup Base:
 1. Make ready 4 chicken drumsticks or thighs (c. 500g), bones included (skin is optional)
@@ -99,7 +99,7 @@ To begin with this recipe, we must first prepare a few components. You can cook 
 
 <!--inarticleads2-->
 
-##### Steps to make Easy &amp; Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha):
+##### Steps to make Easy & Tasty Algerian White Chicken Soup (Chorba Bayda / Baidha):
 
 1. In a large cooking pot fitted with a lid, warm ghee (or oil and butter) over medium heat. Add chicken pieces and brown on all sides for about 5-10&#39;.
 1. Remove the browned chicken from the pot and set aside. In the same pot add onion, garlic, carrot and celery, cook over a low-medium heat while stirring it so it doesn&#39;t burn. Scrape the bottom of the pot to remove any browned chicken bits, which will form part of the soup base. Cook until the onion has softened and is translucent.
@@ -114,4 +114,4 @@ To begin with this recipe, we must first prepare a few components. You can cook 
 
 
 
-So that's going to wrap it up with this exceptional food easy &amp; tasty algerian white chicken soup (chorba bayda / baidha) recipe. Thank you very much for your time. I am confident that you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
+So that's going to wrap it up with this exceptional food easy & tasty algerian white chicken soup (chorba bayda / baidha) recipe. Thank you very much for your time. I am confident that you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

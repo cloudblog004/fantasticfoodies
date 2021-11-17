@@ -51,7 +51,7 @@ recipecategory: Lunch
 
 Hey everyone, I hope you are having an incredible day today. Today, we're going to prepare a distinctive dish, crock pot chicken and dumpling with rice. It is one of my favorites. For mine, I'm gonna make it a bit tasty. This is gonna smell and look delicious.
 
-How do you make chicken &amp; dumplings in a slow cooker? Crock pot Chicken and dumpling with rice. cajun seasoning•bisquick•milk•chicken breast, deboned.skinless•boiling water•lemon pepper seasonings•yellow onion•salt and pepper to taste. A delicious way to make chicken and dumplings when you don&#39;t have time to make them the old fashioned way. This is easy and takes very little time to put.
+How do you make chicken & dumplings in a slow cooker? Crock pot Chicken and dumpling with rice. cajun seasoning•bisquick•milk•chicken breast, deboned.skinless•boiling water•lemon pepper seasonings•yellow onion•salt and pepper to taste. A delicious way to make chicken and dumplings when you don&#39;t have time to make them the old fashioned way. This is easy and takes very little time to put.
 
 Crock pot Chicken and dumpling with rice is one of the most popular of recent trending foods in the world. It is enjoyed by millions daily. It's easy, it's fast, it tastes delicious. Crock pot Chicken and dumpling with rice is something which I have loved my entire life. They're nice and they look fantastic.
 

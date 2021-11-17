@@ -38,7 +38,7 @@ recipeingredient:
 recipeinstructions:
 - "Marinate chicken with all ingredients below and let leave at least 30 mins"
 - "How to wrap chicken pandan step by step below • fried with medium heat at beginning until chicken cooked then fried medium high heat until pandan leaves crispy"
-- "Boiling &amp; Reduce sauce with all ingredients below and add toasted white sesame at last one"
+- "Boiling & Reduce sauce with all ingredients below and add toasted white sesame at last one"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -105,7 +105,7 @@ To get started with this particular recipe, we have to prepare a few ingredients
 
 1. Marinate chicken with all ingredients below and let leave at least 30 mins
 1. How to wrap chicken pandan step by step below • fried with medium heat at beginning until chicken cooked then fried medium high heat until pandan leaves crispy
-1. Boiling &amp; Reduce sauce with all ingredients below and add toasted white sesame at last one
+1. Boiling & Reduce sauce with all ingredients below and add toasted white sesame at last one
 1. Ready to serve and ENJOY!
 
 

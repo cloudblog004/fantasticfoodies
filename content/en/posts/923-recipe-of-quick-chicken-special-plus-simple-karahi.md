@@ -58,7 +58,7 @@ recipecategory: Dessert
 
 Hello everybody, hope you're having an amazing day today. Today, I'm gonna show you how to prepare a special dish, chicken special plus simple karahi.. One of my favorites food recipes. This time, I am going to make it a little bit tasty. This is gonna smell and look delicious.
 
-Great recipe for Chicken special plus simple karahi. its my fav recipe with little amount of time. #eid k pakwan. Add chicken and saute until colours change. Add powder masala with little amount of water. How to Make Chicken Karahi, Step by Step Simple &amp; Delicious Chicken Karahi Recipe in Urdu/Hindi with English Subtitles.
+Great recipe for Chicken special plus simple karahi. its my fav recipe with little amount of time. #eid k pakwan. Add chicken and saute until colours change. Add powder masala with little amount of water. How to Make Chicken Karahi, Step by Step Simple & Delicious Chicken Karahi Recipe in Urdu/Hindi with English Subtitles.
 
 Chicken special plus simple karahi. is one of the most favored of recent trending meals on earth. It is enjoyed by millions daily. It's easy, it's fast, it tastes delicious. Chicken special plus simple karahi. is something which I've loved my whole life. They are nice and they look wonderful.
 

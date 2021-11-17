@@ -1,6 +1,6 @@
 ---
-description: "How to Make Award-winning TX&amp;#39;s Style ~ Spicy Chicken Tenders -Low fat, tender, juicy, tasty in 10 min!"
-title: "How to Make Award-winning TX&amp;#39;s Style ~ Spicy Chicken Tenders -Low fat, tender, juicy, tasty in 10 min!"
+description: "How to Make Award-winning TX's Style ~ Spicy Chicken Tenders -Low fat, tender, juicy, tasty in 10 min!"
+title: "How to Make Award-winning TX's Style ~ Spicy Chicken Tenders -Low fat, tender, juicy, tasty in 10 min!"
 slug: 660-how-to-make-award-winning-tx-and-39-s-style-spicy-chicken-tenders-low-fat-tender-juicy-tasty-in-10-min
 date: 2022-01-24T16:53:24.055Z
 image: https://img-global.cpcdn.com/recipes/5114504109096960/680x482cq70/txs-style-spicy-chicken-tenders-low-fat-tender-juicy-tasty-in-10-min-recipe-main-photo.jpg

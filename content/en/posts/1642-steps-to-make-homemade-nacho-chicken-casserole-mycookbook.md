@@ -56,7 +56,7 @@ Nacho chicken casserole
 #mycookbook is one of the most favored of recent trending foods in the world. It is appreciated by millions every day. It is simple, it's fast, it tastes delicious. Nacho chicken casserole
 #mycookbook is something which I've loved my entire life. They are nice and they look fantastic.
 
-&#34;Throw down&#34; that leftover chicken to make a one-dish taco casserole. Keto and casseroles seem to go hand in hand when you think about the type of high-fat foods that are being included. Keto and casseroles seem to go hand in hand when you think about the type of high-fat foods that are being included. All of the cheeses you&#39;re able to use.
+*Throw down* that leftover chicken to make a one-dish taco casserole. Keto and casseroles seem to go hand in hand when you think about the type of high-fat foods that are being included. Keto and casseroles seem to go hand in hand when you think about the type of high-fat foods that are being included. All of the cheeses you&#39;re able to use.
 
 
 To get started with this particular recipe, we must first prepare a few components. You can cook nacho chicken casserole
@@ -91,7 +91,7 @@ Recipe photo may include foods and ingredients that are not a part of this recip
 1. Notes- I like to add a little sour cream to each serving. Because I made a lot, I made this in the ninja foodie, I used a full bag of corn and more chicken, and rice, so I knew a baking dish was to small. In some of the recipe you can see I added more, but that is the written original recipe.add more if you want too and use two baking dishes lol. You do you.
 1. Ready to serve and ENJOY!
 
-Dorito Casserole a cheesy casserole the family goes. Chicken Casserole is a cheesy and delicious Casserole recipe, made with Shredded Chicken, Nacho This Chicken Doritos Casserole Recipe is seriously the best idea for busy moms and dads. Be the first to rate &amp; review! Nacho Chicken Casserole recipe: Try this Nacho Chicken Casserole recipe, or contribute your own. Line bottom of casserole with crushed tortilla chips. 
+Dorito Casserole a cheesy casserole the family goes. Chicken Casserole is a cheesy and delicious Casserole recipe, made with Shredded Chicken, Nacho This Chicken Doritos Casserole Recipe is seriously the best idea for busy moms and dads. Be the first to rate & review! Nacho Chicken Casserole recipe: Try this Nacho Chicken Casserole recipe, or contribute your own. Line bottom of casserole with crushed tortilla chips. 
 
 So that is going to wrap this up with this exceptional food nacho chicken casserole
 #mycookbook recipe. Thank you very much for reading. I'm confident that you can make this at home. There's gonna be interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

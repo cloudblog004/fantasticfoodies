@@ -43,7 +43,7 @@ recipecategory: Dessert
 
 Hello everybody, I hope you are having an amazing day today. Today, I'm gonna show you how to make a distinctive dish, bread kachori. It is one of my favorites. For mine, I am going to make it a bit tasty. This is gonna smell and look delicious.
 
-See recipes for Bread kachori, Paneer, Corn &amp; Pyaz Kachori too. Bread Kachori Recipe, How To Make Bread Kachori Recipe. Kachori is famous snack all over india. In bread kachori bread rounds are filled with potato and cheesy mixture.
+See recipes for Bread kachori, Paneer, Corn & Pyaz Kachori too. Bread Kachori Recipe, How To Make Bread Kachori Recipe. Kachori is famous snack all over india. In bread kachori bread rounds are filled with potato and cheesy mixture.
 
 Bread kachori is one of the most popular of recent trending meals on earth. It is easy, it's quick, it tastes delicious. It's enjoyed by millions every day. Bread kachori is something that I've loved my entire life. They are nice and they look fantastic.
 
@@ -54,7 +54,7 @@ To begin with this recipe, we must prepare a few ingredients. You can have bread
 
 ##### The ingredients needed to make Bread kachori:
 
-1. Take 2 Boiled Potatoes (mashed) 1/2 Chicken Breast (boiled &amp; shreded)
+1. Take 2 Boiled Potatoes (mashed) 1/2 Chicken Breast (boiled & shreded)
 1. Get 2-3 chopped green chilli Salt to taste 1-2 tsp Chaat Masala
 1. Prepare 1 tsp Red Chilli Powder 1-2 tsp black pepper crushed
 1. Make ready 2-3 tbs green coriander 6 bread slices

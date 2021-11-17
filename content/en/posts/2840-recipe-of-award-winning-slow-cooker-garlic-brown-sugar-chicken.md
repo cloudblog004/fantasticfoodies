@@ -60,7 +60,7 @@ To get started with this recipe, we have to first prepare a few ingredients. You
 1. Make ready  Salt and pepper to taste
 
 
-In a bowl combine brown sugar, vinegar, soda, garlic, soy sauce &amp; pepper. Take chicken pieces out of crock pot and place in a separate bowl. Bourbon adds a smoky depth to this easy slow-cooker chicken. Chicken tastes even better when you don&#39;t actually have to cook it. 
+In a bowl combine brown sugar, vinegar, soda, garlic, soy sauce & pepper. Take chicken pieces out of crock pot and place in a separate bowl. Bourbon adds a smoky depth to this easy slow-cooker chicken. Chicken tastes even better when you don&#39;t actually have to cook it. 
 
 <!--inarticleads2-->
 

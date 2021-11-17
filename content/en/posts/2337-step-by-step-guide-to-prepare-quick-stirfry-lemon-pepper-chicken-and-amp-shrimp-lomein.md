@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Prepare Quick Stirfry Lemon Pepper Chicken &amp;amp; Shrimp Lomein"
-title: "Step-by-Step Guide to Prepare Quick Stirfry Lemon Pepper Chicken &amp;amp; Shrimp Lomein"
+description: "Step-by-Step Guide to Prepare Quick Stirfry Lemon Pepper Chicken & Shrimp Lomein"
+title: "Step-by-Step Guide to Prepare Quick Stirfry Lemon Pepper Chicken & Shrimp Lomein"
 slug: 2337-step-by-step-guide-to-prepare-quick-stirfry-lemon-pepper-chicken-and-amp-shrimp-lomein
 date: 2021-11-10T23:25:21.489Z
 image: https://img-global.cpcdn.com/recipes/4868236718899200/680x482cq70/stirfry-lemon-pepper-chicken-shrimp-lomein-recipe-main-photo.jpg
@@ -52,20 +52,20 @@ recipecategory: Dinner
 ---
 
 
-![Stirfry Lemon Pepper Chicken &amp; Shrimp Lomein](https://img-global.cpcdn.com/recipes/4868236718899200/680x482cq70/stirfry-lemon-pepper-chicken-shrimp-lomein-recipe-main-photo.jpg)
+![Stirfry Lemon Pepper Chicken & Shrimp Lomein](https://img-global.cpcdn.com/recipes/4868236718899200/680x482cq70/stirfry-lemon-pepper-chicken-shrimp-lomein-recipe-main-photo.jpg)
 
-Hey everyone, hope you're having an amazing day today. Today, I will show you a way to prepare a distinctive dish, stirfry lemon pepper chicken &amp; shrimp lomein. One of my favorites. For mine, I'm gonna make it a bit tasty. This will be really delicious.
-
-
-
-Stirfry Lemon Pepper Chicken &amp; Shrimp Lomein is one of the most popular of current trending meals on earth. It is enjoyed by millions daily. It is easy, it is fast, it tastes delicious. They are nice and they look wonderful. Stirfry Lemon Pepper Chicken &amp; Shrimp Lomein is something which I have loved my entire life.
+Hey everyone, hope you're having an amazing day today. Today, I will show you a way to prepare a distinctive dish, stirfry lemon pepper chicken & shrimp lomein. One of my favorites. For mine, I'm gonna make it a bit tasty. This will be really delicious.
 
 
-To begin with this recipe, we have to first prepare a few ingredients. You can cook stirfry lemon pepper chicken &amp; shrimp lomein using 15 ingredients and 4 steps. Here is how you cook that.
+
+Stirfry Lemon Pepper Chicken & Shrimp Lomein is one of the most popular of current trending meals on earth. It is enjoyed by millions daily. It is easy, it is fast, it tastes delicious. They are nice and they look wonderful. Stirfry Lemon Pepper Chicken & Shrimp Lomein is something which I have loved my entire life.
+
+
+To begin with this recipe, we have to first prepare a few ingredients. You can cook stirfry lemon pepper chicken & shrimp lomein using 15 ingredients and 4 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Stirfry Lemon Pepper Chicken &amp; Shrimp Lomein:
+##### The ingredients needed to make Stirfry Lemon Pepper Chicken & Shrimp Lomein:
 
 1. Get 4 olive oil, extra virgin
 1. Take 2 1/2 lb Cut chicken breasts
@@ -88,7 +88,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can c
 
 <!--inarticleads2-->
 
-##### Instructions to make Stirfry Lemon Pepper Chicken &amp; Shrimp Lomein:
+##### Instructions to make Stirfry Lemon Pepper Chicken & Shrimp Lomein:
 
 1. Add 4 tablespoons of extra virgin olive oil to skillet/pan. Add cut chicken breasts to heated pan. Add lemon pepper seasoning, garlic powder (to taste), and 2 tablespoons of ground ginger. Let cook until tender or to your preference of texture. When done remove from skillet/pan. Don&#39;t discard the juices.
 1. Put to boil the box of spaghetti noodles until tender. Once done remove to strainer.
@@ -98,4 +98,4 @@ To begin with this recipe, we have to first prepare a few ingredients. You can c
 
 
 
-So that is going to wrap this up with this special food stirfry lemon pepper chicken &amp; shrimp lomein recipe. Thank you very much for reading. I am confident that you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!
+So that is going to wrap this up with this special food stirfry lemon pepper chicken & shrimp lomein recipe. Thank you very much for reading. I am confident that you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

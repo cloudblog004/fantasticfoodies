@@ -24,7 +24,7 @@ recipeingredient:
 - "1/2 cucumber chopped"
 - "as needed Chopped coriander"
 recipeinstructions:
-- "Take a bowl and marinate the chicken pieces with salt, ginger garlic paste &amp; paprika.Now boil the chicken till it is tender.Add black pepper while boiling."
+- "Take a bowl and marinate the chicken pieces with salt, ginger garlic paste & paprika.Now boil the chicken till it is tender.Add black pepper while boiling."
 - "Now shred the chicken pieces."
 - "Add carrot, cucumber,Amchur,chaat masala,salt and Coriander leaves."
 - "Enjoy your healthy lunch."
@@ -80,12 +80,12 @@ Rustle up this healthy and filling coronation chicken salad for a packed lunch i
 
 ##### Instructions to make Healthy chicken salad:
 
-1. Take a bowl and marinate the chicken pieces with salt, ginger garlic paste &amp; paprika.Now boil the chicken till it is tender.Add black pepper while boiling.
+1. Take a bowl and marinate the chicken pieces with salt, ginger garlic paste & paprika.Now boil the chicken till it is tender.Add black pepper while boiling.
 1. Now shred the chicken pieces.
 1. Add carrot, cucumber,Amchur,chaat masala,salt and Coriander leaves.
 1. Enjoy your healthy lunch.
 1. Ready to serve and ENJOY!
 
-See more ideas about healthy, cooking recipes, healthy recipes. Use store-bought rotisserie chicken to save even more time on busy weekdays. It&#39;s relatively cheap &amp; easy to make, fills me up and appears on the surface to be healthy, but is it really healthy? I love chicken salad so it&#39;s something I&#39;ll have no problem eating a few times a week too. To create a healthy chicken salad, you must start with shredded chicken breast meat. 
+See more ideas about healthy, cooking recipes, healthy recipes. Use store-bought rotisserie chicken to save even more time on busy weekdays. It&#39;s relatively cheap & easy to make, fills me up and appears on the surface to be healthy, but is it really healthy? I love chicken salad so it&#39;s something I&#39;ll have no problem eating a few times a week too. To create a healthy chicken salad, you must start with shredded chicken breast meat. 
 
 So that is going to wrap it up for this exceptional food healthy chicken salad recipe. Thank you very much for your time. I am sure that you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

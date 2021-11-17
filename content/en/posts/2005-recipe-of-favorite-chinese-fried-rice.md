@@ -46,7 +46,7 @@ recipecategory: Lunch
 
 Hello everybody, hope you're having an incredible day today. Today, we're going to prepare a distinctive dish, chinese fried rice. It is one of my favorites food recipes. This time, I'm gonna make it a little bit tasty. This will be really delicious.
 
-Chinese fried rice is a family of fried rice dishes popular in Greater China and around the world. It is sometimes served as the penultimate dish in Chinese banquets, just before dessert. Learn how to make easy &amp; healthy Chinese Fried Rice dishes With Haiyan - The Chinese Cook. Have you ever replicate the restaurant style Chinese fried rice, but still fall short of the result you I am referring to the simple Chinese fried rice with only eggs, garlic, scallions, soy sauce, and a pinch.
+Chinese fried rice is a family of fried rice dishes popular in Greater China and around the world. It is sometimes served as the penultimate dish in Chinese banquets, just before dessert. Learn how to make easy & healthy Chinese Fried Rice dishes With Haiyan - The Chinese Cook. Have you ever replicate the restaurant style Chinese fried rice, but still fall short of the result you I am referring to the simple Chinese fried rice with only eggs, garlic, scallions, soy sauce, and a pinch.
 
 Chinese fried rice is one of the most favored of recent trending foods in the world. It's appreciated by millions daily. It is easy, it's quick, it tastes yummy. They're fine and they look fantastic. Chinese fried rice is something that I've loved my whole life.
 

@@ -28,7 +28,7 @@ recipeingredient:
 recipeinstructions:
 - "Cut up half a white onion, and dice it finely. Put it in a non stick pan with pam, and olive oil, and cook the diced onions for 10 minutes on medium heat until golden. Add garlic, and 1 Tablespoon or so of course ground pepper."
 - "Cut up half a red pepper into 1/4 inch or smaller slices. Add this to the onions in the pan. Cook for another 5-10 minutes."
-- "Take a generous handful of Tyson Grilled &amp; Ready Chicken breast strips (about 8 ounces), push the onion and pepper mixture to one side of the non stick pan, and heat the strips according to the package directions. Add pepper to the chicken strips and once cooked, gently toss the onions, peppers and chicken strips. Add another tablespoon of Course Ground Black Pepper."
+- "Take a generous handful of Tyson Grilled & Ready Chicken breast strips (about 8 ounces), push the onion and pepper mixture to one side of the non stick pan, and heat the strips according to the package directions. Add pepper to the chicken strips and once cooked, gently toss the onions, peppers and chicken strips. Add another tablespoon of Course Ground Black Pepper."
 - "Pour the package of Frontera Skillet Fajita sauce over the mixture of meat and vegetables, and simmer for another 15-20 minutes, or until ready to eat."
 - "Warm the whole wheat tortillas in the microwave for 30 seconds, and spoon a couple strips of chicken, a tablespoon of the vegetable mixture into a whole wheat tortilla, and serve with Mexican cheese, Salsa, Guacamole and Sour Cream."
 - "Ready to serve and ENJOY!"
@@ -87,7 +87,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 
 1. Cut up half a white onion, and dice it finely. Put it in a non stick pan with pam, and olive oil, and cook the diced onions for 10 minutes on medium heat until golden. Add garlic, and 1 Tablespoon or so of course ground pepper.
 1. Cut up half a red pepper into 1/4 inch or smaller slices. Add this to the onions in the pan. Cook for another 5-10 minutes.
-1. Take a generous handful of Tyson Grilled &amp; Ready Chicken breast strips (about 8 ounces), push the onion and pepper mixture to one side of the non stick pan, and heat the strips according to the package directions. Add pepper to the chicken strips and once cooked, gently toss the onions, peppers and chicken strips. Add another tablespoon of Course Ground Black Pepper.
+1. Take a generous handful of Tyson Grilled & Ready Chicken breast strips (about 8 ounces), push the onion and pepper mixture to one side of the non stick pan, and heat the strips according to the package directions. Add pepper to the chicken strips and once cooked, gently toss the onions, peppers and chicken strips. Add another tablespoon of Course Ground Black Pepper.
 1. Pour the package of Frontera Skillet Fajita sauce over the mixture of meat and vegetables, and simmer for another 15-20 minutes, or until ready to eat.
 1. Warm the whole wheat tortillas in the microwave for 30 seconds, and spoon a couple strips of chicken, a tablespoon of the vegetable mixture into a whole wheat tortilla, and serve with Mexican cheese, Salsa, Guacamole and Sour Cream.
 1. Ready to serve and ENJOY!

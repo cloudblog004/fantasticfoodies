@@ -95,7 +95,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Prepare  Sriracha Aioli
 1. Make ready 1/4 Cup Sour Cream
 1. Take 1 Tbsp Sriracha sauce (or other hot sauce)
-1. Get  Salt &amp; Pepper
+1. Get  Salt & Pepper
 
 
 

@@ -1,6 +1,6 @@
 ---
-description: "How to Make Speedy Family&amp;#39;s Favorite Chicken Gratin"
-title: "How to Make Speedy Family&amp;#39;s Favorite Chicken Gratin"
+description: "How to Make Speedy Family's Favorite Chicken Gratin"
+title: "How to Make Speedy Family's Favorite Chicken Gratin"
 slug: 1715-how-to-make-speedy-family-and-39-s-favorite-chicken-gratin
 date: 2022-03-28T04:36:28.373Z
 image: https://img-global.cpcdn.com/recipes/e03c048972703bc7/680x482cq70/familys-favorite-chicken-gratin-recipe-main-photo.jpg

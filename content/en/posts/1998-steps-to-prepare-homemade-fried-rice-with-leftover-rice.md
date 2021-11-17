@@ -82,7 +82,7 @@ To get started with this particular recipe, we have to prepare a few components.
 1. Get 2 Tbs water
 
 
-I call this &#34;fried rice&#34; because it is made using leftover rice rather than making it &#34;risotto style&#34; starting with uncooked rice grains. I find that making it by cooking rice in a tomato liquid. Transform leftover rice into an easy dish your family will love with dozens of fried rice recipes from Allrecipes, including shrimp fried rice, chicken fried rice, and more. Cook Minute® Rice with chicken broth, stir-fry vegetables, soy sauce and egg. 
+I call this *fried rice* because it is made using leftover rice rather than making it *risotto style* starting with uncooked rice grains. I find that making it by cooking rice in a tomato liquid. Transform leftover rice into an easy dish your family will love with dozens of fried rice recipes from Allrecipes, including shrimp fried rice, chicken fried rice, and more. Cook Minute® Rice with chicken broth, stir-fry vegetables, soy sauce and egg. 
 
 <!--inarticleads2-->
 

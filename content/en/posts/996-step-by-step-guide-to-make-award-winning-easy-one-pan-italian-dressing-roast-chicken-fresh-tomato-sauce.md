@@ -66,7 +66,7 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 ##### The ingredients needed to make Easy One Pan Italian Dressing Roast Chicken + Fresh Tomato Sauce:
 
 1. Prepare  For the chicken:
-1. Prepare 3 lbs. bone-in, skin-on chicken drumsthighs, ea piece scored twice on the skin side, down to the bone, about 2&#34;long &amp; 1&#34; apart
+1. Prepare 3 lbs. bone-in, skin-on chicken drumsthighs, ea piece scored twice on the skin side, down to the bone, about 2*long & 1* apart
 1. Make ready 1/3 cup Italian dressing (well shaken) + 1 teaspoon garlic salt mixed in a small bowl
 1. Get 1/4 cup grated dry cheese (like Parmesan, Asiago, Manchego, etc...)
 1. Take  For the fresh tomato sauce:

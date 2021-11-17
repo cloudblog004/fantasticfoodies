@@ -20,7 +20,7 @@ recipeingredient:
 - "1 saltoptional"
 recipeinstructions:
 - "preheat oven to 425°F"
-- "mix parmesan cheese &amp; mayo well"
+- "mix parmesan cheese & mayo well"
 - "the bottom of the chicken(meaning the part that goes on the tray) sprinkle with salt(optional)"
 - "lay chicken on a non stick baking tray"
 - "spread mixture on top of chicken evenly,( on top only)"
@@ -60,7 +60,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can h
 
 ##### The ingredients needed to make Quick and easy parmesan crusted chicken:
 
-1. Take 4 slice boneless &amp; skinless chicken breast
+1. Take 4 slice boneless & skinless chicken breast
 1. Get 1/4 cup grated parmesan cheese
 1. Take 1/2 cup hellmanns mayonnaise
 1. Make ready 1 bread crumbs
@@ -74,7 +74,7 @@ This kid-friendly, Easy Parmesan-Crusted Chicken is crunchy on the outside and s
 ##### Instructions to make Quick and easy parmesan crusted chicken:
 
 1. preheat oven to 425°F
-1. mix parmesan cheese &amp; mayo well
+1. mix parmesan cheese & mayo well
 1. the bottom of the chicken(meaning the part that goes on the tray) sprinkle with salt(optional)
 1. lay chicken on a non stick baking tray
 1. spread mixture on top of chicken evenly,( on top only)

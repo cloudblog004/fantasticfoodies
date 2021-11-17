@@ -26,7 +26,7 @@ recipeingredient:
 - "1-2 Tbsp. Olive oil"
 recipeinstructions:
 - "Preheat oven to 375 degrees and cook your pasta according to the package directions. When pasta is done drain and add butter, garlic, and Italian seasoning; toss and set aside."
-- "Cut chicken breasts in half, wash and pound out to 1/3&#34; thick."
+- "Cut chicken breasts in half, wash and pound out to 1/3* thick."
 - "Turn on stove top range to medium high heat."
 - "Blend together eggs and milk and a dash of pepper and salt for egg wash."
 - "Mix together bread crumbs, Italian seasoning, grated parmesan cheese, cumin, onion and garlic powder and salt and pepper to taste."
@@ -73,8 +73,8 @@ To get started with this particular recipe, we have to first prepare a few ingre
 1. Make ready 3 -Boneless skinless Chicken Breast(cut in half and pounded out)
 1. Get 11/2 cups Italian bread crumbs
 1. Get 1 -cup grated parmesan cheese
-1. Get 1 tsp paprika, cumin, Italian seasoning, onion &amp; garlic powder,
-1. Prepare  Salt &amp; Pepper
+1. Get 1 tsp paprika, cumin, Italian seasoning, onion & garlic powder,
+1. Prepare  Salt & Pepper
 1. Get 2 -eggs (beaten)
 1. Prepare 1 -cup milk
 1. Take 1 -jar pasta sauce
@@ -90,7 +90,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 ##### Instructions to make Crispy Chicken Parmesan:
 
 1. Preheat oven to 375 degrees and cook your pasta according to the package directions. When pasta is done drain and add butter, garlic, and Italian seasoning; toss and set aside.
-1. Cut chicken breasts in half, wash and pound out to 1/3&#34; thick.
+1. Cut chicken breasts in half, wash and pound out to 1/3* thick.
 1. Turn on stove top range to medium high heat.
 1. Blend together eggs and milk and a dash of pepper and salt for egg wash.
 1. Mix together bread crumbs, Italian seasoning, grated parmesan cheese, cumin, onion and garlic powder and salt and pepper to taste.

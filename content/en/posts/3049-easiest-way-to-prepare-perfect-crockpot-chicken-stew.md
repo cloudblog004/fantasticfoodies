@@ -22,14 +22,14 @@ recipeingredient:
 - "1 box RiceaRoni Chicken  Broccoli Rice"
 - "1 shredded mozzerella cheese"
 recipeinstructions:
-- "Slice up the butter &amp; place in bottom of Crockpot"
+- "Slice up the butter & place in bottom of Crockpot"
 - "Place chicken on top of butter"
 - "Sprinkle onion flakes on top of chicken"
-- "Dump corn &amp; broccoli on top of chicken"
-- "Spoon cheddar cheese soup on top of broccoli &amp; corn"
+- "Dump corn & broccoli on top of chicken"
+- "Spoon cheddar cheese soup on top of broccoli & corn"
 - "Cook on low 6-8 hours"
 - "After about 4 hours give it a good stir so the chicken kind of shreds itself"
-- "About half an hour before serving cook rice then add to Crockpot &amp; stir until heated through"
+- "About half an hour before serving cook rice then add to Crockpot & stir until heated through"
 - "After serving sprinkle mozzarella on individual servings"
 - "Ready to serve and ENJOY!"
 categories:
@@ -71,7 +71,7 @@ To get started with this recipe, we have to prepare a few ingredients. You can c
 1. Take 1 can corn
 1. Prepare 1 packages frozen broccoli florets
 1. Make ready 2 can condensed cheddar cheese soup
-1. Make ready 1 box Rice-a-Roni Chicken &amp; Broccoli Rice
+1. Make ready 1 box Rice-a-Roni Chicken & Broccoli Rice
 1. Make ready 1 shredded mozzerella cheese
 
 
@@ -81,14 +81,14 @@ To get started with this recipe, we have to prepare a few ingredients. You can c
 
 ##### Steps to make Crockpot Chicken Stew:
 
-1. Slice up the butter &amp; place in bottom of Crockpot
+1. Slice up the butter & place in bottom of Crockpot
 1. Place chicken on top of butter
 1. Sprinkle onion flakes on top of chicken
-1. Dump corn &amp; broccoli on top of chicken
-1. Spoon cheddar cheese soup on top of broccoli &amp; corn
+1. Dump corn & broccoli on top of chicken
+1. Spoon cheddar cheese soup on top of broccoli & corn
 1. Cook on low 6-8 hours
 1. After about 4 hours give it a good stir so the chicken kind of shreds itself
-1. About half an hour before serving cook rice then add to Crockpot &amp; stir until heated through
+1. About half an hour before serving cook rice then add to Crockpot & stir until heated through
 1. After serving sprinkle mozzarella on individual servings
 1. Ready to serve and ENJOY!
 

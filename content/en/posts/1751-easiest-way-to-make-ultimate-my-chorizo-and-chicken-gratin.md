@@ -60,7 +60,7 @@ recipecategory: Dessert
 
 Hello everybody, I hope you are having an incredible day today. Today, we're going to make a distinctive dish, my chorizo and chicken gratin 💜💚. One of my favorites. For mine, I will make it a bit unique. This is gonna smell and look delicious.
 
-Cooking Mama&#39;s Chicken &amp; Chorizo Gratin. Here is how you achieve it. Chicken and Chorizo Recipe is a delicious recipe generously flavoured with smoked paprika, thyme and oregano. Transfer to an ovenproof dish using a.
+Cooking Mama&#39;s Chicken & Chorizo Gratin. Here is how you achieve it. Chicken and Chorizo Recipe is a delicious recipe generously flavoured with smoked paprika, thyme and oregano. Transfer to an ovenproof dish using a.
 
 My Chorizo and Chicken Gratin 💜💚 is one of the most popular of recent trending meals on earth. It's appreciated by millions daily. It is easy, it's fast, it tastes yummy. My Chorizo and Chicken Gratin 💜💚 is something which I've loved my whole life. They're nice and they look wonderful.
 

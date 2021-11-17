@@ -27,7 +27,7 @@ recipeingredient:
 - "1 box whole wheat pasta cooked and drained"
 recipeinstructions:
 - "in a wok or large skillet, cook onions and peppers in olive oil, stirring frequently, until onions begin to turn translucent."
-- "add the &#34;other veggies&#34; and water chestnuts and meat."
+- "add the *other veggies* and water chestnuts and meat."
 - "add pepper, garlic, soy sauce, and brown sugar, mixing well. allow to cook down slightly, stirring frequently."
 - "toss in the cooked pasta, mixing so all ingredients are incorporated."
 - "**note that different meats absorb the sugar and soy sauce differently. for instance, for chicken i might use a lot less sugar and use honey instead. for shrimp i might use only honey and very little soy sauce. cooking for yourself it to please your tastebuds. this combo pleases mine. experiment and taste test. eat and be happy. hope you enjoy!!"
@@ -86,7 +86,7 @@ Add more salt, soy sauce, oyster sauce, sesame oil, or white pepper according to
 ##### Steps to make Quick chinese lo mein:
 
 1. in a wok or large skillet, cook onions and peppers in olive oil, stirring frequently, until onions begin to turn translucent.
-1. add the &#34;other veggies&#34; and water chestnuts and meat.
+1. add the *other veggies* and water chestnuts and meat.
 1. add pepper, garlic, soy sauce, and brown sugar, mixing well. allow to cook down slightly, stirring frequently.
 1. toss in the cooked pasta, mixing so all ingredients are incorporated.
 1. **note that different meats absorb the sugar and soy sauce differently. for instance, for chicken i might use a lot less sugar and use honey instead. for shrimp i might use only honey and very little soy sauce. cooking for yourself it to please your tastebuds. this combo pleases mine. experiment and taste test. eat and be happy. hope you enjoy!!

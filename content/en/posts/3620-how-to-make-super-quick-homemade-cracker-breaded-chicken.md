@@ -21,7 +21,7 @@ recipeingredient:
 - "2 Eggs"
 - "1 cup of Milk"
 recipeinstructions:
-- "Oil a 12&#34; flat pan lightly low flame or at 4 on your stove top."
+- "Oil a 12* flat pan lightly low flame or at 4 on your stove top."
 - "For breading: Crush a pack of crackers finely in a bag. Dump in bowl and mix in a few pinches of garlic and black pepper."
 - "Egg wash: In a small bowl mix 2 eggs and a cup of milk"
 - "Place tenders in the breading first then egg wash then back into the breading. This will keep the breading from falling off"
@@ -75,7 +75,7 @@ To begin with this recipe, we must first prepare a few components. You can cook 
 
 ##### Instructions to make Cracker Breaded Chicken:
 
-1. Oil a 12&#34; flat pan lightly low flame or at 4 on your stove top.
+1. Oil a 12* flat pan lightly low flame or at 4 on your stove top.
 1. For breading: Crush a pack of crackers finely in a bag. Dump in bowl and mix in a few pinches of garlic and black pepper.
 1. Egg wash: In a small bowl mix 2 eggs and a cup of milk
 1. Place tenders in the breading first then egg wash then back into the breading. This will keep the breading from falling off

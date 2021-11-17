@@ -1,6 +1,6 @@
 ---
-description: "Steps to Make Perfect My Tasty Chicken &amp;amp; Mushroom Pasta 💞"
-title: "Steps to Make Perfect My Tasty Chicken &amp;amp; Mushroom Pasta 💞"
+description: "Steps to Make Perfect My Tasty Chicken & Mushroom Pasta 💞"
+title: "Steps to Make Perfect My Tasty Chicken & Mushroom Pasta 💞"
 slug: 334-steps-to-make-perfect-my-tasty-chicken-and-amp-mushroom-pasta
 date: 2022-03-03T03:59:38.975Z
 image: https://img-global.cpcdn.com/recipes/d5d18a49c01f0dd8/680x482cq70/my-tasty-chicken-mushroom-pasta-recipe-main-photo.jpg
@@ -50,20 +50,20 @@ recipecategory: Dessert
 ---
 
 
-![My Tasty Chicken &amp; Mushroom Pasta 💞](https://img-global.cpcdn.com/recipes/d5d18a49c01f0dd8/680x482cq70/my-tasty-chicken-mushroom-pasta-recipe-main-photo.jpg)
+![My Tasty Chicken & Mushroom Pasta 💞](https://img-global.cpcdn.com/recipes/d5d18a49c01f0dd8/680x482cq70/my-tasty-chicken-mushroom-pasta-recipe-main-photo.jpg)
 
-Hey everyone, it is me, Dave, welcome to my recipe page. Today, I'm gonna show you how to make a special dish, my tasty chicken &amp; mushroom pasta 💞. It is one of my favorites. For mine, I will make it a bit unique. This will be really delicious.
+Hey everyone, it is me, Dave, welcome to my recipe page. Today, I'm gonna show you how to make a special dish, my tasty chicken & mushroom pasta 💞. It is one of my favorites. For mine, I will make it a bit unique. This will be really delicious.
 
-My Tasty Chicken &amp; Mushroom Pasta 💞 is one of the most well liked of recent trending meals on earth. It is appreciated by millions daily. It is simple, it's fast, it tastes yummy. My Tasty Chicken &amp; Mushroom Pasta 💞 is something that I've loved my entire life. They're nice and they look fantastic.
-
-
+My Tasty Chicken & Mushroom Pasta 💞 is one of the most well liked of recent trending meals on earth. It is appreciated by millions daily. It is simple, it's fast, it tastes yummy. My Tasty Chicken & Mushroom Pasta 💞 is something that I've loved my entire life. They're nice and they look fantastic.
 
 
-To get started with this recipe, we must prepare a few ingredients. You can have my tasty chicken &amp; mushroom pasta 💞 using 10 ingredients and 7 steps. Here is how you can achieve that.
+
+
+To get started with this recipe, we must prepare a few ingredients. You can have my tasty chicken & mushroom pasta 💞 using 10 ingredients and 7 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make My Tasty Chicken &amp; Mushroom Pasta 💞:
+##### The ingredients needed to make My Tasty Chicken & Mushroom Pasta 💞:
 
 1. Prepare 1 Chicken breast Diced
 1. Make ready 3 Large Chestnut mushrooms diced
@@ -81,7 +81,7 @@ To get started with this recipe, we must prepare a few ingredients. You can have
 
 <!--inarticleads2-->
 
-##### Steps to make My Tasty Chicken &amp; Mushroom Pasta 💞:
+##### Steps to make My Tasty Chicken & Mushroom Pasta 💞:
 
 1. Rinse the pasta then add to salted water to cook. Then drain off the water and add to a bowl set aside.
 1. Add a tsp Olive oil to the pan with the rainbow pepper garlic also the red pepper flakes mix in, heat up then add the chicken and mix. Cook the chicken for 5 minutes on medium stirring it around.
@@ -94,4 +94,4 @@ To get started with this recipe, we must prepare a few ingredients. You can have
 
 
 
-So that is going to wrap this up with this special food my tasty chicken &amp; mushroom pasta 💞 recipe. Thank you very much for reading. I am sure you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+So that is going to wrap this up with this special food my tasty chicken & mushroom pasta 💞 recipe. Thank you very much for reading. I am sure you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

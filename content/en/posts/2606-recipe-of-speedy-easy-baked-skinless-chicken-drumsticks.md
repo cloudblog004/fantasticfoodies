@@ -25,7 +25,7 @@ recipeingredient:
 recipeinstructions:
 - "Combine marinade ingredients in a large zip top plastic bag. Add chicken and marinate for 30 minutes or longer."
 - "Preheat oven to 425° F."
-- "Line a large rimmed baking sheet with extra-wide foil (this is only to save cleanup) and place a baking/cooling rack on top. Or set two 8 x 11&#34; disposable foil broiler pans on your baking sheet."
+- "Line a large rimmed baking sheet with extra-wide foil (this is only to save cleanup) and place a baking/cooling rack on top. Or set two 8 x 11* disposable foil broiler pans on your baking sheet."
 - "Remove drumsticks from marinade and place on rack. Keep marinade to one side."
 - "Bake for 45 minutes, turning once after 35 minutes (internal temperature should be 165° F). Baste with reserved marinade a couple of times during cooking."
 - "Enjoy!"
@@ -82,7 +82,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 
 1. Combine marinade ingredients in a large zip top plastic bag. Add chicken and marinate for 30 minutes or longer.
 1. Preheat oven to 425° F.
-1. Line a large rimmed baking sheet with extra-wide foil (this is only to save cleanup) and place a baking/cooling rack on top. Or set two 8 x 11&#34; disposable foil broiler pans on your baking sheet.
+1. Line a large rimmed baking sheet with extra-wide foil (this is only to save cleanup) and place a baking/cooling rack on top. Or set two 8 x 11* disposable foil broiler pans on your baking sheet.
 1. Remove drumsticks from marinade and place on rack. Keep marinade to one side.
 1. Bake for 45 minutes, turning once after 35 minutes (internal temperature should be 165° F). Baste with reserved marinade a couple of times during cooking.
 1. Enjoy!

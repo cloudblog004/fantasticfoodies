@@ -113,7 +113,7 @@ To get started with this recipe, we have to first prepare a few components. You 
 1. Take  Ginger
 1. Make ready  Diced tomato
 1. Get  Toppings
-1. Make ready  Kale &amp; Baby spinach mixed greens
+1. Make ready  Kale & Baby spinach mixed greens
 1. Get  Feta cheese
 1. Prepare  Mozzarella cheese
 1. Make ready  Sweet corn

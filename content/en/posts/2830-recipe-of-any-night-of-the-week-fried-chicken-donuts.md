@@ -63,7 +63,7 @@ recipecategory: Lunch
 
 Hey everyone, hope you're having an incredible day today. Today, I will show you a way to make a special dish, fried chicken donuts. One of my favorites. For mine, I will make it a bit unique. This is gonna smell and look delicious.
 
-Ever wondered how you could take fried chicken to the next level? Today, Mythical Chef Josh is making some Donut Fried Chicken AKA Nashville Sweet Chicken. You can also get a Kentucky Fried Chicken &amp; Donuts Sandwich, which is a chicken filet in between two glazed donuts. Which means eating fried chicken atop a fluffy Belgian waffle for breakfast isn&#39;t all that weird to me.
+Ever wondered how you could take fried chicken to the next level? Today, Mythical Chef Josh is making some Donut Fried Chicken AKA Nashville Sweet Chicken. You can also get a Kentucky Fried Chicken & Donuts Sandwich, which is a chicken filet in between two glazed donuts. Which means eating fried chicken atop a fluffy Belgian waffle for breakfast isn&#39;t all that weird to me.
 
 Fried chicken donuts is one of the most popular of recent trending meals in the world. It's enjoyed by millions every day. It's easy, it's quick, it tastes yummy. They are nice and they look wonderful. Fried chicken donuts is something which I have loved my entire life.
 

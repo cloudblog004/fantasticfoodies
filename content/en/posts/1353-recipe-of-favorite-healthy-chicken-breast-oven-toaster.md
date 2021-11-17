@@ -23,9 +23,9 @@ recipeingredient:
 - " Oregano"
 - " Any cooking oil"
 recipeinstructions:
-- "Marinate chicken breast in soy sauce, sesame oil, &amp; honey for a minimum of one hour."
+- "Marinate chicken breast in soy sauce, sesame oil, & honey for a minimum of one hour."
 - "Create a container using foil and coat the inside area with cooking oil"
-- "Place the chicken breast on the aluminum foil and season with salt, pepper, garlic powder, &amp; oregano. Heat it in the oven toaster for 7-8 mins. Flip it afterwards and cook for another 7-8 mins or until the inside is cooked."
+- "Place the chicken breast on the aluminum foil and season with salt, pepper, garlic powder, & oregano. Heat it in the oven toaster for 7-8 mins. Flip it afterwards and cook for another 7-8 mins or until the inside is cooked."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -51,7 +51,7 @@ Hello everybody, it's me again, Dan, welcome to my recipe site. Today, I'm gonna
 
 Healthy chicken breast (oven toaster) is one of the most popular of current trending meals on earth. It is enjoyed by millions daily. It is easy, it's quick, it tastes delicious. They're fine and they look fantastic. Healthy chicken breast (oven toaster) is something that I've loved my entire life.
 
-In this easy cooking video, I dry brine a chicken breast for the first time and cook it in my toaster oven. Marinate chicken breast in soy sauce, sesame oil, &amp; honey for a minimum of one hour. Create a container using foil and coat the inside area with cooking oil. The cooking time may vary depending on the thickness of the chicken breast.
+In this easy cooking video, I dry brine a chicken breast for the first time and cook it in my toaster oven. Marinate chicken breast in soy sauce, sesame oil, & honey for a minimum of one hour. Create a container using foil and coat the inside area with cooking oil. The cooking time may vary depending on the thickness of the chicken breast.
 
 
 To begin with this particular recipe, we must first prepare a few components. You can have healthy chicken breast (oven toaster) using 9 ingredients and 3 steps. Here is how you can achieve it.
@@ -77,9 +77,9 @@ This way of cooking chicken is incredibly easy and it&#39;s never failed me. I a
 
 ##### Steps to make Healthy chicken breast (oven toaster):
 
-1. Marinate chicken breast in soy sauce, sesame oil, &amp; honey for a minimum of one hour.
+1. Marinate chicken breast in soy sauce, sesame oil, & honey for a minimum of one hour.
 1. Create a container using foil and coat the inside area with cooking oil
-1. Place the chicken breast on the aluminum foil and season with salt, pepper, garlic powder, &amp; oregano. Heat it in the oven toaster for 7-8 mins. Flip it afterwards and cook for another 7-8 mins or until the inside is cooked.
+1. Place the chicken breast on the aluminum foil and season with salt, pepper, garlic powder, & oregano. Heat it in the oven toaster for 7-8 mins. Flip it afterwards and cook for another 7-8 mins or until the inside is cooked.
 1. Ready to serve and ENJOY!
 
 I love boneless chicken breast especially when sliced thinly. So here is how I prepare mines either in the Toaster Oven or directly on the stove top. How do you cook a boneless chicken breast in a toaster oven? The secret to juicy Oven Baked Chicken Breast is to add a touch of brown sugar into the seasoning and to cook fast at a high temp. This is the most popular of all chicken breast recipes that I&#39;ve ever published. 

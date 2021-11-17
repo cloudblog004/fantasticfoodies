@@ -83,7 +83,7 @@ To begin with this particular recipe, we must prepare a few components. You can 
 1. Prepare 1 big bunch ugu leaf(pumpkin leaf sliced)
 
 
-Before you jump to Egusi soup served with semo recipe, you may want to read this short interesting healthy tips about Apples Can Certainly Have Enormous Advantages For Your Health. Everybody has heard the words &#34;an apple a day will keep the doctor away&#34;, however the question is. Egusi soup is unarguably the most popular Nigerian soup. In my few years as a food blogger and Nigerian food lover, I have learned that different recipes exist across different Nigerian ethnic groups. 
+Before you jump to Egusi soup served with semo recipe, you may want to read this short interesting healthy tips about Apples Can Certainly Have Enormous Advantages For Your Health. Everybody has heard the words *an apple a day will keep the doctor away*, however the question is. Egusi soup is unarguably the most popular Nigerian soup. In my few years as a food blogger and Nigerian food lover, I have learned that different recipes exist across different Nigerian ethnic groups. 
 
 <!--inarticleads2-->
 
@@ -96,6 +96,6 @@ Before you jump to Egusi soup served with semo recipe, you may want to read this
 1. Once u turn in your egusi well add the fresh ugu leaf(sliced pumpkin leaf) still on low heat turn well then cover and let it simmer well for like 10min and then ur sumptuous egusi is ready
 1. Ready to serve and ENJOY!
 
-Egusi soup is unarguably the most popular Nigerian soup. In my few years as a food blogger and Nigerian food lover, I have learned that different recipes exist across different Nigerian ethnic groups. The Yorubas make efo elegusi while the Igbos make ofe egusi, all with similar ingredients but with. Egusi Soup served hot with semo/pounded yam or wheat. Be the first to review &#34;Egusi Soup with semo/wheat -Emily&#34; Cancel reply. 
+Egusi soup is unarguably the most popular Nigerian soup. In my few years as a food blogger and Nigerian food lover, I have learned that different recipes exist across different Nigerian ethnic groups. The Yorubas make efo elegusi while the Igbos make ofe egusi, all with similar ingredients but with. Egusi Soup served hot with semo/pounded yam or wheat. Be the first to review *Egusi Soup with semo/wheat -Emily* Cancel reply. 
 
 So that's going to wrap it up with this exceptional food egusi soup served with semo recipe. Thank you very much for your time. I am confident you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

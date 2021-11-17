@@ -21,7 +21,7 @@ recipeingredient:
 - "2 cups shredded fiestaMexican blend cheese or more if you want "
 - "1 can sweet whole kernel corn optional"
 recipeinstructions:
-- "Heat the oven to 400°F. Stir the soup, salsa, corn, milk, chicken, tortillas and half the cheese in a large mixing bowl &amp; then pour mixture into 5 quart (11 by 13) shallow baking dish."
+- "Heat the oven to 400°F. Stir the soup, salsa, corn, milk, chicken, tortillas and half the cheese in a large mixing bowl & then pour mixture into 5 quart (11 by 13) shallow baking dish."
 - "Cover the baking dish. Bake for 45-50 minutes or until the chicken mixture is hot and bubbling. Top with the remaining cheese. Let stand until the cheese is melted."
 - "Enjoy:-) This feeds a big crowd."
 - "Ready to serve and ENJOY!"
@@ -73,7 +73,7 @@ To begin with this particular recipe, we must prepare a few components. You can 
 
 ##### Instructions to make E-Z Chicken Tortilla Bake:
 
-1. Heat the oven to 400°F. Stir the soup, salsa, corn, milk, chicken, tortillas and half the cheese in a large mixing bowl &amp; then pour mixture into 5 quart (11 by 13) shallow baking dish.
+1. Heat the oven to 400°F. Stir the soup, salsa, corn, milk, chicken, tortillas and half the cheese in a large mixing bowl & then pour mixture into 5 quart (11 by 13) shallow baking dish.
 1. Cover the baking dish. Bake for 45-50 minutes or until the chicken mixture is hot and bubbling. Top with the remaining cheese. Let stand until the cheese is melted.
 1. Enjoy:-) This feeds a big crowd.
 1. Ready to serve and ENJOY!

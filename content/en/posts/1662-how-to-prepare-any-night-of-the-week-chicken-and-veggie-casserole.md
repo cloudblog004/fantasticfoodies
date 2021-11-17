@@ -26,7 +26,7 @@ recipeingredient:
 recipeinstructions:
 - "Layer the steamed rice in a deep casserole dish. Salt and pepper it. Mix the cream of chicken and mayo together with a splash of milk and salt and pepper. As 1/3 of sauce over the rice and 1/3 of the cheese over the rice"
 - "Steam veggies and while that cooks add the cooked chicken and salt and pepper that. Add 1/3 sauce and 1/3 of cheese on top."
-- "Once veggies are cool add on top of chicken &amp; season with salt and pepper. Then add the remaining 1/3 sauce and 1/3 cheese. Top with cans of crispy onions"
+- "Once veggies are cool add on top of chicken & season with salt and pepper. Then add the remaining 1/3 sauce and 1/3 cheese. Top with cans of crispy onions"
 - "Bake at 375 again for 40 min (or until crispy onions are golden brown and sides start to bubble)"
 - "Ready to serve and ENJOY!"
 categories:
@@ -82,7 +82,7 @@ Veggies and Chicken Casserole. this link is to an external site that may or may 
 
 1. Layer the steamed rice in a deep casserole dish. Salt and pepper it. Mix the cream of chicken and mayo together with a splash of milk and salt and pepper. As 1/3 of sauce over the rice and 1/3 of the cheese over the rice
 1. Steam veggies and while that cooks add the cooked chicken and salt and pepper that. Add 1/3 sauce and 1/3 of cheese on top.
-1. Once veggies are cool add on top of chicken &amp; season with salt and pepper. Then add the remaining 1/3 sauce and 1/3 cheese. Top with cans of crispy onions
+1. Once veggies are cool add on top of chicken & season with salt and pepper. Then add the remaining 1/3 sauce and 1/3 cheese. Top with cans of crispy onions
 1. Bake at 375 again for 40 min (or until crispy onions are golden brown and sides start to bubble)
 1. Ready to serve and ENJOY!
 

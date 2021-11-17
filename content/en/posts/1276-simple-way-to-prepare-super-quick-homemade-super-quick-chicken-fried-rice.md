@@ -61,9 +61,9 @@ To begin with this recipe, we must first prepare a few components. You can cook 
 ##### The ingredients needed to make Super Quick Chicken Fried Rice:
 
 1. Take 1 pkg. (12 oz.) frozen mixed vegetables
-1. Get 2 Tbsp. olive oil, divided 1 Tbsp. &amp; 1 Tbsp
+1. Get 2 Tbsp. olive oil, divided 1 Tbsp. & 1 Tbsp
 1. Make ready 2 large eggs, lightly beaten
-1. Prepare 4 Tbsp. sesame oil, divided 2 Tbsp. &amp; 2 Tbsp
+1. Prepare 4 Tbsp. sesame oil, divided 2 Tbsp. & 2 Tbsp
 1. Get 3 pkg. (8.8 oz.) each) ready-to-serve garden vegetable rice
 1. Get 1 rotisserie chicken, skin removed, shredded
 1. Get 1/4 tsp. salt

@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Favorite Ellie&amp;#39;s Crockpot BBQ Chicken"
-title: "Recipe of Favorite Ellie&amp;#39;s Crockpot BBQ Chicken"
+description: "Recipe of Favorite Ellie's Crockpot BBQ Chicken"
+title: "Recipe of Favorite Ellie's Crockpot BBQ Chicken"
 slug: 3486-recipe-of-favorite-ellie-and-39-s-crockpot-bbq-chicken
 date: 2022-03-25T04:11:23.981Z
 image: https://img-global.cpcdn.com/recipes/85d9cedf7c162982/680x482cq70/ellies-crockpot-bbq-chicken-recipe-main-photo.jpg
@@ -67,7 +67,7 @@ To get started with this particular recipe, we have to prepare a few ingredients
 1. Prepare to taste sea salt
 
 
-Not only are they insanely easy to make, they&#39;re also super tender You won&#39;t have to worry too much with crockpot BBQ chicken thighs, as they should be at the right chicken thighs internal temp once the time is done. It originated on a cute blog called, &#34;Stick a Fork in it.&#34; We really liked the *Place chicken in crockpot. Mix up sauce with other ingredients and pour over chicken. Dear Reader- Welcome to Crockpot Week! 
+Not only are they insanely easy to make, they&#39;re also super tender You won&#39;t have to worry too much with crockpot BBQ chicken thighs, as they should be at the right chicken thighs internal temp once the time is done. It originated on a cute blog called, *Stick a Fork in it.* We really liked the *Place chicken in crockpot. Mix up sauce with other ingredients and pour over chicken. Dear Reader- Welcome to Crockpot Week! 
 
 <!--inarticleads2-->
 

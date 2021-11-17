@@ -23,7 +23,7 @@ recipeingredient:
 - "10 oz diced tomatoes  green chilies"
 - "15 oz chunky salsa"
 recipeinstructions:
-- "I wash my chicken with lemon juice but you can wash yours however you like or not. Place chicken in a bowl &amp; combine first 5 ingredients, work into chicken well. At this point you can place directly in crockpot or marinade for about 1 hour (the longer the better)"
+- "I wash my chicken with lemon juice but you can wash yours however you like or not. Place chicken in a bowl & combine first 5 ingredients, work into chicken well. At this point you can place directly in crockpot or marinade for about 1 hour (the longer the better)"
 - "After marinade place in crockpot with remaining ingredients on high for 2 hours, you will see chicken start to shred off the bone. I serve this with rice, noodle, baked potatoes or make them as sloppy joes, carnitas, soup or burritos style"
 - "Ready to serve and ENJOY!"
 categories:
@@ -66,7 +66,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can c
 1. Prepare 1 tbsp tajin clasico seasoning
 1. Take 1 large onion, chopped
 1. Take 1 lemon juice (optional)
-1. Take 10 oz diced tomatoes &amp; green chilies
+1. Take 10 oz diced tomatoes & green chilies
 1. Get 15 oz chunky salsa
 
 
@@ -76,7 +76,7 @@ This Crockpot Salsa Chicken comes together with just TWO ingredients - you can u
 
 ##### Steps to make Crockpot salsa chicken:
 
-1. I wash my chicken with lemon juice but you can wash yours however you like or not. Place chicken in a bowl &amp; combine first 5 ingredients, work into chicken well. At this point you can place directly in crockpot or marinade for about 1 hour (the longer the better)
+1. I wash my chicken with lemon juice but you can wash yours however you like or not. Place chicken in a bowl & combine first 5 ingredients, work into chicken well. At this point you can place directly in crockpot or marinade for about 1 hour (the longer the better)
 1. After marinade place in crockpot with remaining ingredients on high for 2 hours, you will see chicken start to shred off the bone. I serve this with rice, noodle, baked potatoes or make them as sloppy joes, carnitas, soup or burritos style
 1. Ready to serve and ENJOY!
 

@@ -85,6 +85,6 @@ See recipes for Oven Baked Anelletti - take the pasta and leave the gun too. · 
 1. add a side of French bread to complete
 1. Ready to serve and ENJOY!
 
-Chicken pasta in a garlic tomato cream sauce is the ultimate comfort meal. Made with pasta, chicken, spinach, seasonings, lots of yummy garlic, and parmesan cheese, you can make this. Chicken pasta recipe - A basic tomato spaghetti recipe made with chicken. Quick to make and tastes delicious. It can be served with a soup &amp; toast. 
+Chicken pasta in a garlic tomato cream sauce is the ultimate comfort meal. Made with pasta, chicken, spinach, seasonings, lots of yummy garlic, and parmesan cheese, you can make this. Chicken pasta recipe - A basic tomato spaghetti recipe made with chicken. Quick to make and tastes delicious. It can be served with a soup & toast. 
 
 So that is going to wrap this up with this special food chicken pasta recipe. Thank you very much for reading. I'm sure that you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

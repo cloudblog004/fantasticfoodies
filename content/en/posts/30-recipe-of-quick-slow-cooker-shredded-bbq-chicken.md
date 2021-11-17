@@ -20,8 +20,8 @@ recipeingredient:
 - "1 tbsp worechestire sauce"
 - "to taste Salt  pepper"
 recipeinstructions:
-- "Place chicken breasts in slow cooker, sprinkle with salt &amp; pepper."
-- "Combine bbq sauce, Italian dressing, brown sugar &amp; Worcestershire sauce into croc pot. Cook on high 3hrs 15min."
+- "Place chicken breasts in slow cooker, sprinkle with salt & pepper."
+- "Combine bbq sauce, Italian dressing, brown sugar & Worcestershire sauce into croc pot. Cook on high 3hrs 15min."
 - "Check on chicken. Reduce heat to low. Shred chicken with 2 forks and let cook 10-15min."
 - "Serve over bun, rice, baked potato or anything you have."
 - "Ready to serve and ENJOY!"
@@ -63,7 +63,7 @@ To get started with this recipe, we have to prepare a few components. You can co
 1. Take 1/4 cup Italian dressing
 1. Make ready 1/4 cup light brown sugar
 1. Get 1 tbsp worechestire sauce
-1. Prepare to taste Salt &amp; pepper
+1. Prepare to taste Salt & pepper
 
 
 
@@ -72,8 +72,8 @@ To get started with this recipe, we have to prepare a few components. You can co
 
 ##### Steps to make Slow Cooker Shredded BBQ Chicken:
 
-1. Place chicken breasts in slow cooker, sprinkle with salt &amp; pepper.
-1. Combine bbq sauce, Italian dressing, brown sugar &amp; Worcestershire sauce into croc pot. Cook on high 3hrs 15min.
+1. Place chicken breasts in slow cooker, sprinkle with salt & pepper.
+1. Combine bbq sauce, Italian dressing, brown sugar & Worcestershire sauce into croc pot. Cook on high 3hrs 15min.
 1. Check on chicken. Reduce heat to low. Shred chicken with 2 forks and let cook 10-15min.
 1. Serve over bun, rice, baked potato or anything you have.
 1. Ready to serve and ENJOY!

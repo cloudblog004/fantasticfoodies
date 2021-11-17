@@ -24,8 +24,8 @@ recipeingredient:
 - "2 tbsp oil"
 - "2 each pandan leavescut in to big size"
 recipeinstructions:
-- "blend all inggredients with a mixer,except rice flour &amp; oil"
-- "put in the rice flour &amp; oil,stir till mix all inggredients"
+- "blend all inggredients with a mixer,except rice flour & oil"
+- "put in the rice flour & oil,stir till mix all inggredients"
 - "marinated chicken wings offer one night"
 - "fry with low heat-medium heat put the pandan leaves-high"
 - "Ready to serve and ENJOY!"
@@ -80,8 +80,8 @@ If you are wondering how to wrap the chicken pieces, check out the video recipe 
 
 ##### Instructions to make deep fry chicken wings with pandan leaves:
 
-1. blend all inggredients with a mixer,except rice flour &amp; oil
-1. put in the rice flour &amp; oil,stir till mix all inggredients
+1. blend all inggredients with a mixer,except rice flour & oil
+1. put in the rice flour & oil,stir till mix all inggredients
 1. marinated chicken wings offer one night
 1. fry with low heat-medium heat put the pandan leaves-high
 1. Ready to serve and ENJOY!

@@ -69,7 +69,7 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 1. Prepare 1/4 cup creme fraiche (can be replaced with sour cream)
 
 
-Stir in the pesto and Parmesan. Creamy Pesto Chicken &amp; Bow Ties is another perfect example of all you can do with condensed cream of chicken soup and a package of chicken breasts! One-skillet creamy red pesto chicken with cherry tomatoes. You&#39;re in for a dinner that&#39;s pure comfort. 
+Stir in the pesto and Parmesan. Creamy Pesto Chicken & Bow Ties is another perfect example of all you can do with condensed cream of chicken soup and a package of chicken breasts! One-skillet creamy red pesto chicken with cherry tomatoes. You&#39;re in for a dinner that&#39;s pure comfort. 
 
 <!--inarticleads2-->
 

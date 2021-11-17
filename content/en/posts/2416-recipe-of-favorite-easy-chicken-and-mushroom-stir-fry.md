@@ -86,6 +86,6 @@ This easy to make chicken and broccoli stir fry is one of the recipes we make al
 1. Also especially delicious with steamed cod and tuna , very versitile goes with any meat of choice
 1. Ready to serve and ENJOY!
 
-This easy stir fry that can also be quickly prepared ahead of time. Add garlic, fry for another minute. Chicken &amp; Mushroom Stir Fry recipe with tender chicken slices, mushroom, and veggies tossed with quick homemade stir fry sauce. Stir fry dishes and are a staple in our Asian households and it takes no time to make and very versatile. Here&#39;s a really quick chicken and mushroom stir fry recipe for you guys! 
+This easy stir fry that can also be quickly prepared ahead of time. Add garlic, fry for another minute. Chicken & Mushroom Stir Fry recipe with tender chicken slices, mushroom, and veggies tossed with quick homemade stir fry sauce. Stir fry dishes and are a staple in our Asian households and it takes no time to make and very versatile. Here&#39;s a really quick chicken and mushroom stir fry recipe for you guys! 
 
 So that is going to wrap it up with this exceptional food easy chicken and mushroom stir fry recipe. Thanks so much for your time. I'm confident you will make this at home. There is gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

@@ -71,7 +71,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Make ready  Grated cheese of choice for top
 
 
-I have issues with leftovers that look the same lol I prefer them to morph into something else. Is there anything more comforting than a chicken &amp; rice casserole? It&#39;s the type of recipe we turn to time after time again during the fall and winter, just like roast chicken or our tortellini. Serve over pasta, toast, rice, or mashed potatoes. 
+I have issues with leftovers that look the same lol I prefer them to morph into something else. Is there anything more comforting than a chicken & rice casserole? It&#39;s the type of recipe we turn to time after time again during the fall and winter, just like roast chicken or our tortellini. Serve over pasta, toast, rice, or mashed potatoes. 
 
 <!--inarticleads2-->
 

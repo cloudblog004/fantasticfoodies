@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Super Quick Homemade The Ports O&amp;#39; Call Shrimp Tray"
-title: "Steps to Prepare Super Quick Homemade The Ports O&amp;#39; Call Shrimp Tray"
+description: "Steps to Prepare Super Quick Homemade The Ports O' Call Shrimp Tray"
+title: "Steps to Prepare Super Quick Homemade The Ports O' Call Shrimp Tray"
 slug: 2066-steps-to-prepare-super-quick-homemade-the-ports-o-and-39-call-shrimp-tray
 date: 2022-02-11T14:39:45.491Z
 image: https://img-global.cpcdn.com/recipes/5256161823555584/680x482cq70/the-ports-o-call-shrimp-tray-recipe-main-photo.jpg
@@ -37,7 +37,7 @@ recipeingredient:
 recipeinstructions:
 - "Start by slicing all veggies, and chopping cilantro. Wash your potatoes well and chop into bite size pieces (I left skin on optional). Now boil your potatoes till just tender and corn coblette, drain and set aside"
 - "Add oil to a warm pan, add in all veggies  cook down for about 6 minutes on medium heat. Now add in all ingredients for sauce, and all seasonins to taste let cook on low for 15 minutes. In another pan cook chorizo till done about 10minutes or so, add to sauce mixture. Check for seasonings"
-- "Once your satisfied with seasonings add in shrimp cook about 6 minutes till shrimp turn pink. Turn off and add in potatoes and corn. Should be almost soupy like consistency. serve with soft bread, avocados, &amp;lime.Enjoy"
+- "Once your satisfied with seasonings add in shrimp cook about 6 minutes till shrimp turn pink. Turn off and add in potatoes and corn. Should be almost soupy like consistency. serve with soft bread, avocados, &lime.Enjoy"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -72,7 +72,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 
 ##### The ingredients needed to make The Ports O&#39; Call Shrimp Tray:
 
-1. Prepare 1 lb cleaned &amp; deveined uncooked Large shrimp
+1. Prepare 1 lb cleaned & deveined uncooked Large shrimp
 1. Take 2 sliced green bellpeppers
 1. Prepare 2 red sliced bellpeppers
 1. Get 1/2 sliced purple onion
@@ -103,7 +103,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 
 1. Start by slicing all veggies, and chopping cilantro. Wash your potatoes well and chop into bite size pieces (I left skin on optional). Now boil your potatoes till just tender and corn coblette, drain and set aside
 1. Add oil to a warm pan, add in all veggies  cook down for about 6 minutes on medium heat. Now add in all ingredients for sauce, and all seasonins to taste let cook on low for 15 minutes. In another pan cook chorizo till done about 10minutes or so, add to sauce mixture. Check for seasonings
-1. Once your satisfied with seasonings add in shrimp cook about 6 minutes till shrimp turn pink. Turn off and add in potatoes and corn. Should be almost soupy like consistency. serve with soft bread, avocados, &amp;lime.Enjoy
+1. Once your satisfied with seasonings add in shrimp cook about 6 minutes till shrimp turn pink. Turn off and add in potatoes and corn. Should be almost soupy like consistency. serve with soft bread, avocados, &lime.Enjoy
 1. Ready to serve and ENJOY!
 
 

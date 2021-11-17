@@ -1,6 +1,6 @@
 ---
-description: "Steps to Make Homemade Easy Peasy Shepherd&amp;#39;s Pie"
-title: "Steps to Make Homemade Easy Peasy Shepherd&amp;#39;s Pie"
+description: "Steps to Make Homemade Easy Peasy Shepherd's Pie"
+title: "Steps to Make Homemade Easy Peasy Shepherd's Pie"
 slug: 3117-steps-to-make-homemade-easy-peasy-shepherd-and-39-s-pie
 date: 2022-05-08T16:20:06.272Z
 image: https://img-global.cpcdn.com/recipes/4601594926596096/680x482cq70/easy-peasy-shepherds-pie-recipe-main-photo.jpg

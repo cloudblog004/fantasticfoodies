@@ -72,7 +72,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 1. Make ready  Few slices of uziza and utazi
 
 
-It is also known as &#39;&#39;white soup&#34; because of its light color , due to the absence of palm oil. The authentic Nsala soup recipe calls for fresh whole Cat Fish, which gives this soup its unique taste. Ofe Nsala - White Soup is a mouth watering delicacy peculiar to the Igbo tribe of Nigeria, especially the people of Anambra state. It is a very rich fresh fish Ofe Nsala is known as white soup because Palm oil is not used for the preparation, unlike other traditional soups. 
+It is also known as &#39;&#39;white soup* because of its light color , due to the absence of palm oil. The authentic Nsala soup recipe calls for fresh whole Cat Fish, which gives this soup its unique taste. Ofe Nsala - White Soup is a mouth watering delicacy peculiar to the Igbo tribe of Nigeria, especially the people of Anambra state. It is a very rich fresh fish Ofe Nsala is known as white soup because Palm oil is not used for the preparation, unlike other traditional soups. 
 
 <!--inarticleads2-->
 

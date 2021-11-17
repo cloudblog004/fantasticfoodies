@@ -47,7 +47,7 @@ recipecategory: Lunch
 
 Hey everyone, hope you are having an amazing day today. Today, I'm gonna show you how to make a special dish, chicken/cheese enchilladas. One of my favorites food recipes. This time, I will make it a bit unique. This is gonna smell and look delicious.
 
-This Easy Chicken &amp; Cheese Enchiladas is the easiest homemade enchiladas recipe ever. The combination of cream of chicken soup. Homemade Chicken Enchiladas made from scratch - saucy, cheesy and full of flavour! Cottage cheese lends a lighter texture to chicken and cheese enchiladas, bathed in classic red enchilada sauce.
+This Easy Chicken & Cheese Enchiladas is the easiest homemade enchiladas recipe ever. The combination of cream of chicken soup. Homemade Chicken Enchiladas made from scratch - saucy, cheesy and full of flavour! Cottage cheese lends a lighter texture to chicken and cheese enchiladas, bathed in classic red enchilada sauce.
 
 Chicken/cheese enchilladas is one of the most favored of recent trending foods on earth. It is easy, it is quick, it tastes delicious. It's appreciated by millions every day. Chicken/cheese enchilladas is something that I've loved my whole life. They are fine and they look fantastic.
 
@@ -66,7 +66,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can have ch
 1. Get 6 Tortillas
 
 
-Cheese - who doesn&#39;t love it and how delicious it really becomes when it&#39;s all melted and gooey? An enchilada (/ˌɛntʃɪˈlɑːdə/, Spanish: [entʃiˈlaða]) is a corn tortilla rolled around a filling and covered with a savory sauce. Enchiladas can be filled with various ingredients, including meats, cheese, beans. Easy Chicken &amp; Cheese Enchiladas. this link is to an external site that may or may not meet accessibility guidelines. 
+Cheese - who doesn&#39;t love it and how delicious it really becomes when it&#39;s all melted and gooey? An enchilada (/ˌɛntʃɪˈlɑːdə/, Spanish: [entʃiˈlaða]) is a corn tortilla rolled around a filling and covered with a savory sauce. Enchiladas can be filled with various ingredients, including meats, cheese, beans. Easy Chicken & Cheese Enchiladas. this link is to an external site that may or may not meet accessibility guidelines. 
 
 <!--inarticleads2-->
 
@@ -79,6 +79,6 @@ Cheese - who doesn&#39;t love it and how delicious it really becomes when it&#39
 1. Bake for 40 minutes
 1. Ready to serve and ENJOY!
 
-Enchiladas can be filled with various ingredients, including meats, cheese, beans. Easy Chicken &amp; Cheese Enchiladas. this link is to an external site that may or may not meet accessibility guidelines. In a medium bowl, mix chicken, monterey jack cheese and one can of green chilies together. Pour all over the tortillas and top with cheddar cheese, and now you&#39;ve got yourself enchiladas! We&#39;re huge fans of chicken and cheese enchiladas! 
+Enchiladas can be filled with various ingredients, including meats, cheese, beans. Easy Chicken & Cheese Enchiladas. this link is to an external site that may or may not meet accessibility guidelines. In a medium bowl, mix chicken, monterey jack cheese and one can of green chilies together. Pour all over the tortillas and top with cheddar cheese, and now you&#39;ve got yourself enchiladas! We&#39;re huge fans of chicken and cheese enchiladas! 
 
 So that is going to wrap it up for this exceptional food chicken/cheese enchilladas recipe. Thank you very much for your time. I am confident that you will make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

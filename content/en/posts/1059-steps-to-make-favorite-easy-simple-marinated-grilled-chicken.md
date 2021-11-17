@@ -21,9 +21,9 @@ recipeingredient:
 - "1/3 cup balsamic vinegar"
 - "1/3 cup olive oil"
 recipeinstructions:
-- "Add olive oil, soy sause, balsamic vinegar, minced garlic &amp; Italian dressing in a gallon zip lock bag. Swish everything together."
-- "Add chicken breasts &amp; onion. Reseal. Put in a dish. Refrigerate until ready to grill. Flip halfway through."
-- "When ready to grill. Heat grill &amp; lightly oil. Remove chicken from marinate. Shake off excess. Throw the rest away."
+- "Add olive oil, soy sause, balsamic vinegar, minced garlic & Italian dressing in a gallon zip lock bag. Swish everything together."
+- "Add chicken breasts & onion. Reseal. Put in a dish. Refrigerate until ready to grill. Flip halfway through."
+- "When ready to grill. Heat grill & lightly oil. Remove chicken from marinate. Shake off excess. Throw the rest away."
 - "Grill chicken 4-6 minutes. Depending on the temp. Of your grill. Grill until done."
 - "Ready to serve and ENJOY!"
 categories:
@@ -74,9 +74,9 @@ To begin with this recipe, we must first prepare a few components. You can have 
 
 ##### Steps to make *  Easy Simple Marinated Grilled Chicken. *:
 
-1. Add olive oil, soy sause, balsamic vinegar, minced garlic &amp; Italian dressing in a gallon zip lock bag. Swish everything together.
-1. Add chicken breasts &amp; onion. Reseal. Put in a dish. Refrigerate until ready to grill. Flip halfway through.
-1. When ready to grill. Heat grill &amp; lightly oil. Remove chicken from marinate. Shake off excess. Throw the rest away.
+1. Add olive oil, soy sause, balsamic vinegar, minced garlic & Italian dressing in a gallon zip lock bag. Swish everything together.
+1. Add chicken breasts & onion. Reseal. Put in a dish. Refrigerate until ready to grill. Flip halfway through.
+1. When ready to grill. Heat grill & lightly oil. Remove chicken from marinate. Shake off excess. Throw the rest away.
 1. Grill chicken 4-6 minutes. Depending on the temp. Of your grill. Grill until done.
 1. Ready to serve and ENJOY!
 

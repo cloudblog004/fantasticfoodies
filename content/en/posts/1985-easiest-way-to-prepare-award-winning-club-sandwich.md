@@ -63,9 +63,9 @@ To begin with this particular recipe, we have to first prepare a few components.
 
 ##### The ingredients needed to make Club Sandwich:
 
-1. Get 1 Cup Chicken Boiled &amp; Shreded
+1. Get 1 Cup Chicken Boiled & Shreded
 1. Make ready to taste Salt
-1. Make ready  Black Pepper 1 &amp; 1/2 Teaspoon
+1. Make ready  Black Pepper 1 & 1/2 Teaspoon
 1. Take 1 Tea Spoon White Pepper
 1. Make ready 1 Tea Spoon Butter
 1. Take 2 Eggs

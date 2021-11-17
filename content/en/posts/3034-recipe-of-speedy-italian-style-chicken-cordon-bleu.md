@@ -70,7 +70,7 @@ Hello everybody, hope you're having an incredible day today. Today, we're going 
 
 italian style chicken cordon bleu is one of the most favored of current trending meals on earth. It's enjoyed by millions daily. It's simple, it's quick, it tastes delicious. italian style chicken cordon bleu is something which I've loved my entire life. They're fine and they look wonderful.
 
-A delicious French classic, chicken cordon bleu is made of chicken breasts stuffed with ham and Swiss cheese. Reviews for Photos of Chicken Cordon Bleu I. A French idea reinterpreted with some Italian flavors in a baked version that helps Italian Chicken Cordon Bleu. To lower the fat content even more substitute extra lean ham and low It&#39;s easy to keep up with the latest home style cooking &amp; baking ideas from Rock Recipes.
+A delicious French classic, chicken cordon bleu is made of chicken breasts stuffed with ham and Swiss cheese. Reviews for Photos of Chicken Cordon Bleu I. A French idea reinterpreted with some Italian flavors in a baked version that helps Italian Chicken Cordon Bleu. To lower the fat content even more substitute extra lean ham and low It&#39;s easy to keep up with the latest home style cooking & baking ideas from Rock Recipes.
 
 
 To get started with this recipe, we have to first prepare a few ingredients. You can cook italian style chicken cordon bleu using 13 ingredients and 18 steps. Here is how you can achieve that.

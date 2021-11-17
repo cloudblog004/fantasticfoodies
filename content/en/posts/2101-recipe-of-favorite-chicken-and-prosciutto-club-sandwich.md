@@ -48,7 +48,7 @@ recipecategory: Lunch
 
 Hello everybody, hope you're having an incredible day today. Today, I will show you a way to prepare a special dish, chicken and prosciutto club sandwich. It is one of my favorites food recipes. This time, I am going to make it a little bit tasty. This will be really delicious.
 
-Chicken and Prosciutto Club. this link is to an external site that may or may not meet accessibility guidelines. This sandwich is luscious duck, BBQ chicken, crispy prosciutto all on a pecan raisin bread…the combination is outstanding! What caused me to make this sandwich you may ask: While traveling this year, a coworker suggested I try the &#34;Cactus Club Cafe&#34; near the West Edmonton Mall in Alberta. Making this sandwich is perfect for one or many.
+Chicken and Prosciutto Club. this link is to an external site that may or may not meet accessibility guidelines. This sandwich is luscious duck, BBQ chicken, crispy prosciutto all on a pecan raisin bread…the combination is outstanding! What caused me to make this sandwich you may ask: While traveling this year, a coworker suggested I try the *Cactus Club Cafe* near the West Edmonton Mall in Alberta. Making this sandwich is perfect for one or many.
 
 Chicken and prosciutto club sandwich is one of the most well liked of recent trending meals on earth. It's easy, it's fast, it tastes delicious. It's appreciated by millions daily. They are fine and they look fantastic. Chicken and prosciutto club sandwich is something that I have loved my whole life.
 

@@ -27,12 +27,12 @@ recipeingredient:
 - "1 egg  egg wash before frying"
 recipeinstructions:
 - "Summary of the steps in 1 simple pic grid."
-- "Clean &amp; slice potato. Fry until soft. Drain &amp; finely mash each batch with potato masher. Repeat until finish then season with ground white pepper &amp; Chicken Seasoning powder. Mix until well combined."
+- "Clean & slice potato. Fry until soft. Drain & finely mash each batch with potato masher. Repeat until finish then season with ground white pepper & Chicken Seasoning powder. Mix until well combined."
 - "Boil minced meat. Once cooked, drain water."
-- "Sauté finely chopped onions until translucent. Turn off the heat and add onion to mashed potatoes. Mix &amp; taste. Adjust taste accordingly."
+- "Sauté finely chopped onions until translucent. Turn off the heat and add onion to mashed potatoes. Mix & taste. Adjust taste accordingly."
 - "Finely chop coriander."
-- "Mix A &amp; B until well combined. Taste &amp; adjust accordingly."
-- "Shape this mixture into balls &amp; then lightly flatten them. Break another egg in a small bowl and beat well. Dip these patties in the egg mixture one by one right before frying. Preheat oil and fry patties in SHALLOW oil over medium heat. Avoid moving or flipping patties until they look lightly brownish. Turn/flip them and continue frying until patties are all cooked. Careful not to burn patties."
+- "Mix A & B until well combined. Taste & adjust accordingly."
+- "Shape this mixture into balls & then lightly flatten them. Break another egg in a small bowl and beat well. Dip these patties in the egg mixture one by one right before frying. Preheat oil and fry patties in SHALLOW oil over medium heat. Avoid moving or flipping patties until they look lightly brownish. Turn/flip them and continue frying until patties are all cooked. Careful not to burn patties."
 - "Drain patties. Serve warm. Enjoy on its own or with soup or rice."
 - "Ready to serve and ENJOY!"
 categories:
@@ -68,9 +68,9 @@ To get started with this particular recipe, we must first prepare a few ingredie
 ##### The ingredients needed to make Meaty Potato:
 
 1. Take  A - First Preps
-1. Take  Potatoes - sliced, fried &amp; MASHED (see pic)
-1. Prepare 500 g minced meat - boiled &amp; drained
-1. Make ready 2 big brown/yellow onion - finely chopped &amp; sautéed
+1. Take  Potatoes - sliced, fried & MASHED (see pic)
+1. Prepare 500 g minced meat - boiled & drained
+1. Make ready 2 big brown/yellow onion - finely chopped & sautéed
 1. Get  B - Second Preps
 1. Prepare 1 bunch coriander - finely chopped
 1. Make ready 1 tsp chicken powder seasoning
@@ -88,12 +88,12 @@ To get started with this particular recipe, we must first prepare a few ingredie
 ##### Instructions to make Meaty Potato:
 
 1. Summary of the steps in 1 simple pic grid.
-1. Clean &amp; slice potato. Fry until soft. Drain &amp; finely mash each batch with potato masher. Repeat until finish then season with ground white pepper &amp; Chicken Seasoning powder. Mix until well combined.
+1. Clean & slice potato. Fry until soft. Drain & finely mash each batch with potato masher. Repeat until finish then season with ground white pepper & Chicken Seasoning powder. Mix until well combined.
 1. Boil minced meat. Once cooked, drain water.
-1. Sauté finely chopped onions until translucent. Turn off the heat and add onion to mashed potatoes. Mix &amp; taste. Adjust taste accordingly.
+1. Sauté finely chopped onions until translucent. Turn off the heat and add onion to mashed potatoes. Mix & taste. Adjust taste accordingly.
 1. Finely chop coriander.
-1. Mix A &amp; B until well combined. Taste &amp; adjust accordingly.
-1. Shape this mixture into balls &amp; then lightly flatten them. Break another egg in a small bowl and beat well. Dip these patties in the egg mixture one by one right before frying. Preheat oil and fry patties in SHALLOW oil over medium heat. Avoid moving or flipping patties until they look lightly brownish. Turn/flip them and continue frying until patties are all cooked. Careful not to burn patties.
+1. Mix A & B until well combined. Taste & adjust accordingly.
+1. Shape this mixture into balls & then lightly flatten them. Break another egg in a small bowl and beat well. Dip these patties in the egg mixture one by one right before frying. Preheat oil and fry patties in SHALLOW oil over medium heat. Avoid moving or flipping patties until they look lightly brownish. Turn/flip them and continue frying until patties are all cooked. Careful not to burn patties.
 1. Drain patties. Serve warm. Enjoy on its own or with soup or rice.
 1. Ready to serve and ENJOY!
 

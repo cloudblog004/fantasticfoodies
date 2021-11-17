@@ -35,10 +35,10 @@ recipeingredient:
 recipeinstructions:
 - "Marinate the chicken with the seasoning at least for 30 minutes."
 - "Wash and soak the rice for 30 minutes."
-- "Turn on the instant pot and push the &#34;saute&#34; button. Heat the ghee. Saute the onion and garlic until fragrant."
-- "Add the chicken and the marination. Mix them well. Close the lid and turn the valve to &#34;sealing&#34;. Set to manual mode for 10 minutes. When it&#39;s done, do the quick release by turning the valve to &#34;venting&#34;. Give the chicken a quick stir."
+- "Turn on the instant pot and push the *saute* button. Heat the ghee. Saute the onion and garlic until fragrant."
+- "Add the chicken and the marination. Mix them well. Close the lid and turn the valve to *sealing*. Set to manual mode for 10 minutes. When it&#39;s done, do the quick release by turning the valve to *venting*. Give the chicken a quick stir."
 - "Drain the rice and gently pour to cover the chicken."
-- "Mix the water with garam masala and salt. Pour gently around the rice. Close the lid and turn the valve to &#34;sealing&#34;. Set to manual mode for 6 minutes. When it&#39;s done, do the quick release."
+- "Mix the water with garam masala and salt. Pour gently around the rice. Close the lid and turn the valve to *sealing*. Set to manual mode for 6 minutes. When it&#39;s done, do the quick release."
 - "Gently fluff and mix the rice with the chicken on the bottom of the pot. Serve."
 - "Ready to serve and ENJOY!"
 categories:
@@ -103,10 +103,10 @@ To get started with this recipe, we have to first prepare a few components. You 
 
 1. Marinate the chicken with the seasoning at least for 30 minutes.
 1. Wash and soak the rice for 30 minutes.
-1. Turn on the instant pot and push the &#34;saute&#34; button. Heat the ghee. Saute the onion and garlic until fragrant.
-1. Add the chicken and the marination. Mix them well. Close the lid and turn the valve to &#34;sealing&#34;. Set to manual mode for 10 minutes. When it&#39;s done, do the quick release by turning the valve to &#34;venting&#34;. Give the chicken a quick stir.
+1. Turn on the instant pot and push the *saute* button. Heat the ghee. Saute the onion and garlic until fragrant.
+1. Add the chicken and the marination. Mix them well. Close the lid and turn the valve to *sealing*. Set to manual mode for 10 minutes. When it&#39;s done, do the quick release by turning the valve to *venting*. Give the chicken a quick stir.
 1. Drain the rice and gently pour to cover the chicken.
-1. Mix the water with garam masala and salt. Pour gently around the rice. Close the lid and turn the valve to &#34;sealing&#34;. Set to manual mode for 6 minutes. When it&#39;s done, do the quick release.
+1. Mix the water with garam masala and salt. Pour gently around the rice. Close the lid and turn the valve to *sealing*. Set to manual mode for 6 minutes. When it&#39;s done, do the quick release.
 1. Gently fluff and mix the rice with the chicken on the bottom of the pot. Serve.
 1. Ready to serve and ENJOY!
 

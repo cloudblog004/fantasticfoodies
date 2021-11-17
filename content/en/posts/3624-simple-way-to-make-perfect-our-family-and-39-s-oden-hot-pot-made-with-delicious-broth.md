@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Make Perfect Our Family&amp;#39;s Oden Hot Pot Made With Delicious Broth"
-title: "Simple Way to Make Perfect Our Family&amp;#39;s Oden Hot Pot Made With Delicious Broth"
+description: "Simple Way to Make Perfect Our Family's Oden Hot Pot Made With Delicious Broth"
+title: "Simple Way to Make Perfect Our Family's Oden Hot Pot Made With Delicious Broth"
 slug: 3624-simple-way-to-make-perfect-our-family-and-39-s-oden-hot-pot-made-with-delicious-broth
 date: 2022-02-25T06:35:06.938Z
 image: https://img-global.cpcdn.com/recipes/5713641033695232/680x482cq70/our-familys-oden-hot-pot-made-with-delicious-broth-recipe-main-photo.jpg

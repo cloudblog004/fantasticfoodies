@@ -26,7 +26,7 @@ recipeingredient:
 - "2 tablespoons shredded fresh basil if you have it I sprinkled a bit of dry basil seasoning on it"
 recipeinstructions:
 - "Heat oven to 400 degrees farenheit"
-- "In a 10&#34; oven proof skillet melt a tablespoon of butter. Add bread crumbs cook stirring frequently until toasted, about 5 minutes. Transfer to separate small dish. Add Parmesan cheese to toasted Panko crumbs. Set aside."
+- "In a 10* oven proof skillet melt a tablespoon of butter. Add bread crumbs cook stirring frequently until toasted, about 5 minutes. Transfer to separate small dish. Add Parmesan cheese to toasted Panko crumbs. Set aside."
 - "Wipe skillet and add remaining 2 tablespoons butter into skillet over medium high heat. Add chicken and salt and cook until chicken is cooked thru, add garlic, Italian seasoning and pepper flakes; stir and cook another minute."
 - "Stir in pasta sauce; heat to simmering. If the consistency is to thin I simmer intil it thickens to my liking.Remove from heat, top with mozzarella cheese. Bake until cheese is melted probably 5 minutes."
 - "Sprinkle with bread crumb mixture. Top with basil."
@@ -85,7 +85,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 ##### Instructions to make Chicken Parmesan Skillet Casserole:
 
 1. Heat oven to 400 degrees farenheit
-1. In a 10&#34; oven proof skillet melt a tablespoon of butter. Add bread crumbs cook stirring frequently until toasted, about 5 minutes. Transfer to separate small dish. Add Parmesan cheese to toasted Panko crumbs. Set aside.
+1. In a 10* oven proof skillet melt a tablespoon of butter. Add bread crumbs cook stirring frequently until toasted, about 5 minutes. Transfer to separate small dish. Add Parmesan cheese to toasted Panko crumbs. Set aside.
 1. Wipe skillet and add remaining 2 tablespoons butter into skillet over medium high heat. Add chicken and salt and cook until chicken is cooked thru, add garlic, Italian seasoning and pepper flakes; stir and cook another minute.
 1. Stir in pasta sauce; heat to simmering. If the consistency is to thin I simmer intil it thickens to my liking.Remove from heat, top with mozzarella cheese. Bake until cheese is melted probably 5 minutes.
 1. Sprinkle with bread crumb mixture. Top with basil.

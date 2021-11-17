@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Ultimate Seasoned Chicken &amp;amp; cheese wrap with bell peppers and sour cream."
-title: "Steps to Prepare Ultimate Seasoned Chicken &amp;amp; cheese wrap with bell peppers and sour cream."
+description: "Steps to Prepare Ultimate Seasoned Chicken & cheese wrap with bell peppers and sour cream."
+title: "Steps to Prepare Ultimate Seasoned Chicken & cheese wrap with bell peppers and sour cream."
 slug: 3619-steps-to-prepare-ultimate-seasoned-chicken-and-amp-cheese-wrap-with-bell-peppers-and-sour-cream
 date: 2022-05-10T02:08:15.129Z
 image: https://img-global.cpcdn.com/recipes/6009283236855808/680x482cq70/seasoned-chicken-cheese-wrap-with-bell-peppers-and-sour-cream-recipe-main-photo.jpg
@@ -26,7 +26,7 @@ recipeinstructions:
 - "Base your skillet with butter."
 - "Cook chicken evenly on both sides in skillet until it&#39;s slightly golden brown."
 - "While chicken is cooking . gut and cut up the bell pepper into chunks"
-- "Place bell pepper in a container, in the fridge to keep cool &amp; crisp until needed."
+- "Place bell pepper in a container, in the fridge to keep cool & crisp until needed."
 - "After chicken is lightly cooked remove from skillet and place on cutting board. Slice into thin strips."
 - "Drain skillet of excess butter and wipe out with paper towel"
 - "Return skillet to a low heat,  melt 1/8th a cup of butter."
@@ -57,20 +57,20 @@ recipecategory: Dessert
 ---
 
 
-![Seasoned Chicken &amp; cheese wrap with bell peppers and sour cream.](https://img-global.cpcdn.com/recipes/6009283236855808/680x482cq70/seasoned-chicken-cheese-wrap-with-bell-peppers-and-sour-cream-recipe-main-photo.jpg)
+![Seasoned Chicken & cheese wrap with bell peppers and sour cream.](https://img-global.cpcdn.com/recipes/6009283236855808/680x482cq70/seasoned-chicken-cheese-wrap-with-bell-peppers-and-sour-cream-recipe-main-photo.jpg)
 
-Hello everybody, it is Louise, welcome to my recipe site. Today, we're going to make a special dish, seasoned chicken &amp; cheese wrap with bell peppers and sour cream.. It is one of my favorites food recipes. For mine, I am going to make it a bit tasty. This is gonna smell and look delicious.
-
-
-
-Seasoned Chicken &amp; cheese wrap with bell peppers and sour cream. is one of the most favored of current trending meals in the world. It's simple, it's quick, it tastes delicious. It is enjoyed by millions daily. They're nice and they look wonderful. Seasoned Chicken &amp; cheese wrap with bell peppers and sour cream. is something which I've loved my entire life.
+Hello everybody, it is Louise, welcome to my recipe site. Today, we're going to make a special dish, seasoned chicken & cheese wrap with bell peppers and sour cream.. It is one of my favorites food recipes. For mine, I am going to make it a bit tasty. This is gonna smell and look delicious.
 
 
-To begin with this recipe, we must prepare a few components. You can cook seasoned chicken &amp; cheese wrap with bell peppers and sour cream. using 8 ingredients and 16 steps. Here is how you can achieve it.
+
+Seasoned Chicken & cheese wrap with bell peppers and sour cream. is one of the most favored of current trending meals in the world. It's simple, it's quick, it tastes delicious. It is enjoyed by millions daily. They're nice and they look wonderful. Seasoned Chicken & cheese wrap with bell peppers and sour cream. is something which I've loved my entire life.
+
+
+To begin with this recipe, we must prepare a few components. You can cook seasoned chicken & cheese wrap with bell peppers and sour cream. using 8 ingredients and 16 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Seasoned Chicken &amp; cheese wrap with bell peppers and sour cream.:
+##### The ingredients needed to make Seasoned Chicken & cheese wrap with bell peppers and sour cream.:
 
 1. Take  Prep ingredients
 1. Get 1 red bell pepper
@@ -86,13 +86,13 @@ To begin with this recipe, we must prepare a few components. You can cook season
 
 <!--inarticleads2-->
 
-##### Instructions to make Seasoned Chicken &amp; cheese wrap with bell peppers and sour cream.:
+##### Instructions to make Seasoned Chicken & cheese wrap with bell peppers and sour cream.:
 
 1. Heat stove top to a medium heat.
 1. Base your skillet with butter.
 1. Cook chicken evenly on both sides in skillet until it&#39;s slightly golden brown.
 1. While chicken is cooking . gut and cut up the bell pepper into chunks
-1. Place bell pepper in a container, in the fridge to keep cool &amp; crisp until needed.
+1. Place bell pepper in a container, in the fridge to keep cool & crisp until needed.
 1. After chicken is lightly cooked remove from skillet and place on cutting board. Slice into thin strips.
 1. Drain skillet of excess butter and wipe out with paper towel
 1. Return skillet to a low heat,  melt 1/8th a cup of butter.
@@ -108,4 +108,4 @@ To begin with this recipe, we must prepare a few components. You can cook season
 
 
 
-So that's going to wrap it up with this special food seasoned chicken &amp; cheese wrap with bell peppers and sour cream. recipe. Thanks so much for your time. I'm sure that you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!
+So that's going to wrap it up with this special food seasoned chicken & cheese wrap with bell peppers and sour cream. recipe. Thanks so much for your time. I'm sure that you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

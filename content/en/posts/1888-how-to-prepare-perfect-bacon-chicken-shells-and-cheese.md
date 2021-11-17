@@ -55,7 +55,7 @@ Hey everyone, it's Louise, welcome to my recipe site. Today, I will show you a w
 
 Bacon chicken shells and cheese is one of the most favored of current trending meals in the world. It's easy, it is fast, it tastes yummy. It is appreciated by millions daily. Bacon chicken shells and cheese is something that I've loved my whole life. They're nice and they look wonderful.
 
-The best basic shells &amp; cheese recipe! Add some peas and bacon and it&#39;s even more heavenly! This ultra-simple, kid-friendly recipe for pasta shells and cheese is absolutely scrumptious and so darn easy to make. The secret&#39;s in the (artisan cheese) sauce.
+The best basic shells & cheese recipe! Add some peas and bacon and it&#39;s even more heavenly! This ultra-simple, kid-friendly recipe for pasta shells and cheese is absolutely scrumptious and so darn easy to make. The secret&#39;s in the (artisan cheese) sauce.
 
 
 To get started with this particular recipe, we have to prepare a few components. You can cook bacon chicken shells and cheese using 8 ingredients and 8 steps. Here is how you can achieve it.

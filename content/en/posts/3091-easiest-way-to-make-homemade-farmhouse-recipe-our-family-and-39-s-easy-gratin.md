@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Homemade [Farmhouse Recipe]  Our Family&amp;#39;s Easy Gratin"
-title: "Easiest Way to Make Homemade [Farmhouse Recipe]  Our Family&amp;#39;s Easy Gratin"
+description: "Easiest Way to Make Homemade [Farmhouse Recipe]  Our Family's Easy Gratin"
+title: "Easiest Way to Make Homemade [Farmhouse Recipe]  Our Family's Easy Gratin"
 slug: 3091-easiest-way-to-make-homemade-farmhouse-recipe-our-family-and-39-s-easy-gratin
 date: 2022-04-16T08:46:12.573Z
 image: https://img-global.cpcdn.com/recipes/5388183165468672/680x482cq70/farmhouse-recipe-our-familys-easy-gratin-recipe-main-photo.jpg

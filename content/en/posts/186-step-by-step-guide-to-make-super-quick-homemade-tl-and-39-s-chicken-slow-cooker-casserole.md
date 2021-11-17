@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Super Quick Homemade TL&amp;#39;s chicken slow cooker casserole"
-title: "Step-by-Step Guide to Make Super Quick Homemade TL&amp;#39;s chicken slow cooker casserole"
+description: "Step-by-Step Guide to Make Super Quick Homemade TL's chicken slow cooker casserole"
+title: "Step-by-Step Guide to Make Super Quick Homemade TL's chicken slow cooker casserole"
 slug: 186-step-by-step-guide-to-make-super-quick-homemade-tl-and-39-s-chicken-slow-cooker-casserole
 date: 2022-01-06T08:35:09.523Z
 image: https://img-global.cpcdn.com/recipes/5107017382363136/680x482cq70/tls-chicken-slow-cooker-casserole-recipe-main-photo.jpg

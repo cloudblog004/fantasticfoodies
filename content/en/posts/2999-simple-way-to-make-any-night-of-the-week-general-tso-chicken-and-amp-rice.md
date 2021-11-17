@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Make Any-night-of-the-week General Tso Chicken &amp;amp; Rice"
-title: "Simple Way to Make Any-night-of-the-week General Tso Chicken &amp;amp; Rice"
+description: "Simple Way to Make Any-night-of-the-week General Tso Chicken & Rice"
+title: "Simple Way to Make Any-night-of-the-week General Tso Chicken & Rice"
 slug: 2999-simple-way-to-make-any-night-of-the-week-general-tso-chicken-and-amp-rice
 date: 2022-04-04T04:20:44.484Z
 image: https://img-global.cpcdn.com/recipes/32a9f9e4b96506e8/680x482cq70/general-tso-chicken-rice-recipe-main-photo.jpg
@@ -54,20 +54,20 @@ recipecategory: Lunch
 ---
 
 
-![General Tso Chicken &amp; Rice](https://img-global.cpcdn.com/recipes/32a9f9e4b96506e8/680x482cq70/general-tso-chicken-rice-recipe-main-photo.jpg)
+![General Tso Chicken & Rice](https://img-global.cpcdn.com/recipes/32a9f9e4b96506e8/680x482cq70/general-tso-chicken-rice-recipe-main-photo.jpg)
 
-Hello everybody, it's Louise, welcome to our recipe site. Today, we're going to make a distinctive dish, general tso chicken &amp; rice. It is one of my favorites. This time, I'm gonna make it a little bit unique. This will be really delicious.
+Hello everybody, it's Louise, welcome to our recipe site. Today, we're going to make a distinctive dish, general tso chicken & rice. It is one of my favorites. This time, I'm gonna make it a little bit unique. This will be really delicious.
 
-General Tso Chicken &amp; Rice is one of the most favored of current trending foods on earth. It's simple, it is fast, it tastes delicious. It's appreciated by millions every day. They're nice and they look fantastic. General Tso Chicken &amp; Rice is something that I have loved my whole life.
-
-
+General Tso Chicken & Rice is one of the most favored of current trending foods on earth. It's simple, it is fast, it tastes delicious. It's appreciated by millions every day. They're nice and they look fantastic. General Tso Chicken & Rice is something that I have loved my whole life.
 
 
-To get started with this particular recipe, we have to first prepare a few ingredients. You can cook general tso chicken &amp; rice using 12 ingredients and 9 steps. Here is how you can achieve it.
+
+
+To get started with this particular recipe, we have to first prepare a few ingredients. You can cook general tso chicken & rice using 12 ingredients and 9 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make General Tso Chicken &amp; Rice:
+##### The ingredients needed to make General Tso Chicken & Rice:
 
 1. Prepare 1 lb chicken breast, cubed
 1. Take  Oil for frying
@@ -87,7 +87,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 
 <!--inarticleads2-->
 
-##### Steps to make General Tso Chicken &amp; Rice:
+##### Steps to make General Tso Chicken & Rice:
 
 1. Toss the chicken with the quarter cup of flour and let sit while you mix the sauce ingredients.
 1. Put your jasmine rice in a pot with water and cook as directed on package.
@@ -102,4 +102,4 @@ To get started with this particular recipe, we have to first prepare a few ingre
 
 
 
-So that is going to wrap it up with this exceptional food general tso chicken &amp; rice recipe. Thank you very much for reading. I'm sure that you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
+So that is going to wrap it up with this exceptional food general tso chicken & rice recipe. Thank you very much for reading. I'm sure that you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

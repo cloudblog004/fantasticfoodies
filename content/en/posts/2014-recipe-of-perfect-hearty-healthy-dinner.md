@@ -73,7 +73,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 1. Take 1 Spinach, chopped
 1. Get 1 garlic clove, thinly sliced
 1. Make ready 1 Lemon juice
-1. Prepare 1 Salt &amp; pepper
+1. Prepare 1 Salt & pepper
 1. Get 1 Garlic powder
 1. Get 1 Oregano leaves
 1. Get 1 Steak spice

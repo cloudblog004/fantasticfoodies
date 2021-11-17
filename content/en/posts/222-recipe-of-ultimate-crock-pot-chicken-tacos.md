@@ -67,7 +67,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Get 1 onion chopped
 
 
-At our house, these Crock-Pot Chicken Tacos (aka Crock Pot Chicken Tacos OR Slow Cooker Chicken Tacos OR just &#34;Oh Yum&#34;!) really are &#34;that one&#34; recipe. The one that never ever fails to be awesome. Crock pot Chicken Taco Chili Tried and Tasty. Keto Crock-Pot Chicken Tacos: This taco meat is also Keto diet friendly too if you use a taco seasoning mix and salsa that are keto friendly. 
+At our house, these Crock-Pot Chicken Tacos (aka Crock Pot Chicken Tacos OR Slow Cooker Chicken Tacos OR just *Oh Yum*!) really are *that one* recipe. The one that never ever fails to be awesome. Crock pot Chicken Taco Chili Tried and Tasty. Keto Crock-Pot Chicken Tacos: This taco meat is also Keto diet friendly too if you use a taco seasoning mix and salsa that are keto friendly. 
 
 <!--inarticleads2-->
 

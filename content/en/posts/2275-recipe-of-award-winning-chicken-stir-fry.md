@@ -77,7 +77,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Prepare 2 tsp. sesame oil
 1. Take 2 tsp. sesame seeds
 1. Take  vegetable oil for sauteing
-1. Take  Seasonings to taste: black pepper &amp; garlic powder
+1. Take  Seasonings to taste: black pepper & garlic powder
 
 
 

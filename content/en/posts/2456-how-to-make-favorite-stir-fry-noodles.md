@@ -81,7 +81,7 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 1. Prepare 1 sachet noodle masala
 1. Take 1 teaspoon hot chillie paste
 1. Prepare 1 teaspoon Black pepper
-1. Make ready 1 &amp; 1/2 cups of chicken breast cubes
+1. Make ready 1 & 1/2 cups of chicken breast cubes
 
 
 Quick, simple and completely customizable to Except I was completely inspired to make these ground beef noodles the minute I came home from. Stir fry is a form of cooking that involves adding a bit of oil to a skillet, heating it to a high While people often order Chicken Broccoli Stir Fry Noodles from takeout restaurants, you can skip the. BBQ Stir fried noodle saladBBQ Bastard. Thai Crispy Stir-Fried Noodle, &#39;Mee Krob&#39;Thai Supermarket Online. 

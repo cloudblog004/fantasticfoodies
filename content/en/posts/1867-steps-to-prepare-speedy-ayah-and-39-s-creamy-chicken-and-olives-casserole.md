@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Speedy Ayah&amp;#39;s Creamy Chicken and Olives Casserole"
-title: "Steps to Prepare Speedy Ayah&amp;#39;s Creamy Chicken and Olives Casserole"
+description: "Steps to Prepare Speedy Ayah's Creamy Chicken and Olives Casserole"
+title: "Steps to Prepare Speedy Ayah's Creamy Chicken and Olives Casserole"
 slug: 1867-steps-to-prepare-speedy-ayah-and-39-s-creamy-chicken-and-olives-casserole
 date: 2022-01-28T05:01:21.329Z
 image: https://img-global.cpcdn.com/recipes/54463051/680x482cq70/ayahs-creamy-chicken-and-olives-casserole-recipe-main-photo.jpg

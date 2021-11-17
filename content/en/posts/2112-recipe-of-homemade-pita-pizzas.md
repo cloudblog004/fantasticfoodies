@@ -70,7 +70,7 @@ To get started with this recipe, we have to first prepare a few components. You 
 1. Make ready 1/4 cup grated Parmeson cheese
 
 
-Pizza Pita has now become a landmark for the Jewish community of Montreal and is also known as the &#34;go-to&#34; place for anyone visiting our city. Chaim and Tzvi&#39;s dream had come to fruition. Fresh and delicious pizza every time. Greek Pita Pizzas are a fun and healthy way to do pizza night! 
+Pizza Pita has now become a landmark for the Jewish community of Montreal and is also known as the *go-to* place for anyone visiting our city. Chaim and Tzvi&#39;s dream had come to fruition. Fresh and delicious pizza every time. Greek Pita Pizzas are a fun and healthy way to do pizza night! 
 
 <!--inarticleads2-->
 

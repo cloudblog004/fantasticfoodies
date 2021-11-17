@@ -85,7 +85,7 @@ To get started with this recipe, we have to prepare a few ingredients. You can c
 1. Prepare 1 sheet aluminium foil
 
 
-Being quite an amateur cook I still managed to cook up a feast with this single dish and my hubby is still licking his. Chicken biryani recipe with video &amp; step-by-step photos. Biryani is one of the most amazing royal delicacies introduced to Indians by the Persians. Since then it has been much popular and is. 
+Being quite an amateur cook I still managed to cook up a feast with this single dish and my hubby is still licking his. Chicken biryani recipe with video & step-by-step photos. Biryani is one of the most amazing royal delicacies introduced to Indians by the Persians. Since then it has been much popular and is. 
 
 <!--inarticleads2-->
 

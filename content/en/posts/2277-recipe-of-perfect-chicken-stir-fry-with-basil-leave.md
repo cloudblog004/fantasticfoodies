@@ -68,7 +68,7 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 1. Take 2 handfull of thai basil
 
 
-Dishes like this Thai Chicken Stir-fry with Basil &amp; Mint make me think about a lot of people who are just getting started in the kitchen. Stir fry mince garlic and chilli in hot oil. Chicken strips in a basil and coconut milk sauce are served over jasmine rice. Reviews for Photos of Thai Chicken with Basil Stir Fry. 
+Dishes like this Thai Chicken Stir-fry with Basil & Mint make me think about a lot of people who are just getting started in the kitchen. Stir fry mince garlic and chilli in hot oil. Chicken strips in a basil and coconut milk sauce are served over jasmine rice. Reviews for Photos of Thai Chicken with Basil Stir Fry. 
 
 <!--inarticleads2-->
 

@@ -25,12 +25,12 @@ recipeingredient:
 - "leaves few coriander"
 recipeinstructions:
 - "Wash the chicken pieces with fresh water 2_3 times."
-- "In a cooker,heat desi ghee&amp; add chopped ginger &amp; garlic.Cook on the low flame till the aroma smells.."
-- "Now add chopped onions &amp; cook till they becomes little brown &amp; add red chilli powder, turmeric powder &amp; salt.Saute for few seconds."
-- "Add chopped tomatoes &amp; cook on the low flame till they become soft.Add raw chicken pieces."
-- "Mix well &amp; add 1 glass of water in it &amp; cover with lid,after a whistle,slow down the flame &amp; cook for 5_8 minutes."
-- "After 5_8 minutes switch off the flame,let it cool down,Open the lid &amp; check if the chicken is properly cooked."
-- "Pour the soup in serving bowl &amp;with chicken pieces &amp;vgarnish with coriander leaves."
+- "In a cooker,heat desi ghee& add chopped ginger & garlic.Cook on the low flame till the aroma smells.."
+- "Now add chopped onions & cook till they becomes little brown & add red chilli powder, turmeric powder & salt.Saute for few seconds."
+- "Add chopped tomatoes & cook on the low flame till they become soft.Add raw chicken pieces."
+- "Mix well & add 1 glass of water in it & cover with lid,after a whistle,slow down the flame & cook for 5_8 minutes."
+- "After 5_8 minutes switch off the flame,let it cool down,Open the lid & check if the chicken is properly cooked."
+- "Pour the soup in serving bowl &with chicken pieces &vgarnish with coriander leaves."
 - "Serve hot."
 - "Ready to serve and ENJOY!"
 categories:
@@ -67,7 +67,7 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 
 1. Get 4 pieces raw chicken
 1. Get 2 tbsp desi ghee
-1. Make ready 1 tsp chopped ginger &amp; garlic
+1. Make ready 1 tsp chopped ginger & garlic
 1. Make ready 1 chopped onion
 1. Prepare 1 chopped tomato
 1. Make ready to taste salt
@@ -84,12 +84,12 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 ##### Instructions to make Chicken Soup:
 
 1. Wash the chicken pieces with fresh water 2_3 times.
-1. In a cooker,heat desi ghee&amp; add chopped ginger &amp; garlic.Cook on the low flame till the aroma smells..
-1. Now add chopped onions &amp; cook till they becomes little brown &amp; add red chilli powder, turmeric powder &amp; salt.Saute for few seconds.
-1. Add chopped tomatoes &amp; cook on the low flame till they become soft.Add raw chicken pieces.
-1. Mix well &amp; add 1 glass of water in it &amp; cover with lid,after a whistle,slow down the flame &amp; cook for 5_8 minutes.
-1. After 5_8 minutes switch off the flame,let it cool down,Open the lid &amp; check if the chicken is properly cooked.
-1. Pour the soup in serving bowl &amp;with chicken pieces &amp;vgarnish with coriander leaves.
+1. In a cooker,heat desi ghee& add chopped ginger & garlic.Cook on the low flame till the aroma smells..
+1. Now add chopped onions & cook till they becomes little brown & add red chilli powder, turmeric powder & salt.Saute for few seconds.
+1. Add chopped tomatoes & cook on the low flame till they become soft.Add raw chicken pieces.
+1. Mix well & add 1 glass of water in it & cover with lid,after a whistle,slow down the flame & cook for 5_8 minutes.
+1. After 5_8 minutes switch off the flame,let it cool down,Open the lid & check if the chicken is properly cooked.
+1. Pour the soup in serving bowl &with chicken pieces &vgarnish with coriander leaves.
 1. Serve hot.
 1. Ready to serve and ENJOY!
 

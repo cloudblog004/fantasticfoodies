@@ -26,11 +26,11 @@ recipeingredient:
 - "1 tsp Cornstarch dissolved in 3 tablespoon water as cornstarch solution"
 - "2 pinch Spring onion sliced finely as garnish"
 recipeinstructions:
-- "First beat the eggs lightly &amp; mix chicken seasoning, 1/3 tsp of sugar, soy sauce &amp; a pinch of pepper together with the eggs"
-- "Next heat the frying pan, add a little oil &amp; fry the crab stick shreds for 2-3 min until there&#39;s a seafood crabstick fragrance emanating from the pan."
-- "Add the egg mixture from earlier &amp; leave it to fry over a low flame. Gently slide the spatula or spoon along the sides of the egg when the bottom is cooked well enough (it&#39;ll break when it&#39;s liquid-ish, if that&#39;s the case, it&#39;s not ready) &amp; flip it over with the help of 2 spatulas."
-- "Cook the other side gently over a low flame. &amp; when it&#39;s cooked lightly golden, u can transfer it to a dish."
-- "Lastly, simmer the dashi stock with oyster sauce, 1/3 tsp sugar &amp; a dash of sesame oil. Gently add a little of the cornstarch solution, a little at a time stirring until the gravy is thickened lightly. Discard the rest of the solution once sauce is done. Spoon the gravy over the egg on the dish &amp; sprinkle with spring onion. Serve hot &amp; enjoy it with some cooked fluffy rice."
+- "First beat the eggs lightly & mix chicken seasoning, 1/3 tsp of sugar, soy sauce & a pinch of pepper together with the eggs"
+- "Next heat the frying pan, add a little oil & fry the crab stick shreds for 2-3 min until there&#39;s a seafood crabstick fragrance emanating from the pan."
+- "Add the egg mixture from earlier & leave it to fry over a low flame. Gently slide the spatula or spoon along the sides of the egg when the bottom is cooked well enough (it&#39;ll break when it&#39;s liquid-ish, if that&#39;s the case, it&#39;s not ready) & flip it over with the help of 2 spatulas."
+- "Cook the other side gently over a low flame. & when it&#39;s cooked lightly golden, u can transfer it to a dish."
+- "Lastly, simmer the dashi stock with oyster sauce, 1/3 tsp sugar & a dash of sesame oil. Gently add a little of the cornstarch solution, a little at a time stirring until the gravy is thickened lightly. Discard the rest of the solution once sauce is done. Spoon the gravy over the egg on the dish & sprinkle with spring onion. Serve hot & enjoy it with some cooked fluffy rice."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -85,11 +85,11 @@ To get started with this particular recipe, we must first prepare a few ingredie
 
 ##### Instructions to make Egg With Crabmeat Shreds:
 
-1. First beat the eggs lightly &amp; mix chicken seasoning, 1/3 tsp of sugar, soy sauce &amp; a pinch of pepper together with the eggs
-1. Next heat the frying pan, add a little oil &amp; fry the crab stick shreds for 2-3 min until there&#39;s a seafood crabstick fragrance emanating from the pan.
-1. Add the egg mixture from earlier &amp; leave it to fry over a low flame. Gently slide the spatula or spoon along the sides of the egg when the bottom is cooked well enough (it&#39;ll break when it&#39;s liquid-ish, if that&#39;s the case, it&#39;s not ready) &amp; flip it over with the help of 2 spatulas.
-1. Cook the other side gently over a low flame. &amp; when it&#39;s cooked lightly golden, u can transfer it to a dish.
-1. Lastly, simmer the dashi stock with oyster sauce, 1/3 tsp sugar &amp; a dash of sesame oil. Gently add a little of the cornstarch solution, a little at a time stirring until the gravy is thickened lightly. Discard the rest of the solution once sauce is done. Spoon the gravy over the egg on the dish &amp; sprinkle with spring onion. Serve hot &amp; enjoy it with some cooked fluffy rice.
+1. First beat the eggs lightly & mix chicken seasoning, 1/3 tsp of sugar, soy sauce & a pinch of pepper together with the eggs
+1. Next heat the frying pan, add a little oil & fry the crab stick shreds for 2-3 min until there&#39;s a seafood crabstick fragrance emanating from the pan.
+1. Add the egg mixture from earlier & leave it to fry over a low flame. Gently slide the spatula or spoon along the sides of the egg when the bottom is cooked well enough (it&#39;ll break when it&#39;s liquid-ish, if that&#39;s the case, it&#39;s not ready) & flip it over with the help of 2 spatulas.
+1. Cook the other side gently over a low flame. & when it&#39;s cooked lightly golden, u can transfer it to a dish.
+1. Lastly, simmer the dashi stock with oyster sauce, 1/3 tsp sugar & a dash of sesame oil. Gently add a little of the cornstarch solution, a little at a time stirring until the gravy is thickened lightly. Discard the rest of the solution once sauce is done. Spoon the gravy over the egg on the dish & sprinkle with spring onion. Serve hot & enjoy it with some cooked fluffy rice.
 1. Ready to serve and ENJOY!
 
 

@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Prepare Perfect Cheesy Chicken Broccoli &amp;amp; Rice Casserole"
-title: "Simple Way to Prepare Perfect Cheesy Chicken Broccoli &amp;amp; Rice Casserole"
+description: "Simple Way to Prepare Perfect Cheesy Chicken Broccoli & Rice Casserole"
+title: "Simple Way to Prepare Perfect Cheesy Chicken Broccoli & Rice Casserole"
 slug: 1252-simple-way-to-prepare-perfect-cheesy-chicken-broccoli-and-amp-rice-casserole
 date: 2022-05-12T14:28:48.293Z
 image: https://img-global.cpcdn.com/recipes/32099959f2b28bf8/680x482cq70/cheesy-chicken-broccoli-rice-casserole-recipe-main-photo.jpg
@@ -54,23 +54,23 @@ recipecategory: Dessert
 ---
 
 
-![Cheesy Chicken Broccoli &amp; Rice Casserole](https://img-global.cpcdn.com/recipes/32099959f2b28bf8/680x482cq70/cheesy-chicken-broccoli-rice-casserole-recipe-main-photo.jpg)
+![Cheesy Chicken Broccoli & Rice Casserole](https://img-global.cpcdn.com/recipes/32099959f2b28bf8/680x482cq70/cheesy-chicken-broccoli-rice-casserole-recipe-main-photo.jpg)
 
-Hello everybody, hope you're having an amazing day today. Today, I will show you a way to prepare a distinctive dish, cheesy chicken broccoli &amp; rice casserole. One of my favorites. This time, I will make it a little bit unique. This is gonna smell and look delicious.
+Hello everybody, hope you're having an amazing day today. Today, I will show you a way to prepare a distinctive dish, cheesy chicken broccoli & rice casserole. One of my favorites. This time, I will make it a little bit unique. This is gonna smell and look delicious.
 
-Cheesy Chicken Broccoli &amp; Rice Casserole is one of the most favored of current trending foods in the world. It is easy, it's quick, it tastes delicious. It's appreciated by millions daily. They are nice and they look wonderful. Cheesy Chicken Broccoli &amp; Rice Casserole is something that I've loved my entire life.
-
-
+Cheesy Chicken Broccoli & Rice Casserole is one of the most favored of current trending foods in the world. It is easy, it's quick, it tastes delicious. It's appreciated by millions daily. They are nice and they look wonderful. Cheesy Chicken Broccoli & Rice Casserole is something that I've loved my entire life.
 
 
-To get started with this recipe, we must first prepare a few components. You can cook cheesy chicken broccoli &amp; rice casserole using 11 ingredients and 10 steps. Here is how you cook that.
+
+
+To get started with this recipe, we must first prepare a few components. You can cook cheesy chicken broccoli & rice casserole using 11 ingredients and 10 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Cheesy Chicken Broccoli &amp; Rice Casserole:
+##### The ingredients needed to make Cheesy Chicken Broccoli & Rice Casserole:
 
 1. Take 4 Chicken Breast
-1. Get to taste Salt &amp; Pepper
+1. Get to taste Salt & Pepper
 1. Prepare  Smoked Paprika (optional)
 1. Take 2 C Quick Cook or Instant Brown Rice
 1. Prepare 1 bag Frozen Broccoli Florets
@@ -86,7 +86,7 @@ To get started with this recipe, we must first prepare a few components. You can
 
 <!--inarticleads2-->
 
-##### Instructions to make Cheesy Chicken Broccoli &amp; Rice Casserole:
+##### Instructions to make Cheesy Chicken Broccoli & Rice Casserole:
 
 1. Preheat oven to 375F
 1. Season chicken breast with salt, pepper, and smoked paprika.
@@ -102,4 +102,4 @@ To get started with this recipe, we must first prepare a few components. You can
 
 
 
-So that is going to wrap this up for this special food cheesy chicken broccoli &amp; rice casserole recipe. Thanks so much for reading. I am sure you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!
+So that is going to wrap this up for this special food cheesy chicken broccoli & rice casserole recipe. Thanks so much for reading. I am sure you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

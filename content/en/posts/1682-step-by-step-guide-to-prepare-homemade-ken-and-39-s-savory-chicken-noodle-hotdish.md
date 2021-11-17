@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Prepare Homemade Ken&amp;#39;s Savory Chicken Noodle Hotdish"
-title: "Step-by-Step Guide to Prepare Homemade Ken&amp;#39;s Savory Chicken Noodle Hotdish"
+description: "Step-by-Step Guide to Prepare Homemade Ken's Savory Chicken Noodle Hotdish"
+title: "Step-by-Step Guide to Prepare Homemade Ken's Savory Chicken Noodle Hotdish"
 slug: 1682-step-by-step-guide-to-prepare-homemade-ken-and-39-s-savory-chicken-noodle-hotdish
 date: 2021-12-29T15:05:28.565Z
 image: https://img-global.cpcdn.com/recipes/e5d05adb8d51c19e/680x482cq70/kens-savory-chicken-noodle-hotdish-recipe-main-photo.jpg

@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Speedy Lauren&amp;#39;s Chicken Stroganoff"
-title: "Step-by-Step Guide to Make Speedy Lauren&amp;#39;s Chicken Stroganoff"
+description: "Step-by-Step Guide to Make Speedy Lauren's Chicken Stroganoff"
+title: "Step-by-Step Guide to Make Speedy Lauren's Chicken Stroganoff"
 slug: 2834-step-by-step-guide-to-make-speedy-lauren-and-39-s-chicken-stroganoff
 date: 2022-03-20T11:40:50.652Z
 image: https://img-global.cpcdn.com/recipes/540fdbbf08c71c8d/680x482cq70/laurens-chicken-stroganoff-recipe-main-photo.jpg

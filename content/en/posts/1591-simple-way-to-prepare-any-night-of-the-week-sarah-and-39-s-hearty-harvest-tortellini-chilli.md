@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Prepare Any-night-of-the-week Sarah&amp;#39;s Hearty Harvest Tortellini Chilli"
-title: "Simple Way to Prepare Any-night-of-the-week Sarah&amp;#39;s Hearty Harvest Tortellini Chilli"
+description: "Simple Way to Prepare Any-night-of-the-week Sarah's Hearty Harvest Tortellini Chilli"
+title: "Simple Way to Prepare Any-night-of-the-week Sarah's Hearty Harvest Tortellini Chilli"
 slug: 1591-simple-way-to-prepare-any-night-of-the-week-sarah-and-39-s-hearty-harvest-tortellini-chilli
 date: 2022-01-30T07:46:48.888Z
 image: https://img-global.cpcdn.com/recipes/5297748323598336/680x482cq70/sarahs-hearty-harvest-tortellini-chilli-recipe-main-photo.jpg

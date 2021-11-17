@@ -24,7 +24,7 @@ recipeingredient:
 recipeinstructions:
 - "After cutting potatoes into cubes lay them on bottom of crockpot along with carrots"
 - "Add chicken on top of veggies"
-- "In a mixing bowl combine 2 cans of cream of mushroom , dry onion soup mix, water and half &amp;  half or milk either is fine, salt, pepper as liked I also used a touch of garlic salt but the onion soup was pretty seasoned ..  after mixed you can lay mixture on top or mix throughout crockpot , I mixed"
+- "In a mixing bowl combine 2 cans of cream of mushroom , dry onion soup mix, water and half &  half or milk either is fine, salt, pepper as liked I also used a touch of garlic salt but the onion soup was pretty seasoned ..  after mixed you can lay mixture on top or mix throughout crockpot , I mixed"
 - "Set on low for 5 to 6 hours once finished put biscuits in oven and put them on bottom of plate and layer chicken on top. It&#39;s like a chicken stew and biscuits it&#39;s pretty good"
 - ""
 - "Ready to serve and ENJOY!"
@@ -71,7 +71,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Prepare 1 Can of biscuits any type will do I used jumbo Pillsbury
 
 
-If you&#39;re looking for a simple recipe to simplify your weeknight, you&#39;ve come to the right place--easy dinners. Here&#39;s a real time-saver for weeknights, an easy sheet-pan dinner of chicken thighs, apples, pancetta, and Brussels sprouts tossed in olive oil and herbs. &#34;This complete Greek-inspired chicken dinner is made simply and easily on one pan with the chicken, veggies, and potatoes cooking together,&#34; says. Running out of ideas about what to cook for dinner? These chicken dinner ideas are the answer! 
+If you&#39;re looking for a simple recipe to simplify your weeknight, you&#39;ve come to the right place--easy dinners. Here&#39;s a real time-saver for weeknights, an easy sheet-pan dinner of chicken thighs, apples, pancetta, and Brussels sprouts tossed in olive oil and herbs. *This complete Greek-inspired chicken dinner is made simply and easily on one pan with the chicken, veggies, and potatoes cooking together,* says. Running out of ideas about what to cook for dinner? These chicken dinner ideas are the answer! 
 
 <!--inarticleads2-->
 
@@ -79,7 +79,7 @@ If you&#39;re looking for a simple recipe to simplify your weeknight, you&#39;ve
 
 1. After cutting potatoes into cubes lay them on bottom of crockpot along with carrots
 1. Add chicken on top of veggies
-1. In a mixing bowl combine 2 cans of cream of mushroom , dry onion soup mix, water and half &amp;  half or milk either is fine, salt, pepper as liked I also used a touch of garlic salt but the onion soup was pretty seasoned ..  after mixed you can lay mixture on top or mix throughout crockpot , I mixed
+1. In a mixing bowl combine 2 cans of cream of mushroom , dry onion soup mix, water and half &  half or milk either is fine, salt, pepper as liked I also used a touch of garlic salt but the onion soup was pretty seasoned ..  after mixed you can lay mixture on top or mix throughout crockpot , I mixed
 1. Set on low for 5 to 6 hours once finished put biscuits in oven and put them on bottom of plate and layer chicken on top. It&#39;s like a chicken stew and biscuits it&#39;s pretty good
 1. 
 1. Ready to serve and ENJOY!

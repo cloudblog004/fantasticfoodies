@@ -72,7 +72,7 @@ To get started with this recipe, we have to prepare a few components. You can ha
 1. Take 1 cooking spoon of Oil
 
 
-Find recipes for carrot ginger soup, stews, sweet potato carrot soup, and more. Healthy Carrot Soup Recipe - Creamy Carrot Soup - Gajar Ka Soup Recipe - Healthy Soup Recipes. See recipes for My Leek,Potato,Carrot &amp; Turnip Soup too. Whole Leek sliced•new Potatoes•Carrots chopped•a large Turnip peeled and diced•Large Onion. 
+Find recipes for carrot ginger soup, stews, sweet potato carrot soup, and more. Healthy Carrot Soup Recipe - Creamy Carrot Soup - Gajar Ka Soup Recipe - Healthy Soup Recipes. See recipes for My Leek,Potato,Carrot & Turnip Soup too. Whole Leek sliced•new Potatoes•Carrots chopped•a large Turnip peeled and diced•Large Onion. 
 
 <!--inarticleads2-->
 
@@ -83,6 +83,6 @@ Find recipes for carrot ginger soup, stews, sweet potato carrot soup, and more. 
 1. Kids love this😋
 1. Ready to serve and ENJOY!
 
-See recipes for My Leek,Potato,Carrot &amp; Turnip Soup too. Whole Leek sliced•new Potatoes•Carrots chopped•a large Turnip peeled and diced•Large Onion. The key to carrot soup is, unsurprisingly, the carrots. If you can, try to get a few bundles of the smaller carrots with the stems still on. I find the bulk I like to keep my carrot soup limited on ingredients to let the carrots shine, but if you want to jazz up this version a bit, curry is my favorite add-in. 
+See recipes for My Leek,Potato,Carrot & Turnip Soup too. Whole Leek sliced•new Potatoes•Carrots chopped•a large Turnip peeled and diced•Large Onion. The key to carrot soup is, unsurprisingly, the carrots. If you can, try to get a few bundles of the smaller carrots with the stems still on. I find the bulk I like to keep my carrot soup limited on ingredients to let the carrots shine, but if you want to jazz up this version a bit, curry is my favorite add-in. 
 
 So that's going to wrap this up with this special food carrot soup recipe. Thanks so much for your time. I'm confident that you can make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

@@ -31,7 +31,7 @@ recipeinstructions:
 - "Heat a large sauce pan with 3 tablespoons of oil. (Medium heat)"
 - "When the oil is warm add the bacon."
 - "When the bacon started to brown add the chopped onions."
-- "After 3mins add the carrots &amp; potato and let it cook for a further 5mins, stirring regularly."
+- "After 3mins add the carrots & potato and let it cook for a further 5mins, stirring regularly."
 - "Using a slotted spoon empty the pan in to a clean bowl."
 - "Add the chicken to the pan and cook for 5mins stirring regularly. If pan is dry add more oil."
 - "Now add back to the pan the cooked bacon, onion, potato and carrots. And stirring together."
@@ -101,7 +101,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Heat a large sauce pan with 3 tablespoons of oil. (Medium heat)
 1. When the oil is warm add the bacon.
 1. When the bacon started to brown add the chopped onions.
-1. After 3mins add the carrots &amp; potato and let it cook for a further 5mins, stirring regularly.
+1. After 3mins add the carrots & potato and let it cook for a further 5mins, stirring regularly.
 1. Using a slotted spoon empty the pan in to a clean bowl.
 1. Add the chicken to the pan and cook for 5mins stirring regularly. If pan is dry add more oil.
 1. Now add back to the pan the cooked bacon, onion, potato and carrots. And stirring together.

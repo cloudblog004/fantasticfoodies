@@ -105,7 +105,7 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 1. Take 1 tsp shrimp paste
 
 
-How To Make Panaeng Curry with Pork Um das Rezept &#34;Grünes Thai Hühnercurry (Gaeng Kiew Wan Gai)&#34; kommentieren zu können. Green Chicken Curry (Gaeng Kiew Wan Gai). Be the first to review this recipe. Fiery and full of flavour, yet wholly satisfying with a smooth texture, the gaeng kiew wan gai is packed with a variety of spices in a light green curry… Done! 
+How To Make Panaeng Curry with Pork Um das Rezept *Grünes Thai Hühnercurry (Gaeng Kiew Wan Gai)* kommentieren zu können. Green Chicken Curry (Gaeng Kiew Wan Gai). Be the first to review this recipe. Fiery and full of flavour, yet wholly satisfying with a smooth texture, the gaeng kiew wan gai is packed with a variety of spices in a light green curry… Done! 
 
 <!--inarticleads2-->
 

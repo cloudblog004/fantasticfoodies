@@ -23,7 +23,7 @@ recipeingredient:
 - "4 tablespoons sesame oil"
 - "10 garlic cloves chopped"
 recipeinstructions:
-- "Add water, ginger, garlic, scallions and salt to the slow cooker. Stir well. Add chicken. Put the slow cooker lid on, press the &#34;low&#34; button and set the timer for 4 hours."
+- "Add water, ginger, garlic, scallions and salt to the slow cooker. Stir well. Add chicken. Put the slow cooker lid on, press the *low* button and set the timer for 4 hours."
 - "After 4 hours, check if the chicken has been cooked or not. Otherwise, cook for another hour (this depends on the size of the chicken)."
 - "Take the chicken out (save the broth for another use), brush the chicken with soy sauce."
 - "Heat sesame oil, saute the chopped garlic until golden brown. Keep stirring, don&#39;t let it get burnt. Pour the garlic and the oil over the chicken that has been brushed with soy sauce."
@@ -79,7 +79,7 @@ To begin with this particular recipe, we must prepare a few components. You can 
 
 ##### Instructions to make Chinese Poached Chicken with Slow Cooker:
 
-1. Add water, ginger, garlic, scallions and salt to the slow cooker. Stir well. Add chicken. Put the slow cooker lid on, press the &#34;low&#34; button and set the timer for 4 hours.
+1. Add water, ginger, garlic, scallions and salt to the slow cooker. Stir well. Add chicken. Put the slow cooker lid on, press the *low* button and set the timer for 4 hours.
 1. After 4 hours, check if the chicken has been cooked or not. Otherwise, cook for another hour (this depends on the size of the chicken).
 1. Take the chicken out (save the broth for another use), brush the chicken with soy sauce.
 1. Heat sesame oil, saute the chopped garlic until golden brown. Keep stirring, don&#39;t let it get burnt. Pour the garlic and the oil over the chicken that has been brushed with soy sauce.

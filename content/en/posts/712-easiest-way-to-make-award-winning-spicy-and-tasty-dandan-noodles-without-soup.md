@@ -65,7 +65,7 @@ Hello everybody, it is Jim, welcome to my recipe site. Today, we're going to pre
 
 Spicy and Tasty Dandan Noodles without Soup is one of the most popular of recent trending meals in the world. It is simple, it's quick, it tastes delicious. It is enjoyed by millions every day. They're fine and they look wonderful. Spicy and Tasty Dandan Noodles without Soup is something that I've loved my entire life.
 
-Spicy and Tasty Dandan Noodles without Soup instructions. I have never had something taste so amazing. We&#39;re using the thin variety of Chinese &#39;raw noodles&#39; (i.e. fresh noodles that we buy from the market). You got some wiggle room here - any sort of thin A chili oil recipe I&#39;ve seen going around the internet is Mike Chen&#39;s (of Strictly Dumpling fame) video for &#34;Spicy Hot Oil&#34;.
+Spicy and Tasty Dandan Noodles without Soup instructions. I have never had something taste so amazing. We&#39;re using the thin variety of Chinese &#39;raw noodles&#39; (i.e. fresh noodles that we buy from the market). You got some wiggle room here - any sort of thin A chili oil recipe I&#39;ve seen going around the internet is Mike Chen&#39;s (of Strictly Dumpling fame) video for *Spicy Hot Oil*.
 
 
 To begin with this recipe, we have to first prepare a few ingredients. You can cook spicy and tasty dandan noodles without soup using 16 ingredients and 10 steps. Here is how you cook it.

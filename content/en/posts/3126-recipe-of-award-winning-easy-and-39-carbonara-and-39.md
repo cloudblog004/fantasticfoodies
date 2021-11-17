@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Award-winning Easy &amp;#39;carbonara&amp;#39;"
-title: "Recipe of Award-winning Easy &amp;#39;carbonara&amp;#39;"
+description: "Recipe of Award-winning Easy 'carbonara'"
+title: "Recipe of Award-winning Easy 'carbonara'"
 slug: 3126-recipe-of-award-winning-easy-and-39-carbonara-and-39
 date: 2022-02-28T12:08:32.837Z
 image: https://img-global.cpcdn.com/recipes/fc6ae9f9b8ac8df2/680x482cq70/easy-carbonara-recipe-main-photo.jpg

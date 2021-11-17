@@ -28,10 +28,10 @@ recipeingredient:
 - " Parsley"
 - "1 cup cornflakes crushed"
 recipeinstructions:
-- "Preheat oven to 425°. Place all ingredients (saving aside cornflakes &amp; 1 cup of shredded cheddar) in a large casserole dish and mix well. Seasoning in desired amounts."
+- "Preheat oven to 425°. Place all ingredients (saving aside cornflakes & 1 cup of shredded cheddar) in a large casserole dish and mix well. Seasoning in desired amounts."
 - "Level out and top with an even layer of shredded cheddar. Cover and place into oven for 45mins."
 - "Remove covering and add an even layer of crushed corn flakes across the top. Return to oven for 15mins or until cornflakes begin to get browned and crispy."
-- "Serve &amp; Enjoy! I put this over top of #greenbeancasserole one night and it was lovely.👍👍"
+- "Serve & Enjoy! I put this over top of #greenbeancasserole one night and it was lovely.👍👍"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -88,10 +88,10 @@ To begin with this recipe, we have to first prepare a few components. You can ha
 
 ##### Instructions to make Tuna Noodle Casserole:
 
-1. Preheat oven to 425°. Place all ingredients (saving aside cornflakes &amp; 1 cup of shredded cheddar) in a large casserole dish and mix well. Seasoning in desired amounts.
+1. Preheat oven to 425°. Place all ingredients (saving aside cornflakes & 1 cup of shredded cheddar) in a large casserole dish and mix well. Seasoning in desired amounts.
 1. Level out and top with an even layer of shredded cheddar. Cover and place into oven for 45mins.
 1. Remove covering and add an even layer of crushed corn flakes across the top. Return to oven for 15mins or until cornflakes begin to get browned and crispy.
-1. Serve &amp; Enjoy! I put this over top of #greenbeancasserole one night and it was lovely.👍👍
+1. Serve & Enjoy! I put this over top of #greenbeancasserole one night and it was lovely.👍👍
 1. Ready to serve and ENJOY!
 
 

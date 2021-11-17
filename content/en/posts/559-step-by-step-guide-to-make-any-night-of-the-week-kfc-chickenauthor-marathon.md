@@ -82,6 +82,6 @@ Join KFC&#39;s first-ever streetwise culture crew to kickstart your creative hus
 1. Serve with preferred accompaniment.
 1. Ready to serve and ENJOY!
 
-Quick and portable chicken sandwiches are another popular option at KFC, though they aren&#39;t among the healthiest choices. Adding bread to already breaded and battered chicken makes KFC&#39;s. KFC Nutrition Facts &amp; Calorie Information. Satisfy your KFC chicken craving at the comfort of your own home. KFC doesn&#39;t have some freaky science experiment mutant alien chickens they use for their fried chicken. 
+Quick and portable chicken sandwiches are another popular option at KFC, though they aren&#39;t among the healthiest choices. Adding bread to already breaded and battered chicken makes KFC&#39;s. KFC Nutrition Facts & Calorie Information. Satisfy your KFC chicken craving at the comfort of your own home. KFC doesn&#39;t have some freaky science experiment mutant alien chickens they use for their fried chicken. 
 
 So that is going to wrap this up with this exceptional food kfc chicken😉#author marathon recipe. Thank you very much for reading. I'm sure you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!

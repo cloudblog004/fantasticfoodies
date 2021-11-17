@@ -33,8 +33,8 @@ recipeingredient:
 - "1 tsp pepper"
 - "1 tsp salt"
 recipeinstructions:
-- "add all sauce ingredients to a small pot excluding ( cornstarch &amp; tbs water) bring to a simmer. taste for seasonings set aside"
-- "in a large wok or skillet heat oil &amp; add in diced onion on cook on med high heat about 2minutes. add in chicken salt, &amp; pepper cook about 6minutes remove from pan &amp; set aside.  now add in veggies cook down about 7-8 minutes just till tender, add chicken back in and add sauce. cook another 5 minutes or so. make your corn starch slurry with water stir well add to mix stir cook till thickened about 2 minutes. enjoy!"
+- "add all sauce ingredients to a small pot excluding ( cornstarch & tbs water) bring to a simmer. taste for seasonings set aside"
+- "in a large wok or skillet heat oil & add in diced onion on cook on med high heat about 2minutes. add in chicken salt, & pepper cook about 6minutes remove from pan & set aside.  now add in veggies cook down about 7-8 minutes just till tender, add chicken back in and add sauce. cook another 5 minutes or so. make your corn starch slurry with water stir well add to mix stir cook till thickened about 2 minutes. enjoy!"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -96,8 +96,8 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 
 ##### Steps to make Honey Teriyaki Chicken Stir Fry:
 
-1. add all sauce ingredients to a small pot excluding ( cornstarch &amp; tbs water) bring to a simmer. taste for seasonings set aside
-1. in a large wok or skillet heat oil &amp; add in diced onion on cook on med high heat about 2minutes. add in chicken salt, &amp; pepper cook about 6minutes remove from pan &amp; set aside.  now add in veggies cook down about 7-8 minutes just till tender, add chicken back in and add sauce. cook another 5 minutes or so. make your corn starch slurry with water stir well add to mix stir cook till thickened about 2 minutes. enjoy!
+1. add all sauce ingredients to a small pot excluding ( cornstarch & tbs water) bring to a simmer. taste for seasonings set aside
+1. in a large wok or skillet heat oil & add in diced onion on cook on med high heat about 2minutes. add in chicken salt, & pepper cook about 6minutes remove from pan & set aside.  now add in veggies cook down about 7-8 minutes just till tender, add chicken back in and add sauce. cook another 5 minutes or so. make your corn starch slurry with water stir well add to mix stir cook till thickened about 2 minutes. enjoy!
 1. Ready to serve and ENJOY!
 
 

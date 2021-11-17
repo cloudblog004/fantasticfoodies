@@ -26,7 +26,7 @@ recipeingredient:
 - "6 green cilli"
 - "Half cup yogurt"
 recipeinstructions:
-- "Put the oil is pot &amp; flame is on and add a chicken in oil, when chicken change a color, add a garlic &amp; ginger past and cooked, after few minute add onion past cooked 5 minuts. Then add turmeric &amp; red cilli powder.after 2 minuts add salt &amp; all poowder masalas and add green cilli and kooked after add tammat &amp; tammto past, after few minute add yogurt kooked 5 minutes.and chicken karahi is ready, you parpper is chopped coriander &amp; ginger sales&amp; 2 punch garm masala."
+- "Put the oil is pot & flame is on and add a chicken in oil, when chicken change a color, add a garlic & ginger past and cooked, after few minute add onion past cooked 5 minuts. Then add turmeric & red cilli powder.after 2 minuts add salt & all poowder masalas and add green cilli and kooked after add tammat & tammto past, after few minute add yogurt kooked 5 minutes.and chicken karahi is ready, you parpper is chopped coriander & ginger sales& 2 punch garm masala."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -70,20 +70,20 @@ To get started with this recipe, we have to first prepare a few components. You 
 1. Prepare 1 Tsp turmeric powder
 1. Make ready  Salt as tast
 1. Get 1 Tsp jeera powder and black pepper powder
-1. Get 1 Tsp ginger &amp; garlic past
+1. Get 1 Tsp ginger & garlic past
 1. Get 6 green cilli
 1. Make ready Half cup yogurt
 
 
-But somehow, I could never achieve that flavor and rich brown color the number of. Chicken karahi (known as gosht karahi when prepared with goat or lamb meat instead of chicken), or kadai chicken, is a dish from the Indian subcontinent noted for its spicy taste; it is notable in North Indian and Pakistani cuisine. Check out the tastiest Tasty Chicken Karahi recipe only at kfoods. Find Chicken Recipes &amp; all the recipes of all the chefs. 
+But somehow, I could never achieve that flavor and rich brown color the number of. Chicken karahi (known as gosht karahi when prepared with goat or lamb meat instead of chicken), or kadai chicken, is a dish from the Indian subcontinent noted for its spicy taste; it is notable in North Indian and Pakistani cuisine. Check out the tastiest Tasty Chicken Karahi recipe only at kfoods. Find Chicken Recipes & all the recipes of all the chefs. 
 
 <!--inarticleads2-->
 
 ##### Instructions to make Tasty chicken karahi#eid kay pakwan:
 
-1. Put the oil is pot &amp; flame is on and add a chicken in oil, when chicken change a color, add a garlic &amp; ginger past and cooked, after few minute add onion past cooked 5 minuts. Then add turmeric &amp; red cilli powder.after 2 minuts add salt &amp; all poowder masalas and add green cilli and kooked after add tammat &amp; tammto past, after few minute add yogurt kooked 5 minutes.and chicken karahi is ready, you parpper is chopped coriander &amp; ginger sales&amp; 2 punch garm masala.
+1. Put the oil is pot & flame is on and add a chicken in oil, when chicken change a color, add a garlic & ginger past and cooked, after few minute add onion past cooked 5 minuts. Then add turmeric & red cilli powder.after 2 minuts add salt & all poowder masalas and add green cilli and kooked after add tammat & tammto past, after few minute add yogurt kooked 5 minutes.and chicken karahi is ready, you parpper is chopped coriander & ginger sales& 2 punch garm masala.
 1. Ready to serve and ENJOY!
 
-Check out the tastiest Tasty Chicken Karahi recipe only at kfoods. Find Chicken Recipes &amp; all the recipes of all the chefs. Tasty Chicken Karahi is famous for its best and unmatchable taste. Chicken Karahi Recipe is one of the most popular and consumed dish of Pakistan. Every house and restaurant has its own unique version of Chicken Karahi. 
+Check out the tastiest Tasty Chicken Karahi recipe only at kfoods. Find Chicken Recipes & all the recipes of all the chefs. Tasty Chicken Karahi is famous for its best and unmatchable taste. Chicken Karahi Recipe is one of the most popular and consumed dish of Pakistan. Every house and restaurant has its own unique version of Chicken Karahi. 
 
 So that is going to wrap it up for this special food tasty chicken karahi#eid kay pakwan recipe. Thanks so much for reading. I am confident you will make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

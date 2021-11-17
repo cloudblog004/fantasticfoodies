@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Homemade One-Pot Vegetarian Black Bean Chicken &amp;amp; Rice"
-title: "Step-by-Step Guide to Make Homemade One-Pot Vegetarian Black Bean Chicken &amp;amp; Rice"
+description: "Step-by-Step Guide to Make Homemade One-Pot Vegetarian Black Bean Chicken & Rice"
+title: "Step-by-Step Guide to Make Homemade One-Pot Vegetarian Black Bean Chicken & Rice"
 slug: 3236-step-by-step-guide-to-make-homemade-one-pot-vegetarian-black-bean-chicken-and-amp-rice
 date: 2022-03-24T22:29:29.978Z
 image: https://img-global.cpcdn.com/recipes/28d50b03b9ba7d5f/680x482cq70/one-pot-vegetarian-black-bean-chicken-rice-recipe-main-photo.jpg
@@ -45,20 +45,20 @@ recipecategory: Dinner
 ---
 
 
-![One-Pot Vegetarian Black Bean Chicken &amp; Rice](https://img-global.cpcdn.com/recipes/28d50b03b9ba7d5f/680x482cq70/one-pot-vegetarian-black-bean-chicken-rice-recipe-main-photo.jpg)
+![One-Pot Vegetarian Black Bean Chicken & Rice](https://img-global.cpcdn.com/recipes/28d50b03b9ba7d5f/680x482cq70/one-pot-vegetarian-black-bean-chicken-rice-recipe-main-photo.jpg)
 
-Hey everyone, it is Drew, welcome to our recipe page. Today, I will show you a way to make a special dish, one-pot vegetarian black bean chicken &amp; rice. It is one of my favorites. This time, I am going to make it a bit tasty. This is gonna smell and look delicious.
+Hey everyone, it is Drew, welcome to our recipe page. Today, I will show you a way to make a special dish, one-pot vegetarian black bean chicken & rice. It is one of my favorites. This time, I am going to make it a bit tasty. This is gonna smell and look delicious.
 
-One-Pot Vegetarian Black Bean Chicken &amp; Rice is one of the most popular of current trending foods in the world. It's enjoyed by millions daily. It is easy, it is fast, it tastes delicious. One-Pot Vegetarian Black Bean Chicken &amp; Rice is something which I have loved my entire life. They're fine and they look fantastic.
-
-
+One-Pot Vegetarian Black Bean Chicken & Rice is one of the most popular of current trending foods in the world. It's enjoyed by millions daily. It is easy, it is fast, it tastes delicious. One-Pot Vegetarian Black Bean Chicken & Rice is something which I have loved my entire life. They're fine and they look fantastic.
 
 
-To begin with this particular recipe, we have to first prepare a few ingredients. You can cook one-pot vegetarian black bean chicken &amp; rice using 11 ingredients and 1 steps. Here is how you cook that.
+
+
+To begin with this particular recipe, we have to first prepare a few ingredients. You can cook one-pot vegetarian black bean chicken & rice using 11 ingredients and 1 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make One-Pot Vegetarian Black Bean Chicken &amp; Rice:
+##### The ingredients needed to make One-Pot Vegetarian Black Bean Chicken & Rice:
 
 1. Make ready  Jasmine rice, rinsed + drained
 1. Take As needed water
@@ -77,11 +77,11 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 
 <!--inarticleads2-->
 
-##### Instructions to make One-Pot Vegetarian Black Bean Chicken &amp; Rice:
+##### Instructions to make One-Pot Vegetarian Black Bean Chicken & Rice:
 
 1. Place uncooked rice into pot and add enough water for the rice to cook. In a mixing bowl combine black bean paste, salt, garlic, cooking wine, sugar, chilies, oil, and chicken. Mix well. Pour mixture on top of rice. Layer bok choy on top. Cover and bring to a boil. Turn off heat. Keep covered and let rest for approximately 15-20 mins. Stir thoroughly and serve.
 1. Ready to serve and ENJOY!
 
 
 
-So that's going to wrap it up with this special food one-pot vegetarian black bean chicken &amp; rice recipe. Thank you very much for your time. I'm sure you can make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+So that's going to wrap it up with this special food one-pot vegetarian black bean chicken & rice recipe. Thank you very much for your time. I'm sure you can make this at home. There's gonna be more interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

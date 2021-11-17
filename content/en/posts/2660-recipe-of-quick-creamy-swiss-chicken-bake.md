@@ -84,6 +84,6 @@ See recipes for Italian Baked Chicken with Creamy. This chicken bake is creamy a
 1. Bake 1 hour and serve over cauliflower rice or shirataki rice.
 1. Ready to serve and ENJOY!
 
-It has mushrooms, bacon, and swiss cheese, along with a secret ingredient that gives it a bit of smokehouse flair. This dish pairs nicely with a tossed salad and some roasted broccoli. Trim Healthy Mama friends, this is an &#34;S&#34; meal due to the fats. Chicken breasts topped with Swiss cheese and baked in a creamy white wine sauce. Creamy Swiss Chicken Bake is the easiest weeknight dinner. 
+It has mushrooms, bacon, and swiss cheese, along with a secret ingredient that gives it a bit of smokehouse flair. This dish pairs nicely with a tossed salad and some roasted broccoli. Trim Healthy Mama friends, this is an *S* meal due to the fats. Chicken breasts topped with Swiss cheese and baked in a creamy white wine sauce. Creamy Swiss Chicken Bake is the easiest weeknight dinner. 
 
 So that is going to wrap this up for this special food creamy swiss chicken bake recipe. Thank you very much for your time. I am sure you will make this at home. There's gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

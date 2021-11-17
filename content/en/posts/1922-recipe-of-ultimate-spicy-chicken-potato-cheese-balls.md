@@ -60,7 +60,7 @@ recipecategory: Dinner
 
 Hey everyone, hope you are having an incredible day today. Today, I will show you a way to make a special dish, spicy chicken potato cheese balls. One of my favorites food recipes. For mine, I am going to make it a little bit unique. This is gonna smell and look delicious.
 
-Spicy chicken potato cheese balls. medium potatoes•boneless chicken boil and shreded•salt•blk pappar•crushed red chilli•tabsp soya sauce•tabsp capsicum cut in very small cubes•mozzerella cheese. Cheese Balls (for full recipe visit the channel)Подробнее. Spicy Chicken, Spicy wrap, Mash Potatoes, Cheese Balls and Biscuit from Texas Chicken #ASMR #ShortsПодробнее. Very easy Chicken &amp; Potato Cheese Balls recipe which is perfect to serve as a snack.
+Spicy chicken potato cheese balls. medium potatoes•boneless chicken boil and shreded•salt•blk pappar•crushed red chilli•tabsp soya sauce•tabsp capsicum cut in very small cubes•mozzerella cheese. Cheese Balls (for full recipe visit the channel)Подробнее. Spicy Chicken, Spicy wrap, Mash Potatoes, Cheese Balls and Biscuit from Texas Chicken #ASMR #ShortsПодробнее. Very easy Chicken & Potato Cheese Balls recipe which is perfect to serve as a snack.
 
 Spicy chicken potato cheese balls is one of the most popular of recent trending foods in the world. It is simple, it is fast, it tastes delicious. It is enjoyed by millions daily. They are nice and they look fantastic. Spicy chicken potato cheese balls is something which I have loved my whole life.
 

@@ -52,7 +52,7 @@ recipecategory: Lunch
 
 Hey everyone, hope you are having an incredible day today. Today, I'm gonna show you how to make a distinctive dish, chicken and cheese enchiladas. One of my favorites. For mine, I'm gonna make it a bit unique. This will be really delicious.
 
-Spoon a portion of the chicken mixture down the middle of each tortilla. Add a few cilantro leaves and roll up. Hello &amp; welcome to the Views Kitchen! Today we&#39;ll be showing you how to make The best and most flavorful Green Chili Chicken and cheese enchiladas.
+Spoon a portion of the chicken mixture down the middle of each tortilla. Add a few cilantro leaves and roll up. Hello & welcome to the Views Kitchen! Today we&#39;ll be showing you how to make The best and most flavorful Green Chili Chicken and cheese enchiladas.
 
 chicken and cheese enchiladas is one of the most well liked of recent trending meals in the world. It's appreciated by millions every day. It is easy, it's fast, it tastes delicious. They're nice and they look fantastic. chicken and cheese enchiladas is something which I've loved my entire life.
 

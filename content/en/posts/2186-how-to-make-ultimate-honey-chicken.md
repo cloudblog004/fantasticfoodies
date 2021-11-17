@@ -28,8 +28,8 @@ recipeingredient:
 - "2 tsp Lemon juice"
 recipeinstructions:
 - "Chicken ko wash kar ke merinat karain"
-- "Pan mn oil garam karain add merinat chicken well cooked Chicken brown hojaey add honey in last &amp;lemon juice"
-- "Well decorate platter sprinkle sasamic seeds &amp; serve to zeera rice yummmmy &amp; dilicious platter"
+- "Pan mn oil garam karain add merinat chicken well cooked Chicken brown hojaey add honey in last &lemon juice"
+- "Well decorate platter sprinkle sasamic seeds & serve to zeera rice yummmmy & dilicious platter"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -85,8 +85,8 @@ Read the full recipe after the video. • Honey butter fried chicken. I&#39;m ve
 ##### Instructions to make Honey chicken:
 
 1. Chicken ko wash kar ke merinat karain
-1. Pan mn oil garam karain add merinat chicken well cooked Chicken brown hojaey add honey in last &amp;lemon juice
-1. Well decorate platter sprinkle sasamic seeds &amp; serve to zeera rice yummmmy &amp; dilicious platter
+1. Pan mn oil garam karain add merinat chicken well cooked Chicken brown hojaey add honey in last &lemon juice
+1. Well decorate platter sprinkle sasamic seeds & serve to zeera rice yummmmy & dilicious platter
 1. Ready to serve and ENJOY!
 
 Baked Honey Mustard Chicken - The classic combination of honey and mustard smothered all over tender chicken breasts and baked to a succulent perfection. Serve chicken immediately with potatoes, carrots and green beans, garnished with parsley, if This was delicious! I also threw in an onion and. Addictive Honey Chicken Recipe - Yummy Tummy. Honey chicken quite a popular chicken recipe, i made it few days back. 

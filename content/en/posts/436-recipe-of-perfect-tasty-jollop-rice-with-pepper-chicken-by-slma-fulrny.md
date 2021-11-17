@@ -30,7 +30,7 @@ recipeinstructions:
 - "Zaki yanka carrot d green beans ki wanke kisa sue a pot ki xuba peas kisa ruwa ki tafasa kmar 5 minutes..."
 - "Zaki jajjaga attaruhu d albasa d garlic..."
 - "Zaki xuba mai a pan kisa albasa d garlic ki soya kisa attaruhu da albasa kisa maggi d curry, kisa kaxan kita juyawa ki yayyanka albasa circle mai yawa ki xuba kici gaba d juyawa kmar 10 minutes sai ki sauke aci d jollop a kwai dadi sosai...."
-- "@ful@rny&#34;ss kitchen"
+- "@ful@rny*ss kitchen"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -89,7 +89,7 @@ Chop the fuck out of the following: one onion, one red pepper, two/three cloves 
 1. Zaki yanka carrot d green beans ki wanke kisa sue a pot ki xuba peas kisa ruwa ki tafasa kmar 5 minutes...
 1. Zaki jajjaga attaruhu d albasa d garlic...
 1. Zaki xuba mai a pan kisa albasa d garlic ki soya kisa attaruhu da albasa kisa maggi d curry, kisa kaxan kita juyawa ki yayyanka albasa circle mai yawa ki xuba kici gaba d juyawa kmar 10 minutes sai ki sauke aci d jollop a kwai dadi sosai....
-1. @ful@rny&#34;ss kitchen
+1. @ful@rny*ss kitchen
 1. Ready to serve and ENJOY!
 
 Stir in stewed tomatoes and tomato paste, and season with salt, black pepper, cayenne pepper, red pepper flakes , thyme, salt, knorr chicken cubes and rosemary. The chef Tunde Wey is based in New Orleans, but he was born in Nigeria, where jollof rice is a well-loved dish. The rice is cooked in a flavorful tomato and pepper purée; his version is vegan, and laced with chile heat. Ghana Jollof RecipeLearn How To Prepare Ghana Jollof Rice And Chicken With ASMR!. Jollof rice probably originated from rice dishes eaten by the Wolof people of Senegal and Gambia, but its popularity has spread to most of West Africa Optional spices that can be used to flavor the dish are cinnamon, curry powder or cayenne. 

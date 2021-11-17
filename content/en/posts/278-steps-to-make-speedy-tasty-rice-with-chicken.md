@@ -88,6 +88,6 @@ Take the two basic ingredients of rice and chicken and create something deliciou
 1. Then add ginger,coconut milk,beans and tomato puré. Cook with low heat for about 15 minutes.
 1. Ready to serve and ENJOY!
 
-A fuss-free family meal that will you&#39;ll want to make again and again, with a lovely coconut taste. Rice-cooker Chicken And Shiitake Mushroom Sticky Rice Kitchen Stories. Chicken fried rice recipe with step by step photos. Easy, flavorful &amp; restaurant style chicken fried rice with soft, tender &amp; succulent pieces of chicken. I love trying our ur receipes. 
+A fuss-free family meal that will you&#39;ll want to make again and again, with a lovely coconut taste. Rice-cooker Chicken And Shiitake Mushroom Sticky Rice Kitchen Stories. Chicken fried rice recipe with step by step photos. Easy, flavorful & restaurant style chicken fried rice with soft, tender & succulent pieces of chicken. I love trying our ur receipes. 
 
 So that is going to wrap it up with this special food tasty rice with chicken recipe. Thanks so much for your time. I'm confident you can make this at home. There's gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

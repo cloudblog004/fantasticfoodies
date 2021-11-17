@@ -70,14 +70,14 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Get  Gochugaru, 1/4 Cup Adjust To Preference
 1. Make ready  @chillibellasg&#39;s Korean Chili Paste / Gochujang, 2 TBSP Adjust To Preference
 1. Take 1 TBSP Soy Sauce,
-1. Make ready  Sesame Oil, 2 TBSP + More For Cooking &amp; Grilling
+1. Make ready  Sesame Oil, 2 TBSP + More For Cooking & Grilling
 1. Make ready 1 TBSP Pure Honey,
 1. Make ready 5 Cloves Garlic Finely Minced,
-1. Take  Ginger Finely Minced, 1&#34;
+1. Take  Ginger Finely Minced, 1*
 1. Take Pinch White Pepper,
 1. Make ready Pinch Dried Mushroom Powder,
 1. Take Pinch Smoked Sea Salt,
-1. Make ready  Chicken Breast Skinless Boneless Diced Into 1&#34; Cubes, 2 Chicken Breasts
+1. Make ready  Chicken Breast Skinless Boneless Diced Into 1* Cubes, 2 Chicken Breasts
 1. Make ready  Grilled Pizza Dough, 4 Dough Balls
 1. Prepare  Low Moisture Mozarella Diced, A Good Handful
 1. Make ready 1 Handful Scallions Finely Chopped,

@@ -1,6 +1,6 @@
 ---
-description: "Steps to Make Quick Minute Rice&amp;#39;s Chicken Stir Fry"
-title: "Steps to Make Quick Minute Rice&amp;#39;s Chicken Stir Fry"
+description: "Steps to Make Quick Minute Rice's Chicken Stir Fry"
+title: "Steps to Make Quick Minute Rice's Chicken Stir Fry"
 slug: 2320-steps-to-make-quick-minute-rice-and-39-s-chicken-stir-fry
 date: 2022-03-17T04:48:59.662Z
 image: https://img-global.cpcdn.com/recipes/48a4bdcf6620a580/680x482cq70/minute-rices-chicken-stir-fry-recipe-main-photo.jpg

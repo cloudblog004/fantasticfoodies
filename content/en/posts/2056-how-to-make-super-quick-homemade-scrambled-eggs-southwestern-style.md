@@ -28,10 +28,10 @@ recipeingredient:
 - " Favorite Salsa"
 recipeinstructions:
 - ""
-- "Cook bacon. While bacon is cooking peel baked potato, dice tomato &amp; grilled chicken breast."
-- "In a large skillet on medium high put in some bacon grease or cooking oil and cook the diced baked potato. Once done add the chicken, tomato,bacon &amp; jalapeños and simmer 3 to 5 minutes"
+- "Cook bacon. While bacon is cooking peel baked potato, dice tomato & grilled chicken breast."
+- "In a large skillet on medium high put in some bacon grease or cooking oil and cook the diced baked potato. Once done add the chicken, tomato,bacon & jalapeños and simmer 3 to 5 minutes"
 - "In a separate bowl scramble the 7 eggs with the heavy cream or milk."
-- "Pour into simmering pan of meat, potatoes, tomato &amp; jalapeños and add cheese."
+- "Pour into simmering pan of meat, potatoes, tomato & jalapeños and add cheese."
 - "Cook till eggs are done then place some on a plate with a spoon of sour cream on top and your favorite salsa. Enjoy!"
 - "Ready to serve and ENJOY!"
 categories:
@@ -89,10 +89,10 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 ##### Instructions to make Scrambled Eggs Southwestern Style:
 
 1. 
-1. Cook bacon. While bacon is cooking peel baked potato, dice tomato &amp; grilled chicken breast.
-1. In a large skillet on medium high put in some bacon grease or cooking oil and cook the diced baked potato. Once done add the chicken, tomato,bacon &amp; jalapeños and simmer 3 to 5 minutes
+1. Cook bacon. While bacon is cooking peel baked potato, dice tomato & grilled chicken breast.
+1. In a large skillet on medium high put in some bacon grease or cooking oil and cook the diced baked potato. Once done add the chicken, tomato,bacon & jalapeños and simmer 3 to 5 minutes
 1. In a separate bowl scramble the 7 eggs with the heavy cream or milk.
-1. Pour into simmering pan of meat, potatoes, tomato &amp; jalapeños and add cheese.
+1. Pour into simmering pan of meat, potatoes, tomato & jalapeños and add cheese.
 1. Cook till eggs are done then place some on a plate with a spoon of sour cream on top and your favorite salsa. Enjoy!
 1. Ready to serve and ENJOY!
 

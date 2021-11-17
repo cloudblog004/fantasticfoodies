@@ -23,7 +23,7 @@ recipeingredient:
 - "Tbsp parsley"
 - "Pinch Pepper"
 recipeinstructions:
-- "Wash chicken breast. Pat dry &amp; place between 2 pieces of plastic wrap or parchment paper and pound flat with meat mallot."
+- "Wash chicken breast. Pat dry & place between 2 pieces of plastic wrap or parchment paper and pound flat with meat mallot."
 - "Sprinkle sea salt, black pepper, herbs de Provence over each side."
 - "Heat oil in a large skillet. Once hot, add chicken. Try not to over crowd. (The secret to a good sear is to remove as much surface moisture from the protein, and make sure the oil is near smoking. Also, leave the meat alone! It will let you know when it’s ready to flip over. If you start poking at it, and it’s sticking? It’s not ready. If it moves around or releases with minimum effort, it’s ready. Now that you know those basics, you shouldn’t have trouble getting a wonderful color and crust)"
 - "Lower heat to medium-low. Remove pan from heat, you should have lots of brown bits stuck to the bottom of the pan. Deglaze those bits with the white wine, stirring with a wooden spoon. Bring skillet back to the heat and allow the white wine to reduce just slightly, about 2-3 minutes. Turn off the heat, stir in the butter and parsley. Pour over the chicken and serve."
@@ -78,7 +78,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 
 ##### Steps to make Quick Pan seared chicken:
 
-1. Wash chicken breast. Pat dry &amp; place between 2 pieces of plastic wrap or parchment paper and pound flat with meat mallot.
+1. Wash chicken breast. Pat dry & place between 2 pieces of plastic wrap or parchment paper and pound flat with meat mallot.
 1. Sprinkle sea salt, black pepper, herbs de Provence over each side.
 1. Heat oil in a large skillet. Once hot, add chicken. Try not to over crowd. (The secret to a good sear is to remove as much surface moisture from the protein, and make sure the oil is near smoking. Also, leave the meat alone! It will let you know when it’s ready to flip over. If you start poking at it, and it’s sticking? It’s not ready. If it moves around or releases with minimum effort, it’s ready. Now that you know those basics, you shouldn’t have trouble getting a wonderful color and crust)
 1. Lower heat to medium-low. Remove pan from heat, you should have lots of brown bits stuck to the bottom of the pan. Deglaze those bits with the white wine, stirring with a wooden spoon. Bring skillet back to the heat and allow the white wine to reduce just slightly, about 2-3 minutes. Turn off the heat, stir in the butter and parsley. Pour over the chicken and serve.

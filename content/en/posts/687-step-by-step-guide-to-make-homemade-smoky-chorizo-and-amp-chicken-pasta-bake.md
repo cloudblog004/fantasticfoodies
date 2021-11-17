@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Homemade Smoky Chorizo &amp;amp; Chicken Pasta Bake"
-title: "Step-by-Step Guide to Make Homemade Smoky Chorizo &amp;amp; Chicken Pasta Bake"
+description: "Step-by-Step Guide to Make Homemade Smoky Chorizo & Chicken Pasta Bake"
+title: "Step-by-Step Guide to Make Homemade Smoky Chorizo & Chicken Pasta Bake"
 slug: 687-step-by-step-guide-to-make-homemade-smoky-chorizo-and-amp-chicken-pasta-bake
 date: 2022-05-24T00:16:16.868Z
 image: https://img-global.cpcdn.com/recipes/8cd6eeff91a3f07b/680x482cq70/smoky-chorizo-chicken-pasta-bake-recipe-main-photo.jpg
@@ -57,20 +57,20 @@ recipecategory: Dinner
 ---
 
 
-![Smoky Chorizo &amp; Chicken Pasta Bake](https://img-global.cpcdn.com/recipes/8cd6eeff91a3f07b/680x482cq70/smoky-chorizo-chicken-pasta-bake-recipe-main-photo.jpg)
+![Smoky Chorizo & Chicken Pasta Bake](https://img-global.cpcdn.com/recipes/8cd6eeff91a3f07b/680x482cq70/smoky-chorizo-chicken-pasta-bake-recipe-main-photo.jpg)
 
-Hey everyone, it is me again, Dan, welcome to my recipe site. Today, I'm gonna show you how to make a special dish, smoky chorizo &amp; chicken pasta bake. One of my favorites. This time, I will make it a little bit unique. This is gonna smell and look delicious.
-
-
-
-Smoky Chorizo &amp; Chicken Pasta Bake is one of the most favored of current trending foods on earth. It's appreciated by millions daily. It is simple, it is fast, it tastes yummy. They are nice and they look wonderful. Smoky Chorizo &amp; Chicken Pasta Bake is something that I've loved my whole life.
+Hey everyone, it is me again, Dan, welcome to my recipe site. Today, I'm gonna show you how to make a special dish, smoky chorizo & chicken pasta bake. One of my favorites. This time, I will make it a little bit unique. This is gonna smell and look delicious.
 
 
-To get started with this particular recipe, we must first prepare a few ingredients. You can cook smoky chorizo &amp; chicken pasta bake using 18 ingredients and 6 steps. Here is how you can achieve that.
+
+Smoky Chorizo & Chicken Pasta Bake is one of the most favored of current trending foods on earth. It's appreciated by millions daily. It is simple, it is fast, it tastes yummy. They are nice and they look wonderful. Smoky Chorizo & Chicken Pasta Bake is something that I've loved my whole life.
+
+
+To get started with this particular recipe, we must first prepare a few ingredients. You can cook smoky chorizo & chicken pasta bake using 18 ingredients and 6 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Smoky Chorizo &amp; Chicken Pasta Bake:
+##### The ingredients needed to make Smoky Chorizo & Chicken Pasta Bake:
 
 1. Prepare 2 Chicken breasts - skinned and diced
 1. Make ready 1 Chorizo sausage - chopped into small pieces
@@ -81,7 +81,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 1. Get 1 Bag baby spinach leaves
 1. Get 4-5 cloves garlic
 1. Prepare 3/4 Bag penne pasta
-1. Take 1 Bottle Leggos Pasta Bake Sauce Creamy Tomato &amp; Mozarella
+1. Take 1 Bottle Leggos Pasta Bake Sauce Creamy Tomato & Mozarella
 1. Make ready  Tasty cheddar cheese
 1. Take  Parmesan cheese
 1. Make ready  Paprika
@@ -96,7 +96,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 
 <!--inarticleads2-->
 
-##### Instructions to make Smoky Chorizo &amp; Chicken Pasta Bake:
+##### Instructions to make Smoky Chorizo & Chicken Pasta Bake:
 
 1. Heat oven to 200 degrees celcius on bake.
 1. In a large pan add olive oil and brown chicken on high heat. DO NOT OVER COOK. Once chicken is browned, add salt, pepper and paprika. Mix well then transfer chicken into a separate dish.
@@ -108,4 +108,4 @@ To get started with this particular recipe, we must first prepare a few ingredie
 
 
 
-So that's going to wrap it up with this exceptional food smoky chorizo &amp; chicken pasta bake recipe. Thanks so much for reading. I am confident that you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!
+So that's going to wrap it up with this exceptional food smoky chorizo & chicken pasta bake recipe. Thanks so much for reading. I am confident that you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

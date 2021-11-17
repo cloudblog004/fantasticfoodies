@@ -74,7 +74,7 @@ To get started with this particular recipe, we have to prepare a few components.
 ##### The ingredients needed to make Herbed Chicken Breast Stir-fry:
 
 1. Get  Chicken breast cutlets
-1. Get  Corn, carrots &amp; peas
+1. Get  Corn, carrots & peas
 1. Get 1/2 small onion
 1. Get 4 cloves Garlic, chopped
 1. Get  Butter

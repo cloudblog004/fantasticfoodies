@@ -42,7 +42,7 @@ recipeingredient:
 - " sprinkle on top with green onion diced"
 - " and 5 Lemon Basils leaves"
 recipeinstructions:
-- "In a food processor: put white &amp; red onions, lemongrass, garlic, ginger, fresh tumeric or ground turmeric, Macadamia nuts, red chili, Siracha chili sauce &amp; 1 tbs vege oil to loosen the texture and blend until the texture is a bit chunky, not smooth!!. Heat the wok, and 2 tbs Rice Bran oil then add the spicy paste from the blender, and sautee&#39; them, then add kaffir lime leaves and lemongrass stalks (or paste) until cooked &amp; fragrance."
+- "In a food processor: put white & red onions, lemongrass, garlic, ginger, fresh tumeric or ground turmeric, Macadamia nuts, red chili, Siracha chili sauce & 1 tbs vege oil to loosen the texture and blend until the texture is a bit chunky, not smooth!!. Heat the wok, and 2 tbs Rice Bran oil then add the spicy paste from the blender, and sautee&#39; them, then add kaffir lime leaves and lemongrass stalks (or paste) until cooked & fragrance."
 - "Add 1 1/2 cups Rice Bran oil and put the chicken in hot oil, mix and cook until chicken changed colour just a little brown on both sides but don&#39;t overcook. Add 1 1/2 cup water, 3/4 tbs sugar, tomatoes pieces, salt, pepper and the fresh mushrooms and mix well. Cook until the gravy is reduced and the chicken is almost done, then add in lemon basils leaves, lime juice and cornflour. Mix well. Taste the salt, then turn off the heat, transfer to a serving dish. Sprinkle on top with the green onions."
 - "Garnish on top Chicken with 5 Lemon Basils leaves. Serve with hot steamed Rice and with a cup of hot Jasmine Tea from Indonesia.😙🌶🍅🍜"
 - "Ready to serve and ENJOY!"
@@ -81,7 +81,7 @@ To get started with this recipe, we must first prepare a few components. You can
 
 1. Take 5 chicken legs with skin,with a sharp knife I made 2 slits+1slit
 1. Get  SPICY PASTE:
-1. Make ready 2-3 stalks lemongrass (need plenty), pounded &amp; knotted or
+1. Make ready 2-3 stalks lemongrass (need plenty), pounded & knotted or
 1. Prepare 1 tbs lemon grass paste (see photo)
 1. Prepare 3 garlic cloves
 1. Take 1 small white onion, chopped
@@ -99,7 +99,7 @@ To get started with this recipe, we must first prepare a few components. You can
 1. Take 1 1/2 cups water
 1. Take 1 kaffir lime juice
 1. Prepare 3/4 tbs soft brown Sugar,
-1. Get 1 tsp salt &amp; grounded black pepper
+1. Get 1 tsp salt & grounded black pepper
 1. Take 1 tbs Cornflour to thicken
 1. Make ready 2 large buttons mushrooms, chopped roughly
 1. Make ready 1 cup Rice Bran oil to fry the chickens
@@ -115,7 +115,7 @@ To get started with this recipe, we must first prepare a few components. You can
 
 ##### Steps to make Spicy Basil Chicken Casserole😋🇮🇩🐤🌶🍅🍜🍿:
 
-1. In a food processor: put white &amp; red onions, lemongrass, garlic, ginger, fresh tumeric or ground turmeric, Macadamia nuts, red chili, Siracha chili sauce &amp; 1 tbs vege oil to loosen the texture and blend until the texture is a bit chunky, not smooth!!. Heat the wok, and 2 tbs Rice Bran oil then add the spicy paste from the blender, and sautee&#39; them, then add kaffir lime leaves and lemongrass stalks (or paste) until cooked &amp; fragrance.
+1. In a food processor: put white & red onions, lemongrass, garlic, ginger, fresh tumeric or ground turmeric, Macadamia nuts, red chili, Siracha chili sauce & 1 tbs vege oil to loosen the texture and blend until the texture is a bit chunky, not smooth!!. Heat the wok, and 2 tbs Rice Bran oil then add the spicy paste from the blender, and sautee&#39; them, then add kaffir lime leaves and lemongrass stalks (or paste) until cooked & fragrance.
 1. Add 1 1/2 cups Rice Bran oil and put the chicken in hot oil, mix and cook until chicken changed colour just a little brown on both sides but don&#39;t overcook. Add 1 1/2 cup water, 3/4 tbs sugar, tomatoes pieces, salt, pepper and the fresh mushrooms and mix well. Cook until the gravy is reduced and the chicken is almost done, then add in lemon basils leaves, lime juice and cornflour. Mix well. Taste the salt, then turn off the heat, transfer to a serving dish. Sprinkle on top with the green onions.
 1. Garnish on top Chicken with 5 Lemon Basils leaves. Serve with hot steamed Rice and with a cup of hot Jasmine Tea from Indonesia.😙🌶🍅🍜
 1. Ready to serve and ENJOY!

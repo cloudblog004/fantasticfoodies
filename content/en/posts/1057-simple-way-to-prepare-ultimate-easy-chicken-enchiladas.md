@@ -21,11 +21,11 @@ recipeingredient:
 - "6 Flour tortillas"
 - "1 1/4 cup Mexican cheese"
 recipeinstructions:
-- "Line a 13x9x2 baking pan with foil &amp; spray with nonstick cooking spray. Spread 1/2 cup of enchilada sauce in it."
+- "Line a 13x9x2 baking pan with foil & spray with nonstick cooking spray. Spread 1/2 cup of enchilada sauce in it."
 - "Cook chicken in a skillet on medium until juices run clear."
-- "In a large pot heat salsa, cream cheese &amp; beans on medium until cream cheese is melted &amp; beans are warm."
+- "In a large pot heat salsa, cream cheese & beans on medium until cream cheese is melted & beans are warm."
 - "Add cooked chicken to the pot of salsa mix."
-- "Spoon 5 Tbs of mix onto each tortilla &amp; roll up. Place seam side down in the baking dish &amp; top with remaining sauce."
+- "Spoon 5 Tbs of mix onto each tortilla & roll up. Place seam side down in the baking dish & top with remaining sauce."
 - "Top with cheese and bake covered at 350° for 25-30 minutes. Enjoy!"
 - "Ready to serve and ENJOY!"
 categories:
@@ -76,11 +76,11 @@ To begin with this recipe, we must first prepare a few components. You can have 
 
 ##### Instructions to make Easy Chicken Enchiladas:
 
-1. Line a 13x9x2 baking pan with foil &amp; spray with nonstick cooking spray. Spread 1/2 cup of enchilada sauce in it.
+1. Line a 13x9x2 baking pan with foil & spray with nonstick cooking spray. Spread 1/2 cup of enchilada sauce in it.
 1. Cook chicken in a skillet on medium until juices run clear.
-1. In a large pot heat salsa, cream cheese &amp; beans on medium until cream cheese is melted &amp; beans are warm.
+1. In a large pot heat salsa, cream cheese & beans on medium until cream cheese is melted & beans are warm.
 1. Add cooked chicken to the pot of salsa mix.
-1. Spoon 5 Tbs of mix onto each tortilla &amp; roll up. Place seam side down in the baking dish &amp; top with remaining sauce.
+1. Spoon 5 Tbs of mix onto each tortilla & roll up. Place seam side down in the baking dish & top with remaining sauce.
 1. Top with cheese and bake covered at 350° for 25-30 minutes. Enjoy!
 1. Ready to serve and ENJOY!
 

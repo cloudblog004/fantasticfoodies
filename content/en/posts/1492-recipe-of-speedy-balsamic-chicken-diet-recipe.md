@@ -47,7 +47,7 @@ recipecategory: Dessert
 
 Hey everyone, hope you're having an incredible day today. Today, I'm gonna show you how to prepare a special dish, balsamic chicken diet recipe. One of my favorites food recipes. For mine, I will make it a little bit unique. This will be really delicious.
 
-A sweet, tangy balsamic vinegar marinade gives pan-fried chicken breasts flavor and color. The marinade is cooked into a sauce for the chicken. If you are following a medically restrictive diet, please consult your doctor or registered dietitian before preparing this recipe for personal consumption. Fitness influencer Michelle Khare teaches you her favorite healthy dish: an easy, one-pan balsamic chicken &amp; veggie dinner! #SweetSweat #SportsResearch.
+A sweet, tangy balsamic vinegar marinade gives pan-fried chicken breasts flavor and color. The marinade is cooked into a sauce for the chicken. If you are following a medically restrictive diet, please consult your doctor or registered dietitian before preparing this recipe for personal consumption. Fitness influencer Michelle Khare teaches you her favorite healthy dish: an easy, one-pan balsamic chicken & veggie dinner! #SweetSweat #SportsResearch.
 
 Balsamic chicken diet recipe is one of the most popular of recent trending meals in the world. It is easy, it's fast, it tastes delicious. It is enjoyed by millions every day. They are fine and they look wonderful. Balsamic chicken diet recipe is something which I have loved my whole life.
 

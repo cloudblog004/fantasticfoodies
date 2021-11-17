@@ -28,11 +28,11 @@ recipeingredient:
 - "2 cups shredded Parmesan cheese"
 - "2 tbsp. parsley for garnish optional"
 recipeinstructions:
-- "Preheat oven to 350 deg. F. Lay cooked lasagna noodles flat, on an even layer, on a greased baking sheet. (11&#34;x 17&#34;)"
-- "Season chicken with salt &amp; pepper then cut chicken into approximately 1/2&#34; cubes. Put flour and breadcrumbs into two separate bowls. Whisk together three eggs into a separate bowl. working in batches, dredge chicken in the flour then dip into the eggs. Toss them into the breadcrumbs for the final dredge."
+- "Preheat oven to 350 deg. F. Lay cooked lasagna noodles flat, on an even layer, on a greased baking sheet. (11*x 17*)"
+- "Season chicken with salt & pepper then cut chicken into approximately 1/2* cubes. Put flour and breadcrumbs into two separate bowls. Whisk together three eggs into a separate bowl. working in batches, dredge chicken in the flour then dip into the eggs. Toss them into the breadcrumbs for the final dredge."
 - "In a large skillet over medium-high heated oil. Add chicken and cook until golden brown and cooked through, about 12 minutes turning chicken at the 6 minute mark."
 - "Meanwhile, make filling. Whisk together the ricotta, remaining eggs, garlic powder and 1 cup of parmesan cheese. Spread ricotta mixture onto each lasagna noodle, then spoon marinara sauce over the ricotta. Top with the cooked chicken and mozzarella then roll up tightly."
-- "In large deep baking dish (9&#34;X 13&#34;) spoon a layer of marinara on the bottom of the dish. Add roll-ups and spoon more sauce onto each roll-up. Sprinkle more mozzarella nad Parmesan over each roll-up. Bake until bubbly and melted, about 30 minutes."
+- "In large deep baking dish (9*X 13*) spoon a layer of marinara on the bottom of the dish. Add roll-ups and spoon more sauce onto each roll-up. Sprinkle more mozzarella nad Parmesan over each roll-up. Bake until bubbly and melted, about 30 minutes."
 - "Remove from over and let cool for 10 minutes. Garnish with parsley if so desired."
 - "Ready to serve and ENJOY!"
 categories:
@@ -90,11 +90,11 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 
 ##### Steps to make Chicken Parmesan Roll Ups:
 
-1. Preheat oven to 350 deg. F. Lay cooked lasagna noodles flat, on an even layer, on a greased baking sheet. (11&#34;x 17&#34;)
-1. Season chicken with salt &amp; pepper then cut chicken into approximately 1/2&#34; cubes. Put flour and breadcrumbs into two separate bowls. Whisk together three eggs into a separate bowl. working in batches, dredge chicken in the flour then dip into the eggs. Toss them into the breadcrumbs for the final dredge.
+1. Preheat oven to 350 deg. F. Lay cooked lasagna noodles flat, on an even layer, on a greased baking sheet. (11*x 17*)
+1. Season chicken with salt & pepper then cut chicken into approximately 1/2* cubes. Put flour and breadcrumbs into two separate bowls. Whisk together three eggs into a separate bowl. working in batches, dredge chicken in the flour then dip into the eggs. Toss them into the breadcrumbs for the final dredge.
 1. In a large skillet over medium-high heated oil. Add chicken and cook until golden brown and cooked through, about 12 minutes turning chicken at the 6 minute mark.
 1. Meanwhile, make filling. Whisk together the ricotta, remaining eggs, garlic powder and 1 cup of parmesan cheese. Spread ricotta mixture onto each lasagna noodle, then spoon marinara sauce over the ricotta. Top with the cooked chicken and mozzarella then roll up tightly.
-1. In large deep baking dish (9&#34;X 13&#34;) spoon a layer of marinara on the bottom of the dish. Add roll-ups and spoon more sauce onto each roll-up. Sprinkle more mozzarella nad Parmesan over each roll-up. Bake until bubbly and melted, about 30 minutes.
+1. In large deep baking dish (9*X 13*) spoon a layer of marinara on the bottom of the dish. Add roll-ups and spoon more sauce onto each roll-up. Sprinkle more mozzarella nad Parmesan over each roll-up. Bake until bubbly and melted, about 30 minutes.
 1. Remove from over and let cool for 10 minutes. Garnish with parsley if so desired.
 1. Ready to serve and ENJOY!
 

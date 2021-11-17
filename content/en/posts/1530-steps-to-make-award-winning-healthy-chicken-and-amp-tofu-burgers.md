@@ -1,6 +1,6 @@
 ---
-description: "Steps to Make Award-winning Healthy Chicken &amp;amp; Tofu Burgers"
-title: "Steps to Make Award-winning Healthy Chicken &amp;amp; Tofu Burgers"
+description: "Steps to Make Award-winning Healthy Chicken & Tofu Burgers"
+title: "Steps to Make Award-winning Healthy Chicken & Tofu Burgers"
 slug: 1530-steps-to-make-award-winning-healthy-chicken-and-amp-tofu-burgers
 date: 2021-12-03T06:45:29.395Z
 image: https://img-global.cpcdn.com/recipes/a909de8be97ce3b2/680x482cq70/healthy-chicken-tofu-burgers-recipe-main-photo.jpg
@@ -49,20 +49,20 @@ recipecategory: Lunch
 ---
 
 
-![Healthy Chicken &amp; Tofu Burgers](https://img-global.cpcdn.com/recipes/a909de8be97ce3b2/680x482cq70/healthy-chicken-tofu-burgers-recipe-main-photo.jpg)
+![Healthy Chicken & Tofu Burgers](https://img-global.cpcdn.com/recipes/a909de8be97ce3b2/680x482cq70/healthy-chicken-tofu-burgers-recipe-main-photo.jpg)
 
-Hello everybody, it is Brad, welcome to my recipe page. Today, we're going to make a distinctive dish, healthy chicken &amp; tofu burgers. One of my favorites food recipes. For mine, I will make it a little bit tasty. This is gonna smell and look delicious.
-
-
-
-Healthy Chicken &amp; Tofu Burgers is one of the most popular of current trending foods in the world. It is easy, it's quick, it tastes yummy. It is appreciated by millions daily. Healthy Chicken &amp; Tofu Burgers is something which I've loved my entire life. They're nice and they look fantastic.
+Hello everybody, it is Brad, welcome to my recipe page. Today, we're going to make a distinctive dish, healthy chicken & tofu burgers. One of my favorites food recipes. For mine, I will make it a little bit tasty. This is gonna smell and look delicious.
 
 
-To get started with this particular recipe, we have to first prepare a few ingredients. You can have healthy chicken &amp; tofu burgers using 12 ingredients and 4 steps. Here is how you cook that.
+
+Healthy Chicken & Tofu Burgers is one of the most popular of current trending foods in the world. It is easy, it's quick, it tastes yummy. It is appreciated by millions daily. Healthy Chicken & Tofu Burgers is something which I've loved my entire life. They're nice and they look fantastic.
+
+
+To get started with this particular recipe, we have to first prepare a few ingredients. You can have healthy chicken & tofu burgers using 12 ingredients and 4 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Healthy Chicken &amp; Tofu Burgers:
+##### The ingredients needed to make Healthy Chicken & Tofu Burgers:
 
 1. Prepare 500 g Chicken Breast Mince
 1. Prepare 400-500 g Firm Tofu *mashed
@@ -72,7 +72,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 1. Make ready 1/2 teaspoon White Pepper
 1. Take  Oil for cooking
 1. Take  &lt;Ingredients for Sauce&gt;
-1. Take 1/2 cup Dashi *OR 1/2 cup Water &amp; 1/4 teaspoon Dashi Powder
+1. Take 1/2 cup Dashi *OR 1/2 cup Water & 1/4 teaspoon Dashi Powder
 1. Prepare 2 tablespoons Soy Sauce
 1. Take 2 tablespoons Mirin
 1. Make ready 1/2 tablespoons Potato Starch / Corn Starch Flour *mixed with 1 tablespoon Water
@@ -82,7 +82,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 
 <!--inarticleads2-->
 
-##### Steps to make Healthy Chicken &amp; Tofu Burgers:
+##### Steps to make Healthy Chicken & Tofu Burgers:
 
 1. Combine all ingredients well in a bowl. Roll mixture into balls. Flatten slightly. *Note: You may add other finely chopped vegetables and mushrooms.
 1. Heat small amount of Oil in a frying pan and cook until golden and cooked though.
@@ -92,4 +92,4 @@ To get started with this particular recipe, we have to first prepare a few ingre
 
 
 
-So that is going to wrap this up for this exceptional food healthy chicken &amp; tofu burgers recipe. Thanks so much for your time. I am sure that you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
+So that is going to wrap this up for this exceptional food healthy chicken & tofu burgers recipe. Thanks so much for your time. I am sure that you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

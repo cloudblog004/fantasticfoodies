@@ -69,7 +69,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Make ready 1 packages mixed veggies
 
 
-My family loves this ranch chicken. I have served it with rice &amp; on buns. Either way it is very favorable ○○○○○○○○○○○○○○ RANCH Cream cheese then sprinkle seasoning over top. Break chicken up with a fork. 
+My family loves this ranch chicken. I have served it with rice & on buns. Either way it is very favorable ○○○○○○○○○○○○○○ RANCH Cream cheese then sprinkle seasoning over top. Break chicken up with a fork. 
 
 <!--inarticleads2-->
 

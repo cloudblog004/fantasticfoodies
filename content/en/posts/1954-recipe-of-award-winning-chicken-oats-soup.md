@@ -26,7 +26,7 @@ recipeinstructions:
 - "Heat oil in pan, splutter cumin seeds and saute onion in it for minute."
 - "Add shredded chicken n saute for minute."
 - "Add salt n black pepper powder mix n cook for few seconds."
-- "Add maida n little chicken stock (in which chicken boiled). Stir continuously and then pour 1&amp;1/2 cups chicken stock n mix."
+- "Add maida n little chicken stock (in which chicken boiled). Stir continuously and then pour 1&1/2 cups chicken stock n mix."
 - "Add oats n cook for 3minutes on low flame."
 - "Add some spring onion n chicken oats soup ready to serve."
 - "Njoy this soup in lunch or in dinner."
@@ -84,7 +84,7 @@ To get started with this recipe, we must prepare a few components. You can cook 
 1. Heat oil in pan, splutter cumin seeds and saute onion in it for minute.
 1. Add shredded chicken n saute for minute.
 1. Add salt n black pepper powder mix n cook for few seconds.
-1. Add maida n little chicken stock (in which chicken boiled). Stir continuously and then pour 1&amp;1/2 cups chicken stock n mix.
+1. Add maida n little chicken stock (in which chicken boiled). Stir continuously and then pour 1&1/2 cups chicken stock n mix.
 1. Add oats n cook for 3minutes on low flame.
 1. Add some spring onion n chicken oats soup ready to serve.
 1. Njoy this soup in lunch or in dinner.

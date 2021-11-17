@@ -24,7 +24,7 @@ recipeinstructions:
 - "Put the chicken in the pan and sprinkle the garlic over it.  Cook chicken in the pan over medium heat for about 10 minutes or until no longer pink."
 - "Add the vegetables, as little or as much as you like.  Stir the mixture until the veggies are soft and warm.  Usually 5-8 minutes."
 - "Sprinkle the soy sauce over the mixture and stir it up for about 2 minutes."
-- "Serve alone or over some rice.  Super easy &amp; kid friendly."
+- "Serve alone or over some rice.  Super easy & kid friendly."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -77,7 +77,7 @@ To get started with this particular recipe, we have to prepare a few ingredients
 1. Put the chicken in the pan and sprinkle the garlic over it.  Cook chicken in the pan over medium heat for about 10 minutes or until no longer pink.
 1. Add the vegetables, as little or as much as you like.  Stir the mixture until the veggies are soft and warm.  Usually 5-8 minutes.
 1. Sprinkle the soy sauce over the mixture and stir it up for about 2 minutes.
-1. Serve alone or over some rice.  Super easy &amp; kid friendly.
+1. Serve alone or over some rice.  Super easy & kid friendly.
 1. Ready to serve and ENJOY!
 
 

@@ -53,7 +53,7 @@ Hello everybody, it's Drew, welcome to our recipe site. Today, I'm gonna show yo
 
 Rice, beans, stew with chicken and fish is one of the most favored of current trending foods in the world. It's simple, it's quick, it tastes delicious. It's enjoyed by millions every day. They are nice and they look wonderful. Rice, beans, stew with chicken and fish is something which I've loved my entire life.
 
-Pour in the chicken with the water. STEW,BEANS,PLANTAIN,FISH AND CHICKEN MUKBANG (EATING SOUNDS) Messy eating Hi guys Nigerian asmr spicy chicken stew,rice,chicken &amp; eggs cooking &amp; eating Asmr indian spicy chicken leg dopiaza and boiled egg with white rice,chilli. Rice and beans is a category of dishes from many cultures around the world, whereby the staple foods of rice and beans are combined in some manner. The grain and legume combination provides several important nutrients and many calories, and both foods are widely available.
+Pour in the chicken with the water. STEW,BEANS,PLANTAIN,FISH AND CHICKEN MUKBANG (EATING SOUNDS) Messy eating Hi guys Nigerian asmr spicy chicken stew,rice,chicken & eggs cooking & eating Asmr indian spicy chicken leg dopiaza and boiled egg with white rice,chilli. Rice and beans is a category of dishes from many cultures around the world, whereby the staple foods of rice and beans are combined in some manner. The grain and legume combination provides several important nutrients and many calories, and both foods are widely available.
 
 
 To begin with this recipe, we must first prepare a few ingredients. You can have rice, beans, stew with chicken and fish using 10 ingredients and 4 steps. Here is how you can achieve that.

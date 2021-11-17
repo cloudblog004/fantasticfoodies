@@ -76,7 +76,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Get 1 large leek, outer leaves removed and cut into 1 cm slices
 
 
-I have given quantities for two but it is very easy to multiply up, all you need. Add the leeks to the asparagus mixture along with the cheese and stir to combine. Creamy Mushroom, Chicken &amp; Asparagus Bake. This comforting weeknight casserole recipe features plenty of mushrooms and asparagus combined with chicken and brown rice and a creamy Parmesan cheese sauce. 
+I have given quantities for two but it is very easy to multiply up, all you need. Add the leeks to the asparagus mixture along with the cheese and stir to combine. Creamy Mushroom, Chicken & Asparagus Bake. This comforting weeknight casserole recipe features plenty of mushrooms and asparagus combined with chicken and brown rice and a creamy Parmesan cheese sauce. 
 
 <!--inarticleads2-->
 
@@ -88,6 +88,6 @@ I have given quantities for two but it is very easy to multiply up, all you need
 1. Pull the trays from the oven and remove the chicken. Use a spoon or spatula to swirl the mushrooms, veg, and pan juices around. Return the chicken pieces to the pans and put them back in the oven, rotating the pans as you do so. Bake another 20 to 30 minutes until done.
 1. Ready to serve and ENJOY!
 
-Creamy Mushroom, Chicken &amp; Asparagus Bake. This comforting weeknight casserole recipe features plenty of mushrooms and asparagus combined with chicken and brown rice and a creamy Parmesan cheese sauce. Braised Chicken Thighs with Mushrooms and Leeks. Nothing makes a cold winter night more bearable than a hot and hearty meal made in the oven. I used white wine and served it with asparagus and mashed potatoes! 
+Creamy Mushroom, Chicken & Asparagus Bake. This comforting weeknight casserole recipe features plenty of mushrooms and asparagus combined with chicken and brown rice and a creamy Parmesan cheese sauce. Braised Chicken Thighs with Mushrooms and Leeks. Nothing makes a cold winter night more bearable than a hot and hearty meal made in the oven. I used white wine and served it with asparagus and mashed potatoes! 
 
 So that is going to wrap this up with this special food chicken, mushroom, asparagus and leek tray bake recipe. Thanks so much for your time. I'm sure you can make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

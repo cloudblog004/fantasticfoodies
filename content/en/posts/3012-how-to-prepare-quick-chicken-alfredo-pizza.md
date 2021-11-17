@@ -29,7 +29,7 @@ recipeingredient:
 - "1/2 tsp ground black pepper"
 recipeinstructions:
 - "Preheat oven to 425°F."
-- "Cut chicken into 1&#34; wide strips, place in Zip-loc bag.  Add basil, thyme, ground black pepper, cayenne pepper, onion powder, and garlic powder.  Shake bag, and let sit."
+- "Cut chicken into 1* wide strips, place in Zip-loc bag.  Add basil, thyme, ground black pepper, cayenne pepper, onion powder, and garlic powder.  Shake bag, and let sit."
 - "Dice tomato and cilantro, and slice portabella mushrooms.  Set aside."
 - "Place pizza crust on pan.  Evenly spread sauce across crust.  Sprinkle cheese evenly, then sprinkle tomato, mushroom, and cilantro.  Evenly spread chicken across top."
 - "Take cheddar cheese and lightly sprinkle around crust.  Place in oven for 12-14 minutes."
@@ -90,7 +90,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can c
 ##### Instructions to make Chicken Alfredo Pizza:
 
 1. Preheat oven to 425°F.
-1. Cut chicken into 1&#34; wide strips, place in Zip-loc bag.  Add basil, thyme, ground black pepper, cayenne pepper, onion powder, and garlic powder.  Shake bag, and let sit.
+1. Cut chicken into 1* wide strips, place in Zip-loc bag.  Add basil, thyme, ground black pepper, cayenne pepper, onion powder, and garlic powder.  Shake bag, and let sit.
 1. Dice tomato and cilantro, and slice portabella mushrooms.  Set aside.
 1. Place pizza crust on pan.  Evenly spread sauce across crust.  Sprinkle cheese evenly, then sprinkle tomato, mushroom, and cilantro.  Evenly spread chicken across top.
 1. Take cheddar cheese and lightly sprinkle around crust.  Place in oven for 12-14 minutes.

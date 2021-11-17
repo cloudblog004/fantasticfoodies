@@ -29,7 +29,7 @@ recipeingredient:
 - " Sour cream optional"
 recipeinstructions:
 - "Preheat large derp skillet large medium heat and swirl oil to coat. Add onion, garlic and bell pepper; saute for 3 minutes, stirring occasionally. Move vegetables to the side of the skillet and add chicken. Sprinkle with 1 tsp cumin, salt and black pepper. Cook for about 5-7minutes, stirring occasionally."
-- "Add corn, beans, tomatoes, zucchini, taco seasoning and remaining cumin. Stir, cover and cook on low-medium for 10 minutes. Sprinkle with cheese, cover and cook for a few minutes or until cheese has melted. Top with green onion and cilantro. Serve hot, on its own or over a healthy rice. Add sour cream &amp; green onions if desired."
+- "Add corn, beans, tomatoes, zucchini, taco seasoning and remaining cumin. Stir, cover and cook on low-medium for 10 minutes. Sprinkle with cheese, cover and cook for a few minutes or until cheese has melted. Top with green onion and cilantro. Serve hot, on its own or over a healthy rice. Add sour cream & green onions if desired."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -73,7 +73,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can have lo
 1. Get 1-2 zucchini diced
 1. Prepare 1 can black beans, drained
 1. Make ready 1/2 packet taco seasoning
-1. Make ready  S&amp;p to taste
+1. Make ready  S&p to taste
 1. Make ready  Shake of cumin
 1. Make ready 1 cup colby jack cheese
 1. Take 2-4 stalks green onion (garnish)
@@ -87,7 +87,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can have lo
 ##### Steps to make Low carb Tex Mex Chicken zucchini skillet:
 
 1. Preheat large derp skillet large medium heat and swirl oil to coat. Add onion, garlic and bell pepper; saute for 3 minutes, stirring occasionally. Move vegetables to the side of the skillet and add chicken. Sprinkle with 1 tsp cumin, salt and black pepper. Cook for about 5-7minutes, stirring occasionally.
-1. Add corn, beans, tomatoes, zucchini, taco seasoning and remaining cumin. Stir, cover and cook on low-medium for 10 minutes. Sprinkle with cheese, cover and cook for a few minutes or until cheese has melted. Top with green onion and cilantro. Serve hot, on its own or over a healthy rice. Add sour cream &amp; green onions if desired.
+1. Add corn, beans, tomatoes, zucchini, taco seasoning and remaining cumin. Stir, cover and cook on low-medium for 10 minutes. Sprinkle with cheese, cover and cook for a few minutes or until cheese has melted. Top with green onion and cilantro. Serve hot, on its own or over a healthy rice. Add sour cream & green onions if desired.
 1. Ready to serve and ENJOY!
 
 

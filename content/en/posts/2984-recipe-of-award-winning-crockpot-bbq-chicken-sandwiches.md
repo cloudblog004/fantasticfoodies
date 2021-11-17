@@ -75,7 +75,7 @@ To get started with this recipe, we have to prepare a few components. You can co
 1. Make ready  Kaiser rolls or your favorite rolls
 
 
-So after four hours of sauce-y, simmer-y, BBQ-y, chicken-y goodness, you pull your chicken breasts out, shred the meat, and stir everything back together in the Crock-Pot. This crockpot BBQ chicken is so easy to make - just put everything into the slow cooker, no special prep. Pulled BBQ sandwiches have never been my &#34;thing&#34;, which is unfortunate given that we live in Memphis. Crockpot BBQ Chicken Thighs did not get the title BEST EVER for no good reason. 
+So after four hours of sauce-y, simmer-y, BBQ-y, chicken-y goodness, you pull your chicken breasts out, shred the meat, and stir everything back together in the Crock-Pot. This crockpot BBQ chicken is so easy to make - just put everything into the slow cooker, no special prep. Pulled BBQ sandwiches have never been my *thing*, which is unfortunate given that we live in Memphis. Crockpot BBQ Chicken Thighs did not get the title BEST EVER for no good reason. 
 
 <!--inarticleads2-->
 
@@ -92,6 +92,6 @@ So after four hours of sauce-y, simmer-y, BBQ-y, chicken-y goodness, you pull yo
 1. Serve on top of your favorite rolls and enjoy 😉!!!!
 1. Ready to serve and ENJOY!
 
-Pulled BBQ sandwiches have never been my &#34;thing&#34;, which is unfortunate given that we live in Memphis. Crockpot BBQ Chicken Thighs did not get the title BEST EVER for no good reason. Not only are they insanely easy to make, they&#39;re also super tender You won&#39;t have to worry too much with crockpot BBQ chicken thighs, as they should be at the right chicken thighs internal temp once the time is done. Mix BBQ sauce, honey, mustard, worcestershire sauce and hot sauce in bowl and pour over chicken. When I clean up, I shred the leftover chicken thighs and refrigerate. 
+Pulled BBQ sandwiches have never been my *thing*, which is unfortunate given that we live in Memphis. Crockpot BBQ Chicken Thighs did not get the title BEST EVER for no good reason. Not only are they insanely easy to make, they&#39;re also super tender You won&#39;t have to worry too much with crockpot BBQ chicken thighs, as they should be at the right chicken thighs internal temp once the time is done. Mix BBQ sauce, honey, mustard, worcestershire sauce and hot sauce in bowl and pour over chicken. When I clean up, I shred the leftover chicken thighs and refrigerate. 
 
 So that is going to wrap it up with this special food crockpot bbq 🍗 chicken 🐔 sandwiches 🥪 recipe. Thanks so much for reading. I am confident that you will make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

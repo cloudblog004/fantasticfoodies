@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Award-winning Tori&amp;#39;s Diet Salad with Chicken Breast"
-title: "Recipe of Award-winning Tori&amp;#39;s Diet Salad with Chicken Breast"
+description: "Recipe of Award-winning Tori's Diet Salad with Chicken Breast"
+title: "Recipe of Award-winning Tori's Diet Salad with Chicken Breast"
 slug: 1391-recipe-of-award-winning-tori-and-39-s-diet-salad-with-chicken-breast
 date: 2022-05-22T02:24:11.578Z
 image: https://img-global.cpcdn.com/recipes/5612034632712192/680x482cq70/toris-diet-salad-with-chicken-breast-recipe-main-photo.jpg

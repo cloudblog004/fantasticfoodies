@@ -68,7 +68,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 
 ##### The ingredients needed to make Paella Chicken made easy:
 
-1. Prepare 1 &amp; 1/2 cups cooked rice
+1. Prepare 1 & 1/2 cups cooked rice
 1. Get 1 yellow squash or zucchini 3/4 in sliced
 1. Make ready 1 lb cooked chicken cubed
 1. Get 1/2 rope kielbasa sliced
@@ -82,7 +82,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 1. Prepare 1 onion caramelized diced
 
 
-Whip up this easy version of the traditional Spanish seafood dish straight from the storecupboard. Add extras such as chorizo and peas if you like. See recipes for Paella Chicken made easy too. My quick &amp; easy recipe. &#34;I&#39;ve made a few paellas in my time. 
+Whip up this easy version of the traditional Spanish seafood dish straight from the storecupboard. Add extras such as chorizo and peas if you like. See recipes for Paella Chicken made easy too. My quick & easy recipe. *I&#39;ve made a few paellas in my time. 
 
 <!--inarticleads2-->
 
@@ -98,6 +98,6 @@ Whip up this easy version of the traditional Spanish seafood dish straight from 
 1. Top with squash and serve hot.
 1. Ready to serve and ENJOY!
 
-See recipes for Paella Chicken made easy too. My quick &amp; easy recipe. &#34;I&#39;ve made a few paellas in my time. This simple chicken chorizo paella may not be the way a purist in Spain might do it, and we&#39;re no strangers to making it the traditional way, in the Get ready for the easiest paella ever. Season the chicken with salt and pepper. In a medium cast iron skillet or other wide, flat skillet, heat the olive oil. 
+See recipes for Paella Chicken made easy too. My quick & easy recipe. *I&#39;ve made a few paellas in my time. This simple chicken chorizo paella may not be the way a purist in Spain might do it, and we&#39;re no strangers to making it the traditional way, in the Get ready for the easiest paella ever. Season the chicken with salt and pepper. In a medium cast iron skillet or other wide, flat skillet, heat the olive oil. 
 
 So that's going to wrap this up with this exceptional food paella chicken made easy recipe. Thanks so much for your time. I'm confident you can make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

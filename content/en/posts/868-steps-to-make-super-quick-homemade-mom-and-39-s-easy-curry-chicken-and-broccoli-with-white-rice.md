@@ -1,6 +1,6 @@
 ---
-description: "Steps to Make Super Quick Homemade Mom&amp;#39;s Easy Curry Chicken 🍗 and Broccoli 🥦 With White Rice"
-title: "Steps to Make Super Quick Homemade Mom&amp;#39;s Easy Curry Chicken 🍗 and Broccoli 🥦 With White Rice"
+description: "Steps to Make Super Quick Homemade Mom's Easy Curry Chicken 🍗 and Broccoli 🥦 With White Rice"
+title: "Steps to Make Super Quick Homemade Mom's Easy Curry Chicken 🍗 and Broccoli 🥦 With White Rice"
 slug: 868-steps-to-make-super-quick-homemade-mom-and-39-s-easy-curry-chicken-and-broccoli-with-white-rice
 date: 2022-05-10T01:56:44.730Z
 image: https://img-global.cpcdn.com/recipes/331a01a2d2a93aab/680x482cq70/moms-easy-curry-chicken-and-broccoli-with-white-rice-recipe-main-photo.jpg
@@ -21,7 +21,7 @@ recipeingredient:
 - "1 package monterey jack cheese"
 - "2 cans evaporated milk"
 recipeinstructions:
-- "Pound chicken breasts flat.... season with salt &amp; pepper.... bake in oven for 30 minutes at 375°.... cut into chunks...."
+- "Pound chicken breasts flat.... season with salt & pepper.... bake in oven for 30 minutes at 375°.... cut into chunks...."
 - "Butter the pan...."
 - "Cut the monterey jack cheese with a knife.... Put the cheese in the pan...."
 - "Add evaporated milk (2 cans)......."
@@ -83,7 +83,7 @@ To begin with this recipe, we have to prepare a few components. You can cook mom
 
 ##### Steps to make Mom&#39;s Easy Curry Chicken 🍗 and Broccoli 🥦 With White Rice:
 
-1. Pound chicken breasts flat.... season with salt &amp; pepper.... bake in oven for 30 minutes at 375°.... cut into chunks....
+1. Pound chicken breasts flat.... season with salt & pepper.... bake in oven for 30 minutes at 375°.... cut into chunks....
 1. Butter the pan....
 1. Cut the monterey jack cheese with a knife.... Put the cheese in the pan....
 1. Add evaporated milk (2 cans).......

@@ -24,7 +24,7 @@ recipeingredient:
 - " Salt and pepper to taste"
 recipeinstructions:
 - "I grilled the chicken a bit with the onions and garlic and some salt and pepper in a large saucepan on medium/low on the stove."
-- "Drain and mix in the vegetables with the chicken. Add soup and milk/cream. Heat to bubbling on medium. Add herbs and season to taste with salt &amp; pepper. Keep on low setting."
+- "Drain and mix in the vegetables with the chicken. Add soup and milk/cream. Heat to bubbling on medium. Add herbs and season to taste with salt & pepper. Keep on low setting."
 - "Follow instructions for temperature on biscuits can. Bake them half the time it says and remove them."
 - "Pour chicken/vegetable mixture into large casserole that has been sprayed with cooking spray. Place biscuits cooked side down on top and put back into oven at 350° for 10 minutes or until biscuits are browned."
 - "Ready to serve and ENJOY!"
@@ -79,7 +79,7 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 ##### Instructions to make Chicken Pot Pie Casserole (Easy):
 
 1. I grilled the chicken a bit with the onions and garlic and some salt and pepper in a large saucepan on medium/low on the stove.
-1. Drain and mix in the vegetables with the chicken. Add soup and milk/cream. Heat to bubbling on medium. Add herbs and season to taste with salt &amp; pepper. Keep on low setting.
+1. Drain and mix in the vegetables with the chicken. Add soup and milk/cream. Heat to bubbling on medium. Add herbs and season to taste with salt & pepper. Keep on low setting.
 1. Follow instructions for temperature on biscuits can. Bake them half the time it says and remove them.
 1. Pour chicken/vegetable mixture into large casserole that has been sprayed with cooking spray. Place biscuits cooked side down on top and put back into oven at 350° for 10 minutes or until biscuits are browned.
 1. Ready to serve and ENJOY!

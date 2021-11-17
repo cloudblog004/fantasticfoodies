@@ -23,7 +23,7 @@ recipeingredient:
 - "to taste Salt and pepper"
 recipeinstructions:
 - "Cut 5 chicken breasts in half"
-- "Mix breadcrumbs, parsley, garlic powder &amp; garlic salt in one bowl"
+- "Mix breadcrumbs, parsley, garlic powder & garlic salt in one bowl"
 - "Mix and whisk vinaigrette and eggs in one bowl"
 - "Cut each chicken breast in half"
 - "Dip each chicken breast in egg mix then into dry mix"
@@ -70,7 +70,7 @@ To get started with this recipe, we have to prepare a few components. You can co
 1. Make ready 1.5 tsp dry parsley flakes
 1. Take 1.5 tsp garlic powder
 1. Prepare 3/4 tsp garlic salt
-1. Take 2 Tbsp olive oil vinaigrette &#34;Italian&#34;
+1. Take 2 Tbsp olive oil vinaigrette *Italian*
 1. Take 4 large eggs
 1. Take 4-5 chicken breasts
 1. Prepare to taste Salt and pepper
@@ -83,7 +83,7 @@ In this chicken and spinach bake recipe, chicken breast halves are seasoned and 
 ##### Steps to make Baked chicken breast with vinaigrette:
 
 1. Cut 5 chicken breasts in half
-1. Mix breadcrumbs, parsley, garlic powder &amp; garlic salt in one bowl
+1. Mix breadcrumbs, parsley, garlic powder & garlic salt in one bowl
 1. Mix and whisk vinaigrette and eggs in one bowl
 1. Cut each chicken breast in half
 1. Dip each chicken breast in egg mix then into dry mix

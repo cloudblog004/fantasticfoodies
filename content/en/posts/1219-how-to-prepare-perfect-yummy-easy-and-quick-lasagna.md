@@ -34,7 +34,7 @@ recipeinstructions:
 - "For Bolognaise Sauce : Dice the Onion and carrots, chop the garlic."
 - "Sprinkle olive oil on the pan. Sear onion and garlic until translucent. Add on the meat. Let on pan for 5 mins."
 - "Add the tiny diced carrots. Saute until begin to feel tender."
-- "Add the whole jar / can of the bolognaise sauce. Can use tomato pasta sauce as alternatives. Add salt &amp; pepper. Simmer for 20 mins. Turn off the heat."
+- "Add the whole jar / can of the bolognaise sauce. Can use tomato pasta sauce as alternatives. Add salt & pepper. Simmer for 20 mins. Turn off the heat."
 - "For Bechamel Sauce : Melt the butter in another pan or medium pot."
 - "Add the flour, on low heat, stir constantly. Dont let it clump/girdle."
 - "Add milk gradually."
@@ -103,7 +103,7 @@ It was quick and surprisingly flavorful. I used lean Italian seasoned ground tur
 1. For Bolognaise Sauce : Dice the Onion and carrots, chop the garlic.
 1. Sprinkle olive oil on the pan. Sear onion and garlic until translucent. Add on the meat. Let on pan for 5 mins.
 1. Add the tiny diced carrots. Saute until begin to feel tender.
-1. Add the whole jar / can of the bolognaise sauce. Can use tomato pasta sauce as alternatives. Add salt &amp; pepper. Simmer for 20 mins. Turn off the heat.
+1. Add the whole jar / can of the bolognaise sauce. Can use tomato pasta sauce as alternatives. Add salt & pepper. Simmer for 20 mins. Turn off the heat.
 1. For Bechamel Sauce : Melt the butter in another pan or medium pot.
 1. Add the flour, on low heat, stir constantly. Dont let it clump/girdle.
 1. Add milk gradually.

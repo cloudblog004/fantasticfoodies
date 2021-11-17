@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Prepare Favorite Heidi&amp;#39;s Sensational Motherload Lasagne"
-title: "Simple Way to Prepare Favorite Heidi&amp;#39;s Sensational Motherload Lasagne"
+description: "Simple Way to Prepare Favorite Heidi's Sensational Motherload Lasagne"
+title: "Simple Way to Prepare Favorite Heidi's Sensational Motherload Lasagne"
 slug: 720-simple-way-to-prepare-favorite-heidi-and-39-s-sensational-motherload-lasagne
 date: 2022-04-24T10:34:47.794Z
 image: https://img-global.cpcdn.com/recipes/5769622190030848/680x482cq70/heidis-sensational-motherload-lasagne-recipe-main-photo.jpg

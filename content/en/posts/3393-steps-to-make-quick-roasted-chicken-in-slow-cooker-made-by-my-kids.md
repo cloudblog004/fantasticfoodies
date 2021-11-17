@@ -59,7 +59,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 ##### The ingredients needed to make Roasted Chicken in Slow Cooker (Made by My Kids!):
 
 1. Prepare 500 gr chicken
-1. Take 2 tbsp oil (I used fermented garlic &amp; candlenut oil)
+1. Take 2 tbsp oil (I used fermented garlic & candlenut oil)
 1. Prepare 1 tsp salt
 1. Make ready 1/2 tsp ground black pepper
 1. Prepare 1 tsp smoked paprika powder

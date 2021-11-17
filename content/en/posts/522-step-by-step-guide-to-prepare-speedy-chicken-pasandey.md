@@ -26,11 +26,11 @@ recipeingredient:
 - "Pinch baking soda"
 - "1 tsp lemon juice"
 recipeinstructions:
-- "Blend yogurt,green chillies, &amp; onion to make smooth paste.."
+- "Blend yogurt,green chillies, & onion to make smooth paste.."
 - "Marinate chicken fillets in this paste for 15 min.."
-- "Add ginger garlic, cumin, coriander, salt&amp; black pepper,baking soda, lemon juice in marinated chicken."
-- "In pan add oil pour chicken with all masala &amp; cook on high flame for 5 min then cover it with lid &amp; cook on medium flame for15 min..then cook on high flame in 2 min oil separates.."
-- "Ready to eat garnish it with fresh coriander &amp; green chillies.."
+- "Add ginger garlic, cumin, coriander, salt& black pepper,baking soda, lemon juice in marinated chicken."
+- "In pan add oil pour chicken with all masala & cook on high flame for 5 min then cover it with lid & cook on medium flame for15 min..then cook on high flame in 2 min oil separates.."
+- "Ready to eat garnish it with fresh coriander & green chillies.."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -84,11 +84,11 @@ To get started with this particular recipe, we have to prepare a few ingredients
 
 ##### Steps to make Chicken Pasandey:
 
-1. Blend yogurt,green chillies, &amp; onion to make smooth paste..
+1. Blend yogurt,green chillies, & onion to make smooth paste..
 1. Marinate chicken fillets in this paste for 15 min..
-1. Add ginger garlic, cumin, coriander, salt&amp; black pepper,baking soda, lemon juice in marinated chicken.
-1. In pan add oil pour chicken with all masala &amp; cook on high flame for 5 min then cover it with lid &amp; cook on medium flame for15 min..then cook on high flame in 2 min oil separates..
-1. Ready to eat garnish it with fresh coriander &amp; green chillies..
+1. Add ginger garlic, cumin, coriander, salt& black pepper,baking soda, lemon juice in marinated chicken.
+1. In pan add oil pour chicken with all masala & cook on high flame for 5 min then cover it with lid & cook on medium flame for15 min..then cook on high flame in 2 min oil separates..
+1. Ready to eat garnish it with fresh coriander & green chillies..
 1. Ready to serve and ENJOY!
 
 

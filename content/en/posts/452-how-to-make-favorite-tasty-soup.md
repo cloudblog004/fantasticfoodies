@@ -66,7 +66,7 @@ To begin with this recipe, we must prepare a few ingredients. You can cook tasty
 1. Get cube Chicken stock
 1. Take 1 Little basil
 1. Take  Oregano
-1. Prepare  Salt &amp; Pepper
+1. Prepare  Salt & Pepper
 1. Get  Water
 
 
@@ -81,6 +81,6 @@ Soup is a primarily liquid food, generally served warm or hot (but may be cool o
 1. Then leave to cook (if your using the pan then blend first then heat) and serve with some bread
 1. Ready to serve and ENJOY!
 
-See more ideas about homemade soup, soup recipes, soup. Download vector images of Tasty soup on Depositphotos Vector stock with millions of royalty-free illustrations at affordable prices. Tasty soup Stock Vectors, Royalty-free Tasty soup Illustrations. Ingredients Tasty Vegetable Soup Illustrations &amp; Vectors. She gave me some coffee and a cake. 
+See more ideas about homemade soup, soup recipes, soup. Download vector images of Tasty soup on Depositphotos Vector stock with millions of royalty-free illustrations at affordable prices. Tasty soup Stock Vectors, Royalty-free Tasty soup Illustrations. Ingredients Tasty Vegetable Soup Illustrations & Vectors. She gave me some coffee and a cake. 
 
 So that is going to wrap this up for this exceptional food tasty soup recipe. Thank you very much for your time. I am sure you can make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

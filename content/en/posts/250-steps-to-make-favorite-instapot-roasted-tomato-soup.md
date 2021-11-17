@@ -27,7 +27,7 @@ recipeingredient:
 - "  Salt sugar  ground black pepper"
 - "   cup 125ml heavy cream do not add if canning"
 recipeinstructions:
-- "Preheat oven to 400°F. Layer tomatoes (cut side up) in a baking tray. Drizzle with olive oil and season with salt &amp; ground black pepper. If your tomatoes are not in season, sprinkle a little sugar on the tomatoes to help them caramelize better. Place baking tray in the oven’s middle rack. Depending on your oven and tomatoes, it will take 45 - 65 minutes."
+- "Preheat oven to 400°F. Layer tomatoes (cut side up) in a baking tray. Drizzle with olive oil and season with salt & ground black pepper. If your tomatoes are not in season, sprinkle a little sugar on the tomatoes to help them caramelize better. Place baking tray in the oven’s middle rack. Depending on your oven and tomatoes, it will take 45 - 65 minutes."
 - "Heat up your pressure cooker over medium high heat (Instant Pot: press Sauté button, then Adjust button to Sauté More function). Ensure your pot is as hot as it can be (Instant Pot: wait until indicator says HOT)."
 - "Sauté onions in 1 tbsp unsalted butter for roughly 2 – 3 minutes until soften. Add in garlic and season with a pinch of kosher salt and ground black pepper if you like. Sauté for 1 minute until fragrant. Add in chopped carrots and saute for another minute."
 - "Pour ~ ½ cup (125 ml) unsalted chicken stock. Scrub all the brown bits off bottom of the pot with a wooden spoon. Keep the brown bits as they are very flavorful."
@@ -80,7 +80,7 @@ To get started with this recipe, we have to prepare a few components. You can co
 1. Get  ▢ 2 tablespoons (30g) jasmine rice
 1. Get  ▢ A pinch dried basil
 1. Take  ▢ A pinch dried thyme
-1. Make ready  ▢ Salt, sugar &amp; ground black pepper
+1. Make ready  ▢ Salt, sugar & ground black pepper
 1. Make ready  ▢ ½ cup (125ml) heavy cream (do not add if canning)
 
 
@@ -90,7 +90,7 @@ To get started with this recipe, we have to prepare a few components. You can co
 
 ##### Instructions to make Instapot Roasted Tomato Soup:
 
-1. Preheat oven to 400°F. Layer tomatoes (cut side up) in a baking tray. Drizzle with olive oil and season with salt &amp; ground black pepper. If your tomatoes are not in season, sprinkle a little sugar on the tomatoes to help them caramelize better. Place baking tray in the oven’s middle rack. Depending on your oven and tomatoes, it will take 45 - 65 minutes.
+1. Preheat oven to 400°F. Layer tomatoes (cut side up) in a baking tray. Drizzle with olive oil and season with salt & ground black pepper. If your tomatoes are not in season, sprinkle a little sugar on the tomatoes to help them caramelize better. Place baking tray in the oven’s middle rack. Depending on your oven and tomatoes, it will take 45 - 65 minutes.
 1. Heat up your pressure cooker over medium high heat (Instant Pot: press Sauté button, then Adjust button to Sauté More function). Ensure your pot is as hot as it can be (Instant Pot: wait until indicator says HOT).
 1. Sauté onions in 1 tbsp unsalted butter for roughly 2 – 3 minutes until soften. Add in garlic and season with a pinch of kosher salt and ground black pepper if you like. Sauté for 1 minute until fragrant. Add in chopped carrots and saute for another minute.
 1. Pour ~ ½ cup (125 ml) unsalted chicken stock. Scrub all the brown bits off bottom of the pot with a wooden spoon. Keep the brown bits as they are very flavorful.

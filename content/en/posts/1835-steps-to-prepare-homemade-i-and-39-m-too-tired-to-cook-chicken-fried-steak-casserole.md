@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Homemade I&amp;#39;m too tired to cook Chicken Fried Steak Casserole"
-title: "Steps to Prepare Homemade I&amp;#39;m too tired to cook Chicken Fried Steak Casserole"
+description: "Steps to Prepare Homemade I'm too tired to cook Chicken Fried Steak Casserole"
+title: "Steps to Prepare Homemade I'm too tired to cook Chicken Fried Steak Casserole"
 slug: 1835-steps-to-prepare-homemade-i-and-39-m-too-tired-to-cook-chicken-fried-steak-casserole
 date: 2022-03-26T10:23:17.946Z
 image: https://img-global.cpcdn.com/recipes/6577759166922752/680x482cq70/im-too-tired-to-cook-chicken-fried-steak-casserole-recipe-main-photo.jpg

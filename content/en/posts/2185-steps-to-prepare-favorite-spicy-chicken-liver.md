@@ -69,7 +69,7 @@ To get started with this recipe, we must prepare a few components. You can have 
 1. Take 1 tablespoon oil
 
 
-How To Cook Chicken. spicy chicken livers - Messy Benches. Sweet &amp; Spicy Chicken Liver/Tori No Amakara Ni! -Clean chicken liver under running cold water. Downtime is a celebration of comforting and delicious home cooking by Nadine Levy-Redzepi, one of the people behind Noma, the acclaimed restaurant in Copenhagen opened by her husband René. First, you need to grab a pan and get it nice and hot over medium high heat. 
+How To Cook Chicken. spicy chicken livers - Messy Benches. Sweet & Spicy Chicken Liver/Tori No Amakara Ni! -Clean chicken liver under running cold water. Downtime is a celebration of comforting and delicious home cooking by Nadine Levy-Redzepi, one of the people behind Noma, the acclaimed restaurant in Copenhagen opened by her husband René. First, you need to grab a pan and get it nice and hot over medium high heat. 
 
 <!--inarticleads2-->
 
@@ -78,6 +78,6 @@ How To Cook Chicken. spicy chicken livers - Messy Benches. Sweet &amp; Spicy Chi
 1. Brown the onions put the tomatoe add the spices and stir for a minute put the liver and leave until they change colour.put the fresh coriander put half a glass of water and cook for 15 minutes or until the water is gone.serve with rice.😋
 1. Ready to serve and ENJOY!
 
-Downtime is a celebration of comforting and delicious home cooking by Nadine Levy-Redzepi, one of the people behind Noma, the acclaimed restaurant in Copenhagen opened by her husband René. First, you need to grab a pan and get it nice and hot over medium high heat. Pour some oil and throw in the garlic and. Sweet &amp; Spicy Chicken Liver/Tori No Amakara Ni! Chicken liver, rinse, drain and scrape the meaty part gently away from the sinew. 
+Downtime is a celebration of comforting and delicious home cooking by Nadine Levy-Redzepi, one of the people behind Noma, the acclaimed restaurant in Copenhagen opened by her husband René. First, you need to grab a pan and get it nice and hot over medium high heat. Pour some oil and throw in the garlic and. Sweet & Spicy Chicken Liver/Tori No Amakara Ni! Chicken liver, rinse, drain and scrape the meaty part gently away from the sinew. 
 
 So that's going to wrap it up with this exceptional food spicy chicken liver recipe. Thanks so much for your time. I'm sure that you will make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

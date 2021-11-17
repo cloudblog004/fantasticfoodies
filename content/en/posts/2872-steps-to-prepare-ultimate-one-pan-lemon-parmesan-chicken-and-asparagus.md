@@ -27,9 +27,9 @@ recipeingredient:
 recipeinstructions:
 - "Preheat oven to 400"
 - "Line baking sheet with parchment"
-- "Place flour and S&amp;P in one bowl"
+- "Place flour and S&P in one bowl"
 - "Put 6 Tbs melted butter, 2 cloves garlic, zest and juice of 1 lemon in second bowl"
-- "In a third bowl, combine Panko, Parmesan, S&amp;P, garlic powder and parsley. Blend"
+- "In a third bowl, combine Panko, Parmesan, S&P, garlic powder and parsley. Blend"
 - "Dredge chicken on each side in flour, then butter mixture, and into Panko mixture"
 - "Place on baking sheet"
 - "Repeat until each piece is coated"
@@ -80,7 +80,7 @@ To get started with this particular recipe, we have to prepare a few ingredients
 1. Make ready 1 stick (8 Tbs) unsalted melted butter, divided
 1. Make ready 1 cup Panko bread crumbs
 1. Take 1 cup grated Parmesan cheese
-1. Prepare  S&amp;P
+1. Prepare  S&P
 1. Get 2 tsp garlic powder
 1. Make ready 2 Tbs parsley
 1. Prepare 4 cloves garlic, minced and divided
@@ -96,9 +96,9 @@ To get started with this particular recipe, we have to prepare a few ingredients
 
 1. Preheat oven to 400
 1. Line baking sheet with parchment
-1. Place flour and S&amp;P in one bowl
+1. Place flour and S&P in one bowl
 1. Put 6 Tbs melted butter, 2 cloves garlic, zest and juice of 1 lemon in second bowl
-1. In a third bowl, combine Panko, Parmesan, S&amp;P, garlic powder and parsley. Blend
+1. In a third bowl, combine Panko, Parmesan, S&P, garlic powder and parsley. Blend
 1. Dredge chicken on each side in flour, then butter mixture, and into Panko mixture
 1. Place on baking sheet
 1. Repeat until each piece is coated

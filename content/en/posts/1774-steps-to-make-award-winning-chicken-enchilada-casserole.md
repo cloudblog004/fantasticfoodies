@@ -26,7 +26,7 @@ recipeinstructions:
 - "Boil chicken add garlic salt for flavor shredd when done boiling"
 - "Pre heat oven at 350"
 - "In large baking dish smother with one layer off green sauce"
-- "Place tortillas side to side add green sauce &amp; chicken"
+- "Place tortillas side to side add green sauce & chicken"
 - "Add cheese repeat with 2more layers"
 - "Bake for about 15-20 min or until cheese is bubbly"
 - "Add some Spanish rice on the side"
@@ -85,7 +85,7 @@ Ingredients for Chicken Enchilada Casserole Cooked chicken breasts - canned chic
 1. Boil chicken add garlic salt for flavor shredd when done boiling
 1. Pre heat oven at 350
 1. In large baking dish smother with one layer off green sauce
-1. Place tortillas side to side add green sauce &amp; chicken
+1. Place tortillas side to side add green sauce & chicken
 1. Add cheese repeat with 2more layers
 1. Bake for about 15-20 min or until cheese is bubbly
 1. Add some Spanish rice on the side

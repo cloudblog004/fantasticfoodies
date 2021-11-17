@@ -92,6 +92,6 @@ Boil, peel and mash potatoes with the help of masher. Add salt, green coriander 
 1. Serve hot with katchup or chilli garlic sauce.
 1. Ready to serve and ENJOY!
 
-For assembling: To make chicken cutlets, make a ball out of the Aap filling main cheese, matar ya phir aur koi sabzi bhi shamil kar sakte hain. Spicy cutlet keliye, spices ki miqdar barha sakte hain. How to make Cheesy Potato &amp; Chicken Cutlets at home. Subscribe, likes &amp; share will be a great support to create good contents. Follow us on : FB - https How to make Cheesy Potato &amp; Chicken Cutlets at home. 
+For assembling: To make chicken cutlets, make a ball out of the Aap filling main cheese, matar ya phir aur koi sabzi bhi shamil kar sakte hain. Spicy cutlet keliye, spices ki miqdar barha sakte hain. How to make Cheesy Potato & Chicken Cutlets at home. Subscribe, likes & share will be a great support to create good contents. Follow us on : FB - https How to make Cheesy Potato & Chicken Cutlets at home. 
 
 So that's going to wrap this up for this special food cheese filled chicken potato cutlets recipe. Thank you very much for your time. I am confident you will make this at home. There is gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

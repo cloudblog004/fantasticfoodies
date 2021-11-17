@@ -30,7 +30,7 @@ recipeinstructions:
 - "Set a pot over medium heat. Saute garlic, onions and ginger for about 1 minute. Then add the chicken, cook it for about 5 mins."
 - "Add the curry powder, bay leaves, fish sauce, water and coconut milk. Mix well. Cook for 1 hour. Add a little water if it gets too dry."
 - "Add the potatoes, carrots and bell pepper. Mix well, cook for another 5 mins."
-- "Add the butter, salt &amp; pepper to taste plus the cayenne pepper (optional). Simmer for 5 mins."
+- "Add the butter, salt & pepper to taste plus the cayenne pepper (optional). Simmer for 5 mins."
 - "Serve with steamed rice 🍚🍲 Enjoy! 🙂"
 - "Ready to serve and ENJOY!"
 categories:
@@ -70,13 +70,13 @@ To get started with this recipe, we have to first prepare a few components. You 
 1. Prepare 2 cups coconut milk
 1. Take 1 cup water
 1. Make ready 2 tbsp curry powder
-1. Take  Minced garlic, onion &amp; ginger
+1. Take  Minced garlic, onion & ginger
 1. Get 2 pcs bay leaves
 1. Get 2 tbsp cooking oil
 1. Take 1 tsp cayenne pepper (optional)
 1. Get 1 tbsp fish sauce
 1. Make ready 1 tbsp butter
-1. Prepare  Salt &amp; pepper
+1. Prepare  Salt & pepper
 1. Make ready  (You can adjust ingredients according to your liking)
 
 
@@ -89,7 +89,7 @@ To get started with this recipe, we have to first prepare a few components. You 
 1. Set a pot over medium heat. Saute garlic, onions and ginger for about 1 minute. Then add the chicken, cook it for about 5 mins.
 1. Add the curry powder, bay leaves, fish sauce, water and coconut milk. Mix well. Cook for 1 hour. Add a little water if it gets too dry.
 1. Add the potatoes, carrots and bell pepper. Mix well, cook for another 5 mins.
-1. Add the butter, salt &amp; pepper to taste plus the cayenne pepper (optional). Simmer for 5 mins.
+1. Add the butter, salt & pepper to taste plus the cayenne pepper (optional). Simmer for 5 mins.
 1. Serve with steamed rice 🍚🍲 Enjoy! 🙂
 1. Ready to serve and ENJOY!
 

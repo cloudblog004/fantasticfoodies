@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Prepare Perfect Healthy Okra &amp;amp; Carrot Fried Chicken Tender Cutlets"
-title: "Easiest Way to Prepare Perfect Healthy Okra &amp;amp; Carrot Fried Chicken Tender Cutlets"
+description: "Easiest Way to Prepare Perfect Healthy Okra & Carrot Fried Chicken Tender Cutlets"
+title: "Easiest Way to Prepare Perfect Healthy Okra & Carrot Fried Chicken Tender Cutlets"
 slug: 1413-easiest-way-to-prepare-perfect-healthy-okra-and-amp-carrot-fried-chicken-tender-cutlets
 date: 2022-06-01T13:32:34.473Z
 image: https://img-global.cpcdn.com/recipes/6557481502244864/680x482cq70/healthy-okra-carrot-fried-chicken-tender-cutlets-recipe-main-photo.jpg
@@ -50,20 +50,20 @@ recipecategory: Lunch
 ---
 
 
-![Healthy Okra &amp; Carrot Fried Chicken Tender Cutlets](https://img-global.cpcdn.com/recipes/6557481502244864/680x482cq70/healthy-okra-carrot-fried-chicken-tender-cutlets-recipe-main-photo.jpg)
+![Healthy Okra & Carrot Fried Chicken Tender Cutlets](https://img-global.cpcdn.com/recipes/6557481502244864/680x482cq70/healthy-okra-carrot-fried-chicken-tender-cutlets-recipe-main-photo.jpg)
 
-Hello everybody, it's Drew, welcome to our recipe site. Today, I will show you a way to make a special dish, healthy okra &amp; carrot fried chicken tender cutlets. One of my favorites food recipes. This time, I will make it a bit unique. This is gonna smell and look delicious.
+Hello everybody, it's Drew, welcome to our recipe site. Today, I will show you a way to make a special dish, healthy okra & carrot fried chicken tender cutlets. One of my favorites food recipes. This time, I will make it a bit unique. This is gonna smell and look delicious.
 
-Healthy Okra &amp; Carrot Fried Chicken Tender Cutlets is one of the most popular of current trending meals in the world. It is easy, it's quick, it tastes delicious. It's enjoyed by millions daily. They're fine and they look fantastic. Healthy Okra &amp; Carrot Fried Chicken Tender Cutlets is something that I've loved my whole life.
-
-
+Healthy Okra & Carrot Fried Chicken Tender Cutlets is one of the most popular of current trending meals in the world. It is easy, it's quick, it tastes delicious. It's enjoyed by millions daily. They're fine and they look fantastic. Healthy Okra & Carrot Fried Chicken Tender Cutlets is something that I've loved my whole life.
 
 
-To begin with this particular recipe, we must first prepare a few components. You can cook healthy okra &amp; carrot fried chicken tender cutlets using 11 ingredients and 6 steps. Here is how you can achieve it.
+
+
+To begin with this particular recipe, we must first prepare a few components. You can cook healthy okra & carrot fried chicken tender cutlets using 11 ingredients and 6 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Healthy Okra &amp; Carrot Fried Chicken Tender Cutlets:
+##### The ingredients needed to make Healthy Okra & Carrot Fried Chicken Tender Cutlets:
 
 1. Get 4 Chicken tenders
 1. Prepare 4 Okra
@@ -82,7 +82,7 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 
 <!--inarticleads2-->
 
-##### Steps to make Healthy Okra &amp; Carrot Fried Chicken Tender Cutlets:
+##### Steps to make Healthy Okra & Carrot Fried Chicken Tender Cutlets:
 
 1. Remove any sinews from the tenders, wrap, and use a wooden spoon to pound, thinning them out. Lightly season with shio-koji and pepper.
 1. Cut the carrot into thick matchsticks. Boil the okra and carrot until just slightly tender. If microwaving, 2 minutes at 700 W.
@@ -94,4 +94,4 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 
 
 
-So that's going to wrap it up for this special food healthy okra &amp; carrot fried chicken tender cutlets recipe. Thanks so much for reading. I am confident you can make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+So that's going to wrap it up for this special food healthy okra & carrot fried chicken tender cutlets recipe. Thanks so much for reading. I am confident you can make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

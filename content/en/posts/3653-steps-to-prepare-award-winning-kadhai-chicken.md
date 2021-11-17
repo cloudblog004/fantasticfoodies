@@ -60,7 +60,7 @@ recipecategory: Dessert
 
 Hello everybody, I hope you're having an incredible day today. Today, I will show you a way to prepare a special dish, kadhai chicken. One of my favorites. For mine, I'm gonna make it a bit tasty. This will be really delicious.
 
-Kadai chicken recipe - Also called as chicken karahi - Learn to make the best delicious kadai Kadai chicken is a delicious, spicy &amp; flavorful dish made with chicken, onions, tomatoes, ginger, garlic. Kadhai Chicken Recipe Hindi Indian Zaika. Punjabi Style KADHAI CHICKEN Recipe : Rashi Ki Rasoi Style ! Kadhai Chicken Recipe, Sabji, How To Make Kadhai Chicken Recipe.
+Kadai chicken recipe - Also called as chicken karahi - Learn to make the best delicious kadai Kadai chicken is a delicious, spicy & flavorful dish made with chicken, onions, tomatoes, ginger, garlic. Kadhai Chicken Recipe Hindi Indian Zaika. Punjabi Style KADHAI CHICKEN Recipe : Rashi Ki Rasoi Style ! Kadhai Chicken Recipe, Sabji, How To Make Kadhai Chicken Recipe.
 
 Kadhai chicken is one of the most favored of recent trending meals on earth. It is appreciated by millions every day. It's easy, it's fast, it tastes yummy. They're nice and they look fantastic. Kadhai chicken is something which I've loved my entire life.
 

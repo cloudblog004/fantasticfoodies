@@ -37,8 +37,8 @@ recipeingredient:
 recipeinstructions:
 - "sautee garlic, onions, and green chillies in butter"
 - "heat cream, add 2 tbl spoons butter and flower add cream"
-- "add bell peppers &amp; mushrooms"
-- "add parm cheese &amp; tomatoes"
+- "add bell peppers & mushrooms"
+- "add parm cheese & tomatoes"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -64,7 +64,7 @@ Hello everybody, it's me, Dave, welcome to our recipe site. Today, I will show y
 
 garlic spinich white rice grilled chicken w/ white wine cream sauce is one of the most popular of recent trending foods on earth. It's enjoyed by millions daily. It is simple, it's quick, it tastes delicious. garlic spinich white rice grilled chicken w/ white wine cream sauce is something which I have loved my whole life. They are nice and they look wonderful.
 
-This Creamy Chicken Florentine recipe has tender pan-fried chicken coated in an amazing garlic spinach white wine cream sauce! The &#34;Florentine&#34; style in cooking generally indicates that the dish has spinach in it. It&#39;s reminiscent of how certain recipes are prepared. You must try these Chili &amp; Garlic Shrimp with smoked paprika.
+This Creamy Chicken Florentine recipe has tender pan-fried chicken coated in an amazing garlic spinach white wine cream sauce! The *Florentine* style in cooking generally indicates that the dish has spinach in it. It&#39;s reminiscent of how certain recipes are prepared. You must try these Chili & Garlic Shrimp with smoked paprika.
 
 
 To begin with this recipe, we have to prepare a few components. You can cook garlic spinich white rice grilled chicken w/ white wine cream sauce using 21 ingredients and 4 steps. Here is how you can achieve it.
@@ -96,7 +96,7 @@ To begin with this recipe, we have to prepare a few components. You can cook gar
 1. Take 3 large chicken brests
 
 
-Pasta in red sauce and pasta in white sauce. Then there could be the other accomplices like veggies and meats. Hence the &#34;white sauce&#34; in the title of this recipe. Cheese ravioli in lightened up version of traditional cream sauce with added nutrition from spinach and a big flavor boost from fresh herbs. 
+Pasta in red sauce and pasta in white sauce. Then there could be the other accomplices like veggies and meats. Hence the *white sauce* in the title of this recipe. Cheese ravioli in lightened up version of traditional cream sauce with added nutrition from spinach and a big flavor boost from fresh herbs. 
 
 <!--inarticleads2-->
 
@@ -104,10 +104,10 @@ Pasta in red sauce and pasta in white sauce. Then there could be the other accom
 
 1. sautee garlic, onions, and green chillies in butter
 1. heat cream, add 2 tbl spoons butter and flower add cream
-1. add bell peppers &amp; mushrooms
-1. add parm cheese &amp; tomatoes
+1. add bell peppers & mushrooms
+1. add parm cheese & tomatoes
 1. Ready to serve and ENJOY!
 
-Hence the &#34;white sauce&#34; in the title of this recipe. Cheese ravioli in lightened up version of traditional cream sauce with added nutrition from spinach and a big flavor boost from fresh herbs. It&#39;s perfect for a quick weeknight meal with a sophisticated taste! Garlic and parsley are the simple seasonings in the mushroom sauce. While it can seem rich, the wine and chicken stock thin it out perfectly, and you can Be sure to choose a dry white wine (chardonnay is a good choice) to avoid adding too much sweetness to the sauce. 
+Hence the *white sauce* in the title of this recipe. Cheese ravioli in lightened up version of traditional cream sauce with added nutrition from spinach and a big flavor boost from fresh herbs. It&#39;s perfect for a quick weeknight meal with a sophisticated taste! Garlic and parsley are the simple seasonings in the mushroom sauce. While it can seem rich, the wine and chicken stock thin it out perfectly, and you can Be sure to choose a dry white wine (chardonnay is a good choice) to avoid adding too much sweetness to the sauce. 
 
 So that's going to wrap it up for this special food garlic spinich white rice grilled chicken w/ white wine cream sauce recipe. Thanks so much for your time. I'm sure that you will make this at home. There's gonna be more interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

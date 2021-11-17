@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Perfect Slow Cooker General Tso&amp;#39;s Chicken"
-title: "Recipe of Perfect Slow Cooker General Tso&amp;#39;s Chicken"
+description: "Recipe of Perfect Slow Cooker General Tso's Chicken"
+title: "Recipe of Perfect Slow Cooker General Tso's Chicken"
 slug: 108-recipe-of-perfect-slow-cooker-general-tso-and-39-s-chicken
 date: 2021-11-10T05:22:05.928Z
 image: https://img-global.cpcdn.com/recipes/21e0ef44fdefdb99/680x482cq70/slow-cooker-general-tsos-chicken-recipe-main-photo.jpg

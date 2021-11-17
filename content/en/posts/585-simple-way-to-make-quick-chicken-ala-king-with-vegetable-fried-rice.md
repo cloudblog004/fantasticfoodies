@@ -68,7 +68,7 @@ recipecategory: Dessert
 
 Hey everyone, I hope you're having an incredible day today. Today, I will show you a way to prepare a distinctive dish, chicken ala king with vegetable  fried rice. One of my favorites. This time, I will make it a bit unique. This will be really delicious.
 
-Ala-king spoon over rice or mashed potato or on the side but enjoy! See you on our next video please leave comments thumbs up and subscribe my channel hit the bell to be notified Creamy chicken ala king Roast Chicken &amp; Creamy Garlic Mushroom Burger. Leftover (or rotisserie) chicken in a creamy sauce with mushrooms and a hint of sherry.
+Ala-king spoon over rice or mashed potato or on the side but enjoy! See you on our next video please leave comments thumbs up and subscribe my channel hit the bell to be notified Creamy chicken ala king Roast Chicken & Creamy Garlic Mushroom Burger. Leftover (or rotisserie) chicken in a creamy sauce with mushrooms and a hint of sherry.
 
 Chicken ala king with vegetable  fried rice is one of the most popular of current trending foods in the world. It's enjoyed by millions daily. It's simple, it's fast, it tastes yummy. They're nice and they look fantastic. Chicken ala king with vegetable  fried rice is something which I've loved my entire life.
 

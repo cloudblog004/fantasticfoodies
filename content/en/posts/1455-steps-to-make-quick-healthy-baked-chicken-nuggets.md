@@ -23,7 +23,7 @@ recipeinstructions:
 - "Preheat oven to 425°F."
 - "spray baking sheet w/ olive oil spray"
 - "put the olive oil in one bowl and the breadcrumbs, Pablo, and parmesan cheese in another"
-- "Season Chicken w/ salt &amp; pepper, then put in the bowl w/ olive oil and mix well so the olive oil evenly coats all of the chicken"
+- "Season Chicken w/ salt & pepper, then put in the bowl w/ olive oil and mix well so the olive oil evenly coats all of the chicken"
 - "put chicken on baking sheet for 8-10 min. turn over then cook 4-5 min more."
 - "Ready to serve and ENJOY!"
 categories:
@@ -60,7 +60,7 @@ To begin with this recipe, we have to prepare a few components. You can have hea
 ##### The ingredients needed to make Healthy baked chicken nuggets:
 
 1. Make ready 16 oz skinless chicken breast
-1. Get pinch salt &amp; pepper
+1. Get pinch salt & pepper
 1. Prepare 2 tsp olive oil
 1. Prepare 6 tbsp whole wheat italian seasoned breadcrumbs
 1. Prepare 2 tbsp panko
@@ -76,7 +76,7 @@ Take a bite of these breaded and baked healthier homemade chicken nuggets. Besid
 1. Preheat oven to 425°F.
 1. spray baking sheet w/ olive oil spray
 1. put the olive oil in one bowl and the breadcrumbs, Pablo, and parmesan cheese in another
-1. Season Chicken w/ salt &amp; pepper, then put in the bowl w/ olive oil and mix well so the olive oil evenly coats all of the chicken
+1. Season Chicken w/ salt & pepper, then put in the bowl w/ olive oil and mix well so the olive oil evenly coats all of the chicken
 1. put chicken on baking sheet for 8-10 min. turn over then cook 4-5 min more.
 1. Ready to serve and ENJOY!
 

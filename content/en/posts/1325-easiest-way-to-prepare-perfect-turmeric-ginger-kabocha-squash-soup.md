@@ -79,8 +79,8 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 1. Take 1 large shallot or med onion, chopped into lg chunks
 1. Get 32 oz (1 box) Chicken or vegetable stock
 1. Prepare 2 Tblsp cinnamon
-1. Make ready 1 Tblsp Turmeric powder (+ 2&#34; section grated turmeric root)
-1. Get  Fresh ginger (a big knob about 2&#34; long), grated
+1. Make ready 1 Tblsp Turmeric powder (+ 2* section grated turmeric root)
+1. Get  Fresh ginger (a big knob about 2* long), grated
 1. Prepare 6 pcs dried young ginger (optional)
 1. Get 1/2 tsp freshly ground black pepper
 1. Make ready  Coarse salt

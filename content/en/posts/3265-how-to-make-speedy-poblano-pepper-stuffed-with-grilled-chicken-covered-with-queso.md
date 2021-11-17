@@ -53,7 +53,7 @@ Hey everyone, hope you are having an amazing day today. Today, I will show you a
 
 Poblano Pepper Stuffed with Grilled Chicken Covered with Queso is one of the most popular of current trending meals in the world. It's simple, it's quick, it tastes delicious. It's enjoyed by millions every day. Poblano Pepper Stuffed with Grilled Chicken Covered with Queso is something which I've loved my whole life. They are fine and they look wonderful.
 
-See grilled chicken recipe (see recipe). Bake in oven till bacon is done. Plate stuffed pepper and cover with Queso and top with diced chicken! Beef &amp; Rice Stuffed Poblano Peppers.
+See grilled chicken recipe (see recipe). Bake in oven till bacon is done. Plate stuffed pepper and cover with Queso and top with diced chicken! Beef & Rice Stuffed Poblano Peppers.
 
 
 To begin with this recipe, we must prepare a few components. You can have poblano pepper stuffed with grilled chicken covered with queso using 9 ingredients and 5 steps. Here is how you can achieve it.

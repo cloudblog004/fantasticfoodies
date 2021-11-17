@@ -54,7 +54,7 @@ Hey everyone, I hope you are having an incredible day today. Today, I will show 
 
 Easy chicken dumplings is one of the most favored of recent trending meals in the world. It is enjoyed by millions daily. It's simple, it is fast, it tastes delicious. Easy chicken dumplings is something that I've loved my whole life. They're nice and they look wonderful.
 
-This chicken and dumplings soup is super easy to make thanks to Pillsbury™ biscuit dough, but you can make it even easier! The recipe calls for cooked chicken; instead of cooking the chicken. This old-fashioned Chicken and Dumplings recipe makes creamy soup loaded with big fluffy dumplings made from scratch. Easy Chicken &amp; Dumplings Recipe - Paula has lots of delicious easy chicken recipes, and her Easy Chicken &amp; Dumplings recipe is no exception—it&#39;s the.
+This chicken and dumplings soup is super easy to make thanks to Pillsbury™ biscuit dough, but you can make it even easier! The recipe calls for cooked chicken; instead of cooking the chicken. This old-fashioned Chicken and Dumplings recipe makes creamy soup loaded with big fluffy dumplings made from scratch. Easy Chicken & Dumplings Recipe - Paula has lots of delicious easy chicken recipes, and her Easy Chicken & Dumplings recipe is no exception—it&#39;s the.
 
 
 To get started with this recipe, we have to prepare a few ingredients. You can have easy chicken dumplings using 8 ingredients and 7 steps. Here is how you cook that.

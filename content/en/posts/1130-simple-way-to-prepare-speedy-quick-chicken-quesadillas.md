@@ -64,7 +64,7 @@ To begin with this recipe, we must first prepare a few components. You can cook 
 ##### The ingredients needed to make Quick Chicken Quesadillas:
 
 1. Make ready 1 large onion
-1. Prepare 1 large green bell pepper (or 1/2 green &amp; 1/2 red)
+1. Prepare 1 large green bell pepper (or 1/2 green & 1/2 red)
 1. Get 1 envelope taco seasoning
 1. Prepare 3 # cooked chicken (I can my own)
 1. Take 1 pkg flour tortillas (medium)

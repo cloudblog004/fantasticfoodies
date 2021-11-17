@@ -48,7 +48,7 @@ recipecategory: Lunch
 
 Hey everyone, it is Brad, welcome to our recipe site. Today, I will show you a way to prepare a special dish, fully loaded nachos. One of my favorites food recipes. For mine, I'm gonna make it a little bit tasty. This will be really delicious.
 
-I&#39;m especially proud of today&#39;s recipe, because who doesn&#39;t dig some fully loaded nachos? Ultimate Fully Loaded Vegan Nachos with the most delicious vegan ground &#34;beef&#34; and nacho cheese! An easy and fun weeknight dinner or snack. The building blocks of fully loaded nachos: home-fried tortilla chips, cheese sauce, grated cheese, refried The ideal plate of fully loaded nachos has plenty of goodies on all the tortilla chips, but not.
+I&#39;m especially proud of today&#39;s recipe, because who doesn&#39;t dig some fully loaded nachos? Ultimate Fully Loaded Vegan Nachos with the most delicious vegan ground *beef* and nacho cheese! An easy and fun weeknight dinner or snack. The building blocks of fully loaded nachos: home-fried tortilla chips, cheese sauce, grated cheese, refried The ideal plate of fully loaded nachos has plenty of goodies on all the tortilla chips, but not.
 
 Fully loaded nachos is one of the most popular of recent trending meals in the world. It is simple, it is quick, it tastes delicious. It's enjoyed by millions every day. They are nice and they look fantastic. Fully loaded nachos is something that I've loved my whole life.
 

@@ -56,7 +56,7 @@ recipecategory: Lunch
 
 Hey everyone, I hope you're having an amazing day today. Today, I will show you a way to prepare a special dish, the best penne arabiata. One of my favorites. For mine, I'm gonna make it a bit unique. This will be really delicious.
 
-Penne arrabbiata is a famous Italian recipe, a spicy hot pasta dish, easy &amp; quick to prepare. A spicy pasta al&#39;arrabiata - or spicy tomato sauce to you and me - an easy storecupboard pasta dish for a weeknight supper. We use cookies to give you the best online experience. Penne arrabiata recipe with step by step photos.
+Penne arrabbiata is a famous Italian recipe, a spicy hot pasta dish, easy & quick to prepare. A spicy pasta al&#39;arrabiata - or spicy tomato sauce to you and me - an easy storecupboard pasta dish for a weeknight supper. We use cookies to give you the best online experience. Penne arrabiata recipe with step by step photos.
 
 the best penne arabiata is one of the most popular of current trending meals on earth. It's enjoyed by millions every day. It is simple, it is quick, it tastes delicious. They are nice and they look fantastic. the best penne arabiata is something which I've loved my entire life.
 

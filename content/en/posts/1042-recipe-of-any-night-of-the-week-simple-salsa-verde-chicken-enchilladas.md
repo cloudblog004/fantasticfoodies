@@ -26,7 +26,7 @@ recipeinstructions:
 - "Start by adding your oil to a large skillet once heated add in about 2tbsp of diced onions and add a pinch of cumin and some garlic salt to taste cook down till onions are tender, now add in your salsa verde and lower heat cook for about 10 minutes."
 - "Now Shred your warmed chicken add your diced onion and cilantro to a large bowl(reserve a little onion, cilantro for topping) set aside"
 - "Now heat your tortillas on a griddle or in the microwave optional, once heated set in a warm towel now we can assemble"
-- "Dip tortillas into sauce add to a baking sheet, add in your chicken filling and  cheese and roll continue till you have your desired amount. Now top with a little more cheese and cover with foil bake 350 for 15 minutes or so till cheese is melted. Before you plate I top with warmed reserved salsa verde, onions, &amp; cilantro"
+- "Dip tortillas into sauce add to a baking sheet, add in your chicken filling and  cheese and roll continue till you have your desired amount. Now top with a little more cheese and cover with foil bake 350 for 15 minutes or so till cheese is melted. Before you plate I top with warmed reserved salsa verde, onions, & cilantro"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -81,7 +81,7 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 1. Start by adding your oil to a large skillet once heated add in about 2tbsp of diced onions and add a pinch of cumin and some garlic salt to taste cook down till onions are tender, now add in your salsa verde and lower heat cook for about 10 minutes.
 1. Now Shred your warmed chicken add your diced onion and cilantro to a large bowl(reserve a little onion, cilantro for topping) set aside
 1. Now heat your tortillas on a griddle or in the microwave optional, once heated set in a warm towel now we can assemble
-1. Dip tortillas into sauce add to a baking sheet, add in your chicken filling and  cheese and roll continue till you have your desired amount. Now top with a little more cheese and cover with foil bake 350 for 15 minutes or so till cheese is melted. Before you plate I top with warmed reserved salsa verde, onions, &amp; cilantro
+1. Dip tortillas into sauce add to a baking sheet, add in your chicken filling and  cheese and roll continue till you have your desired amount. Now top with a little more cheese and cover with foil bake 350 for 15 minutes or so till cheese is melted. Before you plate I top with warmed reserved salsa verde, onions, & cilantro
 1. Ready to serve and ENJOY!
 
 

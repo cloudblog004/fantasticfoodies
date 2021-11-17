@@ -57,7 +57,7 @@ Hello everybody, I hope you're having an amazing day today. Today, we're going t
 
 Chicken manchurian is one of the most well liked of recent trending foods on earth. It's appreciated by millions daily. It is easy, it is fast, it tastes yummy. Chicken manchurian is something that I have loved my whole life. They are nice and they look fantastic.
 
-Chicken Manchurian recipe - Delicious fried chicken in slightly sweet, hot &amp; sour Manchurian sauce. Chicken Manchurian is an Indo chinese food that is much popular in the Indian subcontinent. Learn how to make Chicken Manchurian Recipe at home. Very easy step by step video recipe.
+Chicken Manchurian recipe - Delicious fried chicken in slightly sweet, hot & sour Manchurian sauce. Chicken Manchurian is an Indo chinese food that is much popular in the Indian subcontinent. Learn how to make Chicken Manchurian Recipe at home. Very easy step by step video recipe.
 
 
 To get started with this recipe, we have to first prepare a few ingredients. You can have chicken manchurian using 15 ingredients and 4 steps. Here is how you cook it.

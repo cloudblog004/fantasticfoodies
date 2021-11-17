@@ -62,7 +62,7 @@ Hey everyone, it is Brad, welcome to my recipe page. Today, I will show you a wa
 
 Pizza packet patties is one of the most well liked of current trending foods in the world. It is simple, it's fast, it tastes yummy. It is enjoyed by millions every day. They're nice and they look fantastic. Pizza packet patties is something which I've loved my whole life.
 
-Our spice and cheese packets are made from the freshest and finest ingredients. This is all we do, so we know how to do it best! See the &#34;Pizza Packet&#34; difference today. Matt completes his bicycle ride up the east coast and Pizza Packet is there to congratulate him.
+Our spice and cheese packets are made from the freshest and finest ingredients. This is all we do, so we know how to do it best! See the *Pizza Packet* difference today. Matt completes his bicycle ride up the east coast and Pizza Packet is there to congratulate him.
 
 
 To begin with this recipe, we must prepare a few components. You can have pizza packet patties using 17 ingredients and 6 steps. Here is how you cook that.

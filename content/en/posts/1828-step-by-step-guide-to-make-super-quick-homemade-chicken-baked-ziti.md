@@ -25,9 +25,9 @@ recipeingredient:
 - " olive oil extra virgin"
 recipeinstructions:
 - "Boil ziti noodles until they are aldente then sat aside."
-- "Next cut chicken into cubes then season chicken breast w/ garlic powder, onion powder, oregano &amp; Basil. Then sautee in olive oil enough to cover bottom of skillet."
+- "Next cut chicken into cubes then season chicken breast w/ garlic powder, onion powder, oregano & Basil. Then sautee in olive oil enough to cover bottom of skillet."
 - "Next combine noodles, chicken then pour chunky sauce on top and sprinkle with mozzarella cheese."
-- "Finish with parsley &amp; oregano on top then bake until cheese is melted."
+- "Finish with parsley & oregano on top then bake until cheese is melted."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -81,11 +81,11 @@ Chicken baked ziti is very similar to the original, made with ground chicken ins
 ##### Steps to make Chicken Baked Ziti:
 
 1. Boil ziti noodles until they are aldente then sat aside.
-1. Next cut chicken into cubes then season chicken breast w/ garlic powder, onion powder, oregano &amp; Basil. Then sautee in olive oil enough to cover bottom of skillet.
+1. Next cut chicken into cubes then season chicken breast w/ garlic powder, onion powder, oregano & Basil. Then sautee in olive oil enough to cover bottom of skillet.
 1. Next combine noodles, chicken then pour chunky sauce on top and sprinkle with mozzarella cheese.
-1. Finish with parsley &amp; oregano on top then bake until cheese is melted.
+1. Finish with parsley & oregano on top then bake until cheese is melted.
 1. Ready to serve and ENJOY!
 
-This Chicken Alfredo Baked Ziti recipe is so easy to make. With chicken, bacon, pasta and a creamy, cheesy This Baked Chicken Alfredo Ziti recipe came after making Slow Cooker Baked Ziti, which. Baked Ziti is an American classic pasta bake made with a tomato based meat sauce similar to Bolognese. &#34;Ziti&#34; is a type of pasta that looks like penne, except it&#39;s got a smooth surface rather than. Baked Ziti with Chicken. this link is to an external site that may or may not meet accessibility guidelines. Cook the pasta al dente in a large. 
+This Chicken Alfredo Baked Ziti recipe is so easy to make. With chicken, bacon, pasta and a creamy, cheesy This Baked Chicken Alfredo Ziti recipe came after making Slow Cooker Baked Ziti, which. Baked Ziti is an American classic pasta bake made with a tomato based meat sauce similar to Bolognese. *Ziti* is a type of pasta that looks like penne, except it&#39;s got a smooth surface rather than. Baked Ziti with Chicken. this link is to an external site that may or may not meet accessibility guidelines. Cook the pasta al dente in a large. 
 
 So that is going to wrap it up with this special food chicken baked ziti recipe. Thanks so much for your time. I'm confident you can make this at home. There's gonna be more interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

@@ -68,7 +68,7 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 1. Make ready dash garlic and onion powder
 1. Take dash Perfect Pinch rotisserie chicken seasoning
 1. Get 1 (one slice per chicken)Freshly Sliced Mozzarella cheese from the deli
-1. Take 1 box of Tostitos (Dip) Cheesy Spinach &amp;Artichoke Dip 10 oz. in the chip area of the store.
+1. Take 1 box of Tostitos (Dip) Cheesy Spinach &Artichoke Dip 10 oz. in the chip area of the store.
 1. Prepare 1 now you can bread your chicken breast (I would dip mine in mayo then your choice of bread crumbs But you don&#39;t have to I didn&#39;t this time it&#39;s up to you)
 
 

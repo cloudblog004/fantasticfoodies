@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Any-night-of-the-week Mike&amp;#39;s 10 Minute Complete Porterhouse Steak Dinner"
-title: "Recipe of Any-night-of-the-week Mike&amp;#39;s 10 Minute Complete Porterhouse Steak Dinner"
+description: "Recipe of Any-night-of-the-week Mike's 10 Minute Complete Porterhouse Steak Dinner"
+title: "Recipe of Any-night-of-the-week Mike's 10 Minute Complete Porterhouse Steak Dinner"
 slug: 3120-recipe-of-any-night-of-the-week-mike-and-39-s-10-minute-complete-porterhouse-steak-dinner
 date: 2021-11-21T14:16:12.917Z
 image: https://img-global.cpcdn.com/recipes/db74ccb44c5292ac/680x482cq70/mikes-10-minute-complete-porterhouse-steak-dinner-recipe-main-photo.jpg
@@ -71,7 +71,7 @@ To begin with this recipe, we must prepare a few ingredients. You can cook mike&
 
 ##### The ingredients needed to make Mike&#39;s 10 Minute Complete Porterhouse Steak Dinner:
 
-1. Prepare  ● For The Steaks &amp; Marinade [room temp - grill]
+1. Prepare  ● For The Steaks & Marinade [room temp - grill]
 1. Prepare 4 (1 Pound) Porterhouse Steaks
 1. Make ready as needed Worshestershire Sauce
 1. Get dash Fresh Ground Black Pepper

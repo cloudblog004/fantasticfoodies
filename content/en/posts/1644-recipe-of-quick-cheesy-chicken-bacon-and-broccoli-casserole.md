@@ -27,7 +27,7 @@ recipeingredient:
 - "1/2 package dry ranch mix"
 recipeinstructions:
 - "Preheat oven to 350"
-- "Spray a 9&#34;x13&#34; caserole dish with cooking spray"
+- "Spray a 9*x13* caserole dish with cooking spray"
 - "Lay your chicken thighs down in it and sprinkle with salt and pepper."
 - "In a large bowl mix together the soups, milk, dry ranch, garlic, salt, pepper. Then mix in the rice. Then mix in the bacon bits and shredded cheese. Then the brocolli."
 - "Dump the mix over the chicken thighs"
@@ -88,7 +88,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 ##### Instructions to make Cheesy Chicken, Bacon and Broccoli Casserole:
 
 1. Preheat oven to 350
-1. Spray a 9&#34;x13&#34; caserole dish with cooking spray
+1. Spray a 9*x13* caserole dish with cooking spray
 1. Lay your chicken thighs down in it and sprinkle with salt and pepper.
 1. In a large bowl mix together the soups, milk, dry ranch, garlic, salt, pepper. Then mix in the rice. Then mix in the bacon bits and shredded cheese. Then the brocolli.
 1. Dump the mix over the chicken thighs

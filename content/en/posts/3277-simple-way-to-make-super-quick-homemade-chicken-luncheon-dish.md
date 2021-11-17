@@ -48,7 +48,7 @@ Hey everyone, it is John, welcome to my recipe site. Today, we're going to make 
 
 Chicken luncheon dish is one of the most favored of current trending meals on earth. It is easy, it is quick, it tastes delicious. It is enjoyed by millions daily. They're fine and they look fantastic. Chicken luncheon dish is something that I've loved my entire life.
 
-The Best Chicken Luncheon Recipes on Yummly Prosciutto, Chicken &amp; Calabrian Chili Flatbread, Potato &amp; Chive Buttermilk Waffles With Spicy Sage Oven Fried Chicken, Easy Artisan Pizza. I wanted to make a chicken salami at home, but without the casings. Then, I decided to think outside the box (in this case, outside the casings!) and made.
+The Best Chicken Luncheon Recipes on Yummly Prosciutto, Chicken & Calabrian Chili Flatbread, Potato & Chive Buttermilk Waffles With Spicy Sage Oven Fried Chicken, Easy Artisan Pizza. I wanted to make a chicken salami at home, but without the casings. Then, I decided to think outside the box (in this case, outside the casings!) and made.
 
 
 To get started with this recipe, we have to first prepare a few ingredients. You can have chicken luncheon dish using 8 ingredients and 1 steps. Here is how you can achieve it.

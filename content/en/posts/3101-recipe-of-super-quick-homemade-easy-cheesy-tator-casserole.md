@@ -22,15 +22,15 @@ recipeingredient:
 - "1 Shredded Taco Cheese 2 Cups"
 - "2 Table Spoons Chili Powder"
 recipeinstructions:
-- "Cook &amp; brown meat, drain."
-- "Drain corn &amp; green beans."
-- "Empty soups &amp; vegetables into bowl, mix together."
-- "Mix in the meat, 1.5 cups of shredded cheese, &amp; chili powder."
+- "Cook & brown meat, drain."
+- "Drain corn & green beans."
+- "Empty soups & vegetables into bowl, mix together."
+- "Mix in the meat, 1.5 cups of shredded cheese, & chili powder."
 - "Spread the mixture in a baking dish evenly."
 - "Preheat oven at 450°F"
 - "Layer tator tots over the mixture, add remainder of taco cheese on tots."
 - "Put in preheated oven, set timer for 1/2 hour"
-- "Take out, let cool, &amp; enjoy."
+- "Take out, let cool, & enjoy."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -81,15 +81,15 @@ To get started with this particular recipe, we must prepare a few components. Yo
 
 ##### Instructions to make Easy Cheesy Tator Casserole:
 
-1. Cook &amp; brown meat, drain.
-1. Drain corn &amp; green beans.
-1. Empty soups &amp; vegetables into bowl, mix together.
-1. Mix in the meat, 1.5 cups of shredded cheese, &amp; chili powder.
+1. Cook & brown meat, drain.
+1. Drain corn & green beans.
+1. Empty soups & vegetables into bowl, mix together.
+1. Mix in the meat, 1.5 cups of shredded cheese, & chili powder.
 1. Spread the mixture in a baking dish evenly.
 1. Preheat oven at 450°F
 1. Layer tator tots over the mixture, add remainder of taco cheese on tots.
 1. Put in preheated oven, set timer for 1/2 hour
-1. Take out, let cool, &amp; enjoy.
+1. Take out, let cool, & enjoy.
 1. Ready to serve and ENJOY!
 
 

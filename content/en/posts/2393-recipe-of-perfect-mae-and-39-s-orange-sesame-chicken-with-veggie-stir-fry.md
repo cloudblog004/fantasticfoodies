@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Perfect Mae&amp;#39;s  Orange Sesame Chicken with Veggie Stir Fry"
-title: "Recipe of Perfect Mae&amp;#39;s  Orange Sesame Chicken with Veggie Stir Fry"
+description: "Recipe of Perfect Mae's  Orange Sesame Chicken with Veggie Stir Fry"
+title: "Recipe of Perfect Mae's  Orange Sesame Chicken with Veggie Stir Fry"
 slug: 2393-recipe-of-perfect-mae-and-39-s-orange-sesame-chicken-with-veggie-stir-fry
 date: 2021-12-18T14:07:02.200Z
 image: https://img-global.cpcdn.com/recipes/67340513/680x482cq70/maes-orange-sesame-chicken-with-veggie-stir-fry-recipe-main-photo.jpg

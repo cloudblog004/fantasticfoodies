@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Homemade Slow Cooker Chicken Quarters with Potatoes &amp;amp; Carrots"
-title: "Recipe of Homemade Slow Cooker Chicken Quarters with Potatoes &amp;amp; Carrots"
+description: "Recipe of Homemade Slow Cooker Chicken Quarters with Potatoes & Carrots"
+title: "Recipe of Homemade Slow Cooker Chicken Quarters with Potatoes & Carrots"
 slug: 104-recipe-of-homemade-slow-cooker-chicken-quarters-with-potatoes-and-amp-carrots
 date: 2022-03-07T01:04:39.197Z
 image: https://img-global.cpcdn.com/recipes/6f7dab9e74ab54fd/680x482cq70/slow-cooker-chicken-quarters-with-potatoes-carrots-recipe-main-photo.jpg
@@ -46,20 +46,20 @@ recipecategory: Dessert
 ---
 
 
-![Slow Cooker Chicken Quarters with Potatoes &amp; Carrots](https://img-global.cpcdn.com/recipes/6f7dab9e74ab54fd/680x482cq70/slow-cooker-chicken-quarters-with-potatoes-carrots-recipe-main-photo.jpg)
+![Slow Cooker Chicken Quarters with Potatoes & Carrots](https://img-global.cpcdn.com/recipes/6f7dab9e74ab54fd/680x482cq70/slow-cooker-chicken-quarters-with-potatoes-carrots-recipe-main-photo.jpg)
 
-Hey everyone, I hope you are having an incredible day today. Today, I will show you a way to prepare a special dish, slow cooker chicken quarters with potatoes &amp; carrots. It is one of my favorites. For mine, I am going to make it a little bit unique. This will be really delicious.
+Hey everyone, I hope you are having an incredible day today. Today, I will show you a way to prepare a special dish, slow cooker chicken quarters with potatoes & carrots. It is one of my favorites. For mine, I am going to make it a little bit unique. This will be really delicious.
 
-Slow Cooker Chicken Quarters with Potatoes &amp; Carrots is one of the most well liked of current trending meals in the world. It is easy, it's fast, it tastes yummy. It's appreciated by millions daily. They are nice and they look wonderful. Slow Cooker Chicken Quarters with Potatoes &amp; Carrots is something which I have loved my entire life.
-
-
+Slow Cooker Chicken Quarters with Potatoes & Carrots is one of the most well liked of current trending meals in the world. It is easy, it's fast, it tastes yummy. It's appreciated by millions daily. They are nice and they look wonderful. Slow Cooker Chicken Quarters with Potatoes & Carrots is something which I have loved my entire life.
 
 
-To get started with this particular recipe, we have to first prepare a few components. You can cook slow cooker chicken quarters with potatoes &amp; carrots using 8 ingredients and 5 steps. Here is how you cook that.
+
+
+To get started with this particular recipe, we have to first prepare a few components. You can cook slow cooker chicken quarters with potatoes & carrots using 8 ingredients and 5 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Slow Cooker Chicken Quarters with Potatoes &amp; Carrots:
+##### The ingredients needed to make Slow Cooker Chicken Quarters with Potatoes & Carrots:
 
 1. Prepare 1 lb baby carrots
 1. Get 1 lb baby red potatoes -halved
@@ -75,7 +75,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 
 <!--inarticleads2-->
 
-##### Steps to make Slow Cooker Chicken Quarters with Potatoes &amp; Carrots:
+##### Steps to make Slow Cooker Chicken Quarters with Potatoes & Carrots:
 
 1. Pour 2/3 cup water into the bottom of a 5-6 quart slow cooker. Spread baby carrots out in an even layer. Place halved baby red potatoes evenly over carrots. Sprinkle veggies with 1 tsp chicken seasoning.
 1. Place chicken leg quarters so they don&#39;t overlap each other on top of veggies skin side up.
@@ -86,4 +86,4 @@ To get started with this particular recipe, we have to first prepare a few compo
 
 
 
-So that's going to wrap it up for this special food slow cooker chicken quarters with potatoes &amp; carrots recipe. Thanks so much for your time. I am confident that you will make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!
+So that's going to wrap it up for this special food slow cooker chicken quarters with potatoes & carrots recipe. Thanks so much for your time. I am confident that you will make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

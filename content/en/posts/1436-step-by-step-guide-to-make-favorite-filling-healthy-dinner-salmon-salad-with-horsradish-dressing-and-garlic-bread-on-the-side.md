@@ -37,7 +37,7 @@ recipeinstructions:
 - "Spread butter on the slices from the previous step"
 - "put them in the oven on 180°C for 4 minutes or until crisp and golden yellow on the top (make sure you keep an eye on them as each oven is different). Rub the halved garlic clove on the bread as soon as it comes out of the oven ."
 - "In the meantime, assemble all the ingredients for the salad - leave out half of the chikpeas and all the salmon"
-- "Mix all the dressing ingredients. I didn&#39;t have lemons so added a dash of vinegar instead. Taste and adjust to taste. You may want to add salt and pepper if needed. Found this dressing on &#34;tesco.com&#34; as a part of an other recipe."
+- "Mix all the dressing ingredients. I didn&#39;t have lemons so added a dash of vinegar instead. Taste and adjust to taste. You may want to add salt and pepper if needed. Found this dressing on *tesco.com* as a part of an other recipe."
 - "Add the dressing a bit at a time on the salad then mix well and taste. If preparing beforehand, only do steps 6 and 7 (and 1 or 2 if choosing one of those options) then do the rest of the steps just before serving."
 - "Add the salmon flakes and the rest of the chikpeas on top"
 - "Serve the salad with the garlic bread on the side"
@@ -106,7 +106,7 @@ Find healthy, delicious salmon recipes including grilled and BBQ salmon, salmon 
 1. Spread butter on the slices from the previous step
 1. put them in the oven on 180°C for 4 minutes or until crisp and golden yellow on the top (make sure you keep an eye on them as each oven is different). Rub the halved garlic clove on the bread as soon as it comes out of the oven .
 1. In the meantime, assemble all the ingredients for the salad - leave out half of the chikpeas and all the salmon
-1. Mix all the dressing ingredients. I didn&#39;t have lemons so added a dash of vinegar instead. Taste and adjust to taste. You may want to add salt and pepper if needed. Found this dressing on &#34;tesco.com&#34; as a part of an other recipe.
+1. Mix all the dressing ingredients. I didn&#39;t have lemons so added a dash of vinegar instead. Taste and adjust to taste. You may want to add salt and pepper if needed. Found this dressing on *tesco.com* as a part of an other recipe.
 1. Add the dressing a bit at a time on the salad then mix well and taste. If preparing beforehand, only do steps 6 and 7 (and 1 or 2 if choosing one of those options) then do the rest of the steps just before serving.
 1. Add the salmon flakes and the rest of the chikpeas on top
 1. Serve the salad with the garlic bread on the side

@@ -26,7 +26,7 @@ recipeingredient:
 - "1 cup cooked bacon"
 recipeinstructions:
 - "Preheat oven to 500° and spray 9 x13 baking dish."
-- "In a large bowl mix Olive oil, salt, pepper, paprika, garlic, &amp; hot sauce."
+- "In a large bowl mix Olive oil, salt, pepper, paprika, garlic, & hot sauce."
 - "Cook potatoes in baking dish for 40 to 50 minutes stirring every 10 to 15 minutes. May need to add more nonstick to keep potatoes from sticking."
 - "Mix cubed chicken into bowl with hot sauce mix."
 - "Once potatoes are cooked reduced heat to 400°, then add in chicken and sauce to potatoes and bake for another 15 minutes."
@@ -79,14 +79,14 @@ To begin with this recipe, we have to prepare a few components. You can have buf
 1. Prepare 1 cup cooked bacon
 
 
-Creamy potato soup is an easy meal to make and even easier to freeze and store so you can have hearty soup anytime you want. Once the potatoes are fully cooked add the Bake until the chicken is cooked through and the topping is melted and bubbly delicious. Loaded Potato &amp; Buffalo Chicken Casserole. The casserole features loaded backed potatoes and buffalo chicken together! 
+Creamy potato soup is an easy meal to make and even easier to freeze and store so you can have hearty soup anytime you want. Once the potatoes are fully cooked add the Bake until the chicken is cooked through and the topping is melted and bubbly delicious. Loaded Potato & Buffalo Chicken Casserole. The casserole features loaded backed potatoes and buffalo chicken together! 
 
 <!--inarticleads2-->
 
 ##### Steps to make Buffalo chicken loaded baked potato casserole:
 
 1. Preheat oven to 500° and spray 9 x13 baking dish.
-1. In a large bowl mix Olive oil, salt, pepper, paprika, garlic, &amp; hot sauce.
+1. In a large bowl mix Olive oil, salt, pepper, paprika, garlic, & hot sauce.
 1. Cook potatoes in baking dish for 40 to 50 minutes stirring every 10 to 15 minutes. May need to add more nonstick to keep potatoes from sticking.
 1. Mix cubed chicken into bowl with hot sauce mix.
 1. Once potatoes are cooked reduced heat to 400°, then add in chicken and sauce to potatoes and bake for another 15 minutes.
@@ -94,6 +94,6 @@ Creamy potato soup is an easy meal to make and even easier to freeze and store s
 1. Serve with either ranch dressing,or extra hot sauce. Or it can be served all on its own.
 1. Ready to serve and ENJOY!
 
-Loaded Potato &amp; Buffalo Chicken Casserole. The casserole features loaded backed potatoes and buffalo chicken together! They are so flavorful and I thought it would give the casserole a great flavor base. To make the dish, the potatoes are loaded up with a great coating and baked in a very hot oven. Home recipes &gt; main dish &gt; bake &gt; Buffalo Chicken Loaded Baked Potato Casserole. 
+Loaded Potato & Buffalo Chicken Casserole. The casserole features loaded backed potatoes and buffalo chicken together! They are so flavorful and I thought it would give the casserole a great flavor base. To make the dish, the potatoes are loaded up with a great coating and baked in a very hot oven. Home recipes &gt; main dish &gt; bake &gt; Buffalo Chicken Loaded Baked Potato Casserole. 
 
 So that is going to wrap this up for this special food buffalo chicken loaded baked potato casserole recipe. Thank you very much for reading. I'm sure you will make this at home. There's gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

@@ -21,9 +21,9 @@ recipeingredient:
 - " Any other veggies"
 - " Tortillas or Rice"
 recipeinstructions:
-- "Rinse chicken &amp; cut off any excess fat. Place into Crock Pot. Cover with 2 packets of Fajita seasoning &amp; add about 1/2 cup of water. Mix until all the seasoning is even over chicken."
-- "Cook on High 5-7 hours or Low 6-8 hours depending on thickness of chicken. Chicken is done when juices run clear &amp; it&#39;s white inside when cut open. If you notice the chicken is starting to dry before finished cooking add a little more water to help keep moist."
-- "The last hour &amp; a half add the Bell Peppers, Onions &amp; any other vegetables you like to serve with Fajitas. At that time shred your chicken into smaller pieces. Serve over rice or in tortillas. Enjoy!"
+- "Rinse chicken & cut off any excess fat. Place into Crock Pot. Cover with 2 packets of Fajita seasoning & add about 1/2 cup of water. Mix until all the seasoning is even over chicken."
+- "Cook on High 5-7 hours or Low 6-8 hours depending on thickness of chicken. Chicken is done when juices run clear & it&#39;s white inside when cut open. If you notice the chicken is starting to dry before finished cooking add a little more water to help keep moist."
+- "The last hour & a half add the Bell Peppers, Onions & any other vegetables you like to serve with Fajitas. At that time shred your chicken into smaller pieces. Serve over rice or in tortillas. Enjoy!"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -73,9 +73,9 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 
 ##### Instructions to make Crock Pot Chicken Fajitas:
 
-1. Rinse chicken &amp; cut off any excess fat. Place into Crock Pot. Cover with 2 packets of Fajita seasoning &amp; add about 1/2 cup of water. Mix until all the seasoning is even over chicken.
-1. Cook on High 5-7 hours or Low 6-8 hours depending on thickness of chicken. Chicken is done when juices run clear &amp; it&#39;s white inside when cut open. If you notice the chicken is starting to dry before finished cooking add a little more water to help keep moist.
-1. The last hour &amp; a half add the Bell Peppers, Onions &amp; any other vegetables you like to serve with Fajitas. At that time shred your chicken into smaller pieces. Serve over rice or in tortillas. Enjoy!
+1. Rinse chicken & cut off any excess fat. Place into Crock Pot. Cover with 2 packets of Fajita seasoning & add about 1/2 cup of water. Mix until all the seasoning is even over chicken.
+1. Cook on High 5-7 hours or Low 6-8 hours depending on thickness of chicken. Chicken is done when juices run clear & it&#39;s white inside when cut open. If you notice the chicken is starting to dry before finished cooking add a little more water to help keep moist.
+1. The last hour & a half add the Bell Peppers, Onions & any other vegetables you like to serve with Fajitas. At that time shred your chicken into smaller pieces. Serve over rice or in tortillas. Enjoy!
 1. Ready to serve and ENJOY!
 
 

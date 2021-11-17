@@ -67,7 +67,7 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 1. Prepare 1 stuffed burger press
 
 
-Perhaps a light sauce could have been served with it. Easy Chicken Cordon Bleu stuffed with ham &amp; melted cheese! Baked, not fried and easy to make, no toothpicks required! For a quicker version, you may also like this Skillet Chicken Cordon Bleu which doesn&#39;t require rolling or breading. 
+Perhaps a light sauce could have been served with it. Easy Chicken Cordon Bleu stuffed with ham & melted cheese! Baked, not fried and easy to make, no toothpicks required! For a quicker version, you may also like this Skillet Chicken Cordon Bleu which doesn&#39;t require rolling or breading. 
 
 <!--inarticleads2-->
 
@@ -80,6 +80,6 @@ Perhaps a light sauce could have been served with it. Easy Chicken Cordon Bleu s
 1. Smother in hollandaise sauce and enjoy. Add with any sides.
 1. Ready to serve and ENJOY!
 
-Baked, not fried and easy to make, no toothpicks required! For a quicker version, you may also like this Skillet Chicken Cordon Bleu which doesn&#39;t require rolling or breading. When I was a kid, my mom took culinary classes in college and. How does the hollandaise hold up when reheated? Do the chicken &amp; sprouts soak it up? 
+Baked, not fried and easy to make, no toothpicks required! For a quicker version, you may also like this Skillet Chicken Cordon Bleu which doesn&#39;t require rolling or breading. When I was a kid, my mom took culinary classes in college and. How does the hollandaise hold up when reheated? Do the chicken & sprouts soak it up? 
 
 So that's going to wrap it up for this special food easy bake stuffed chicken cordon bleu with hollandaise sauce recipe. Thanks so much for reading. I'm confident that you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

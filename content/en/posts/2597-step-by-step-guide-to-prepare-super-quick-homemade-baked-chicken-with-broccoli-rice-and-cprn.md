@@ -64,7 +64,7 @@ To begin with this recipe, we must first prepare a few components. You can have 
 1. Take  Cream of mushroom
 
 
-This dump-and-done Baked Chicken, Broccoli &amp; Rice is a whole meal in one dish- chicken, rice and veggies, baked in a creamy sauce for super easy comfort food. Cooked rice, creamed corn, broccoli, onion and garlic topped with butter and crushed Ritz crackers. You might want to double the recipe A delicious side dish, corn and broccoli are baked with cheese until bubbly and hot. Arrange chicken on rice mixture; sprinkle with pepper and paprika. 
+This dump-and-done Baked Chicken, Broccoli & Rice is a whole meal in one dish- chicken, rice and veggies, baked in a creamy sauce for super easy comfort food. Cooked rice, creamed corn, broccoli, onion and garlic topped with butter and crushed Ritz crackers. You might want to double the recipe A delicious side dish, corn and broccoli are baked with cheese until bubbly and hot. Arrange chicken on rice mixture; sprinkle with pepper and paprika. 
 
 <!--inarticleads2-->
 

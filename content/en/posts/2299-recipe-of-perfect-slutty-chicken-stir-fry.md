@@ -30,7 +30,7 @@ recipeingredient:
 recipeinstructions:
 - "Slice raw chicken, against the grain, in about 1/4 inch strips. Then cut the strips into about 2 inch pieces. In a preheated skillet with about 1/2 cup olive oil, add the chicken pieces, a few sprinkles of black pepper and some garlic powder. Cook until just about white."
 - "Now add the green pepper, onion and garlic. Stir constantly till the onion pieces just begin to start turning translucent around the edges. Now add approximately 4 tbsp soy sauce, 3 tbsp Worcestershire sauce, about 3 shakes of balsamic vinegar and a little more olive oil. (The liquid should appear like it&#39;s slightly too much and thin. It will reduce and thicken as you cook it. If you don&#39;t have enough the dish will be gummy and dry.) Add the rest of the spices using the ground ginger as the main spice. I use red pepper flakes for some kick. Also, ideally, sesame oil would be used instead of olive oil. But that shiz is expensive and pretty much only good for Asian food haha"
-- "&#34;Stir-fry&#34; the whole mixture together for about 5 minutes or so more. Serve over a bowl of cooked white rice and enjoy! The only thing missing is the white cardboard containers and a fortune cookie."
+- "*Stir-fry* the whole mixture together for about 5 minutes or so more. Serve over a bowl of cooked white rice and enjoy! The only thing missing is the white cardboard containers and a fortune cookie."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -89,7 +89,7 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 
 1. Slice raw chicken, against the grain, in about 1/4 inch strips. Then cut the strips into about 2 inch pieces. In a preheated skillet with about 1/2 cup olive oil, add the chicken pieces, a few sprinkles of black pepper and some garlic powder. Cook until just about white.
 1. Now add the green pepper, onion and garlic. Stir constantly till the onion pieces just begin to start turning translucent around the edges. Now add approximately 4 tbsp soy sauce, 3 tbsp Worcestershire sauce, about 3 shakes of balsamic vinegar and a little more olive oil. (The liquid should appear like it&#39;s slightly too much and thin. It will reduce and thicken as you cook it. If you don&#39;t have enough the dish will be gummy and dry.) Add the rest of the spices using the ground ginger as the main spice. I use red pepper flakes for some kick. Also, ideally, sesame oil would be used instead of olive oil. But that shiz is expensive and pretty much only good for Asian food haha
-1. &#34;Stir-fry&#34; the whole mixture together for about 5 minutes or so more. Serve over a bowl of cooked white rice and enjoy! The only thing missing is the white cardboard containers and a fortune cookie.
+1. *Stir-fry* the whole mixture together for about 5 minutes or so more. Serve over a bowl of cooked white rice and enjoy! The only thing missing is the white cardboard containers and a fortune cookie.
 1. Ready to serve and ENJOY!
 
 

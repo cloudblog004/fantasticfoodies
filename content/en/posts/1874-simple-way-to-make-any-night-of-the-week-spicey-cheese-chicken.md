@@ -65,7 +65,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 1. Prepare 1/2 cup Jalapeno (chopped)
 
 
-This dish would be the best when you crave for sugar but also want to be healthy! The sweetness and spiciness are very well balanced. Chopped chicken is marinated in a mix of spicy Korean sauce then stir fried with rice cakes, sweet potatoes Nowadays, there are many variations on dak galbi one of which includes cheese dak galbi. How to Make Spicy Chicken &amp; Cheese. 
+This dish would be the best when you crave for sugar but also want to be healthy! The sweetness and spiciness are very well balanced. Chopped chicken is marinated in a mix of spicy Korean sauce then stir fried with rice cakes, sweet potatoes Nowadays, there are many variations on dak galbi one of which includes cheese dak galbi. How to Make Spicy Chicken & Cheese. 
 
 <!--inarticleads2-->
 
@@ -76,6 +76,6 @@ This dish would be the best when you crave for sugar but also want to be healthy
 1. On a cassarol dish place the chicken then sprinkle jalapenos, green unions, and last the cheese. For about 10-15 min until cheese is boiled and melted. Place on a bed of rice with sour cream on time.
 1. Ready to serve and ENJOY!
 
-Chopped chicken is marinated in a mix of spicy Korean sauce then stir fried with rice cakes, sweet potatoes Nowadays, there are many variations on dak galbi one of which includes cheese dak galbi. How to Make Spicy Chicken &amp; Cheese. Place sliced cheese in middle of chicken breast and roll meat around it. Dip chicken in eggwash then roll in bread crumbs. New Samyang CHEESE SPICY Chicken Korean Noodle. 
+Chopped chicken is marinated in a mix of spicy Korean sauce then stir fried with rice cakes, sweet potatoes Nowadays, there are many variations on dak galbi one of which includes cheese dak galbi. How to Make Spicy Chicken & Cheese. Place sliced cheese in middle of chicken breast and roll meat around it. Dip chicken in eggwash then roll in bread crumbs. New Samyang CHEESE SPICY Chicken Korean Noodle. 
 
 So that is going to wrap this up for this exceptional food spicey cheese chicken recipe. Thank you very much for your time. I'm confident you will make this at home. There's gonna be interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

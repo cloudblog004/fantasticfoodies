@@ -29,11 +29,11 @@ recipeinstructions:
 - "All ingredients aik sath ready karain chicken ko wash kar cut karain onion chopped ta ke time west na ho"
 - "Ab sb se pehle speghatti ko boil karain 2 tsp oil.or 1/2 salt ke sath or water drain out kar side pe rakh dain"
 - "Ab aik pan mn oil garam.kar ke onion ko saute karain add garlic paste well cook add chicken us waqat tak cook karain ke wo apna colour change karein"
-- "Add all spices &amp;shimla well cooked add soya sauce"
+- "Add all spices &shimla well cooked add soya sauce"
 - "Add chilli garlic sauce vinegar well cooked"
-- "Add speghatti well mixed &amp;cook flame off mazedar tesry chicken speghatti ready he"
-- "Well presented &amp;serve enjoy with family members"
-- "Cook &amp;well decorated"
+- "Add speghatti well mixed &cook flame off mazedar tesry chicken speghatti ready he"
+- "Well presented &serve enjoy with family members"
+- "Cook &well decorated"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -91,13 +91,13 @@ Turn a few times and make sure the flour mix is really stuck to the chicken. Nob
 1. All ingredients aik sath ready karain chicken ko wash kar cut karain onion chopped ta ke time west na ho
 1. Ab sb se pehle speghatti ko boil karain 2 tsp oil.or 1/2 salt ke sath or water drain out kar side pe rakh dain
 1. Ab aik pan mn oil garam.kar ke onion ko saute karain add garlic paste well cook add chicken us waqat tak cook karain ke wo apna colour change karein
-1. Add all spices &amp;shimla well cooked add soya sauce
+1. Add all spices &shimla well cooked add soya sauce
 1. Add chilli garlic sauce vinegar well cooked
-1. Add speghatti well mixed &amp;cook flame off mazedar tesry chicken speghatti ready he
-1. Well presented &amp;serve enjoy with family members
-1. Cook &amp;well decorated
+1. Add speghatti well mixed &cook flame off mazedar tesry chicken speghatti ready he
+1. Well presented &serve enjoy with family members
+1. Cook &well decorated
 1. Ready to serve and ENJOY!
 
-It uses herbs and spices you. Food websites and bloggers went crazy at the news! Numerous articles from practically every major news outlet and food site asking the question, &#34;Is this For me the proof is always in the pudding, or in this case the fried chicken, so I set out to try the recipe for myself. How to Make Tasty KFC Style Fried Chicken Recipe. Pour flour into a large bowl, combine spices in a separate bowl, pour spices in with flour and stir well to combine all ingredients. 
+It uses herbs and spices you. Food websites and bloggers went crazy at the news! Numerous articles from practically every major news outlet and food site asking the question, *Is this For me the proof is always in the pudding, or in this case the fried chicken, so I set out to try the recipe for myself. How to Make Tasty KFC Style Fried Chicken Recipe. Pour flour into a large bowl, combine spices in a separate bowl, pour spices in with flour and stir well to combine all ingredients. 
 
 So that's going to wrap this up with this exceptional food tasty kfc style chicken speghatti recipe. Thank you very much for your time. I'm sure that you will make this at home. There's gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

@@ -18,7 +18,7 @@ recipeingredient:
 - "to taste Season"
 - " Rice or Baked Potato to serve with"
 recipeinstructions:
-- "Rinse chicken &amp; lay across bottom of crock. You don&#39;t need to add water to the chicken. It will produce its own juices. Season to preference. I usually use a basic Lemon Pepper seasoning with this dish. If you think the chicken starting to dry out then add small amount of water to ensure its not dry when done. Cook Low 8-10 hours or High 5-7 hours."
+- "Rinse chicken & lay across bottom of crock. You don&#39;t need to add water to the chicken. It will produce its own juices. Season to preference. I usually use a basic Lemon Pepper seasoning with this dish. If you think the chicken starting to dry out then add small amount of water to ensure its not dry when done. Cook Low 8-10 hours or High 5-7 hours."
 - "About 1 1/2 - 2 hours before your chicken is ready add fresh green beans on top of the chicken. You don&#39;t need to add any additional liquids. They will steam to perfection."
 - "Serve over rice or with a baked potato. Enjoy!"
 - "Ready to serve and ENJOY!"
@@ -67,7 +67,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can have cr
 
 ##### Steps to make Crock Pot Chicken with Green Beans:
 
-1. Rinse chicken &amp; lay across bottom of crock. You don&#39;t need to add water to the chicken. It will produce its own juices. Season to preference. I usually use a basic Lemon Pepper seasoning with this dish. If you think the chicken starting to dry out then add small amount of water to ensure its not dry when done. Cook Low 8-10 hours or High 5-7 hours.
+1. Rinse chicken & lay across bottom of crock. You don&#39;t need to add water to the chicken. It will produce its own juices. Season to preference. I usually use a basic Lemon Pepper seasoning with this dish. If you think the chicken starting to dry out then add small amount of water to ensure its not dry when done. Cook Low 8-10 hours or High 5-7 hours.
 1. About 1 1/2 - 2 hours before your chicken is ready add fresh green beans on top of the chicken. You don&#39;t need to add any additional liquids. They will steam to perfection.
 1. Serve over rice or with a baked potato. Enjoy!
 1. Ready to serve and ENJOY!

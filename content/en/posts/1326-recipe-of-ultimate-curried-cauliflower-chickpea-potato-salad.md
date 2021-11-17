@@ -32,8 +32,8 @@ recipeingredient:
 - "1 red onion julienned for quick pickling if desired"
 recipeinstructions:
 - "Roast cauliflower and potatoes at 450."
-- "In dry skillet, toast seeds, tossing frequently, for 2-3 minutes. Grind in mortar &amp; pestle until fine. Add curry powder and cayenne."
-- "Mix ingredients for dressing: yogurt, mayo, lemon juice &amp; zest, and seasonings. Salt &amp; pepper to taste. Add chickpeas, potatoes, cauliflower, craisins. Stir to coat. Add green onions and red onion if desired."
+- "In dry skillet, toast seeds, tossing frequently, for 2-3 minutes. Grind in mortar & pestle until fine. Add curry powder and cayenne."
+- "Mix ingredients for dressing: yogurt, mayo, lemon juice & zest, and seasonings. Salt & pepper to taste. Add chickpeas, potatoes, cauliflower, craisins. Stir to coat. Add green onions and red onion if desired."
 - "Serve on bed of greens."
 - "Ready to serve and ENJOY!"
 categories:
@@ -95,8 +95,8 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 ##### Steps to make Curried cauliflower + chickpea potato salad:
 
 1. Roast cauliflower and potatoes at 450.
-1. In dry skillet, toast seeds, tossing frequently, for 2-3 minutes. Grind in mortar &amp; pestle until fine. Add curry powder and cayenne.
-1. Mix ingredients for dressing: yogurt, mayo, lemon juice &amp; zest, and seasonings. Salt &amp; pepper to taste. Add chickpeas, potatoes, cauliflower, craisins. Stir to coat. Add green onions and red onion if desired.
+1. In dry skillet, toast seeds, tossing frequently, for 2-3 minutes. Grind in mortar & pestle until fine. Add curry powder and cayenne.
+1. Mix ingredients for dressing: yogurt, mayo, lemon juice & zest, and seasonings. Salt & pepper to taste. Add chickpeas, potatoes, cauliflower, craisins. Stir to coat. Add green onions and red onion if desired.
 1. Serve on bed of greens.
 1. Ready to serve and ENJOY!
 

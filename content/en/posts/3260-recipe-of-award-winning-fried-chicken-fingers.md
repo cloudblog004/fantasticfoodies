@@ -30,7 +30,7 @@ recipeinstructions:
 - "Season the strips of chicken on both sides with an adequate amount of all seasonings. Eyeball it."
 - "Place the seasoned chicken strips in a ziploc bag and pour in enough milk to cover the chicken. Add vinegar in the approximate ratio of 1 Tbsp vinegar to 1 cup milk. Refrigerate for at least 24 hours."
 - "Heat oil in a dutch oven or similar vessel to 350F."
-- "Mix flour with baking powder &amp; eyeballed amount of seasonings to give the flour a reddish brown color. Place mixture into a Tupperware container."
+- "Mix flour with baking powder & eyeballed amount of seasonings to give the flour a reddish brown color. Place mixture into a Tupperware container."
 - "In batches, toss the chicken fingers in the flour mixture. Allow to cake on a wire rack, whilst scrambling an egg with your fingers in the bag of buttermilk brine. Place the chicken fingers back into the brine, and then back into the flour to toss again. Leave on wire rack for at least 30 mins."
 - "Fry chicken in batches in 350F oil for 6-10 mins per batch or until chicken internal temp reaches 165F. Don&#39;t overcrowd the pan and let the oil temp come back up in between batches. To keep warm, let the chicken fingers rest on a wire rack on a sheet pan in the oven at 180F."
 - "Ready to serve and ENJOY!"
@@ -91,7 +91,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 1. Season the strips of chicken on both sides with an adequate amount of all seasonings. Eyeball it.
 1. Place the seasoned chicken strips in a ziploc bag and pour in enough milk to cover the chicken. Add vinegar in the approximate ratio of 1 Tbsp vinegar to 1 cup milk. Refrigerate for at least 24 hours.
 1. Heat oil in a dutch oven or similar vessel to 350F.
-1. Mix flour with baking powder &amp; eyeballed amount of seasonings to give the flour a reddish brown color. Place mixture into a Tupperware container.
+1. Mix flour with baking powder & eyeballed amount of seasonings to give the flour a reddish brown color. Place mixture into a Tupperware container.
 1. In batches, toss the chicken fingers in the flour mixture. Allow to cake on a wire rack, whilst scrambling an egg with your fingers in the bag of buttermilk brine. Place the chicken fingers back into the brine, and then back into the flour to toss again. Leave on wire rack for at least 30 mins.
 1. Fry chicken in batches in 350F oil for 6-10 mins per batch or until chicken internal temp reaches 165F. Don&#39;t overcrowd the pan and let the oil temp come back up in between batches. To keep warm, let the chicken fingers rest on a wire rack on a sheet pan in the oven at 180F.
 1. Ready to serve and ENJOY!

@@ -62,7 +62,7 @@ To get started with this particular recipe, we must prepare a few components. Yo
 1. Make ready  Curry powder to taste
 
 
-It&#39;s great for lunches, picnics, or for keeping on hand in the fridge! This Curry Chicken Salad is super clean and SO delicious. Loaded with spiced chicken, golden raisins, pistachios, herbs, and Greek yogurt + olive oil as a stand-in for mayo. TESTED &amp; PERFECTED RECIPE - This curried chicken salad has tender chicken, juicy grapes, and This curried chicken salad is savory, sweet, and a little spicy, with lots of crunch from grapes. 
+It&#39;s great for lunches, picnics, or for keeping on hand in the fridge! This Curry Chicken Salad is super clean and SO delicious. Loaded with spiced chicken, golden raisins, pistachios, herbs, and Greek yogurt + olive oil as a stand-in for mayo. TESTED & PERFECTED RECIPE - This curried chicken salad has tender chicken, juicy grapes, and This curried chicken salad is savory, sweet, and a little spicy, with lots of crunch from grapes. 
 
 <!--inarticleads2-->
 
@@ -72,6 +72,6 @@ It&#39;s great for lunches, picnics, or for keeping on hand in the fridge! This 
 1. Cover and let chill.
 1. Ready to serve and ENJOY!
 
-Loaded with spiced chicken, golden raisins, pistachios, herbs, and Greek yogurt + olive oil as a stand-in for mayo. TESTED &amp; PERFECTED RECIPE - This curried chicken salad has tender chicken, juicy grapes, and This curried chicken salad is savory, sweet, and a little spicy, with lots of crunch from grapes. Curry Chicken Salad is a creamy, spicy chicken salad with bursts of sweet grapes in every bite. This versatile recipe can be served as is, or on bread, rolls, wraps, salads, or as lettuce wraps. Chicken curry salad is one of my favorite salads to make because it&#39;s so easy to put together. 
+Loaded with spiced chicken, golden raisins, pistachios, herbs, and Greek yogurt + olive oil as a stand-in for mayo. TESTED & PERFECTED RECIPE - This curried chicken salad has tender chicken, juicy grapes, and This curried chicken salad is savory, sweet, and a little spicy, with lots of crunch from grapes. Curry Chicken Salad is a creamy, spicy chicken salad with bursts of sweet grapes in every bite. This versatile recipe can be served as is, or on bread, rolls, wraps, salads, or as lettuce wraps. Chicken curry salad is one of my favorite salads to make because it&#39;s so easy to put together. 
 
 So that is going to wrap this up with this exceptional food curry chicken salad recipe. Thanks so much for reading. I'm confident that you will make this at home. There's gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

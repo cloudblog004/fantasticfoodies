@@ -58,7 +58,7 @@ Hello everybody, it's John, welcome to my recipe site. Today, I'm gonna show you
 
 Stir fry kailan with tofu and chicken is one of the most popular of recent trending meals on earth. It's simple, it is fast, it tastes yummy. It is enjoyed by millions daily. Stir fry kailan with tofu and chicken is something which I have loved my whole life. They're nice and they look fantastic.
 
-Baby Kailan &amp; Air Fried Crispy Pork Stir Fry. Chicken and tofu are cooked in the wok with vegetables and Chinese flavorings. Serve alone, with rice, or over noodles. Toss in the garlic, onion, and peppers.
+Baby Kailan & Air Fried Crispy Pork Stir Fry. Chicken and tofu are cooked in the wok with vegetables and Chinese flavorings. Serve alone, with rice, or over noodles. Toss in the garlic, onion, and peppers.
 
 
 To get started with this recipe, we must prepare a few ingredients. You can have stir fry kailan with tofu and chicken using 14 ingredients and 5 steps. Here is how you cook that.

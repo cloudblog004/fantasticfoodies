@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Make Any-night-of-the-week Gabrielle&amp;#39;s southern style chicken alfredo"
-title: "Step-by-Step Guide to Make Any-night-of-the-week Gabrielle&amp;#39;s southern style chicken alfredo"
+description: "Step-by-Step Guide to Make Any-night-of-the-week Gabrielle's southern style chicken alfredo"
+title: "Step-by-Step Guide to Make Any-night-of-the-week Gabrielle's southern style chicken alfredo"
 slug: 2050-step-by-step-guide-to-make-any-night-of-the-week-gabrielle-and-39-s-southern-style-chicken-alfredo
 date: 2022-01-05T16:49:54.778Z
 image: https://img-global.cpcdn.com/recipes/32391285/680x482cq70/gabrielles-southern-style-chicken-alfredo-recipe-main-photo.jpg

@@ -1,6 +1,6 @@
 ---
-description: "How to Prepare Super Quick Homemade Ellie&amp;#39;s Crockpot BBQ Chicken"
-title: "How to Prepare Super Quick Homemade Ellie&amp;#39;s Crockpot BBQ Chicken"
+description: "How to Prepare Super Quick Homemade Ellie's Crockpot BBQ Chicken"
+title: "How to Prepare Super Quick Homemade Ellie's Crockpot BBQ Chicken"
 slug: 117-how-to-prepare-super-quick-homemade-ellie-and-39-s-crockpot-bbq-chicken
 date: 2022-03-07T23:50:43.037Z
 image: https://img-global.cpcdn.com/recipes/85d9cedf7c162982/680x482cq70/ellies-crockpot-bbq-chicken-recipe-main-photo.jpg

@@ -53,7 +53,7 @@ Hello everybody, it's Jim, welcome to our recipe page. Today, I will show you a 
 
 Pepper chicken is one of the most popular of recent trending meals in the world. It is appreciated by millions every day. It is simple, it is fast, it tastes yummy. They're nice and they look wonderful. Pepper chicken is something that I've loved my whole life.
 
-Chettinad pepper chicken masala - Learn to make pepper chicken recipe with easy step by step South Indian pepper chicken is a delicious, aromatic, hot &amp; spicy side dish to serve with rice or chapati. Chicken Starter Recipe By Varun Inamdar. The juice is a bit lemony, but mostly it is sour. But Lemon Pepper Chicken is not sour or even tangy.
+Chettinad pepper chicken masala - Learn to make pepper chicken recipe with easy step by step South Indian pepper chicken is a delicious, aromatic, hot & spicy side dish to serve with rice or chapati. Chicken Starter Recipe By Varun Inamdar. The juice is a bit lemony, but mostly it is sour. But Lemon Pepper Chicken is not sour or even tangy.
 
 
 To begin with this recipe, we must prepare a few components. You can cook pepper chicken using 9 ingredients and 6 steps. Here is how you can achieve it.
@@ -73,7 +73,7 @@ To begin with this recipe, we must prepare a few components. You can cook pepper
 1. Prepare  Curry
 
 
-I love to serve this Salt &amp; Pepper Chicken alongside fried rice and a nice cold beer. Pepper Chicken is an Indian Hindi-language film directed by Ratan Sil Sarma. It stars Dipannita Sharma, Boloram Das, Baharul Islam, Ravi Sarma, and Monuj Borkotoky. This restaurant-style Chinese Black Pepper Chicken recipe is quick and easy to make at home, totally versatile if you&#39;d like to sub in different veggies or proteins, and so comforting and delicious. 
+I love to serve this Salt & Pepper Chicken alongside fried rice and a nice cold beer. Pepper Chicken is an Indian Hindi-language film directed by Ratan Sil Sarma. It stars Dipannita Sharma, Boloram Das, Baharul Islam, Ravi Sarma, and Monuj Borkotoky. This restaurant-style Chinese Black Pepper Chicken recipe is quick and easy to make at home, totally versatile if you&#39;d like to sub in different veggies or proteins, and so comforting and delicious. 
 
 <!--inarticleads2-->
 

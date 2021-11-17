@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Super Quick Homemade Quick &amp;amp; Easy Chicken Pot Pie"
-title: "Recipe of Super Quick Homemade Quick &amp;amp; Easy Chicken Pot Pie"
+description: "Recipe of Super Quick Homemade Quick & Easy Chicken Pot Pie"
+title: "Recipe of Super Quick Homemade Quick & Easy Chicken Pot Pie"
 slug: 1337-recipe-of-super-quick-homemade-quick-and-amp-easy-chicken-pot-pie
 date: 2021-12-08T01:32:22.820Z
 image: https://img-global.cpcdn.com/recipes/0e8951ebfb3efaeb/680x482cq70/quick-easy-chicken-pot-pie-recipe-main-photo.jpg
@@ -27,7 +27,7 @@ recipeingredient:
 recipeinstructions:
 - "Preheat oven to 425 degrees F"
 - "Take 2 pots and fill with water. Cut potatoes into small cubes. Boil water in pot 1 and cook potatoes until tender, but not completely ready. After you’ve cooked the potatoes, set aside."
-- "Do the same with the chicken in pot 2. Boil water &amp; then boil chicken for 10 min. When chicken is ready, cut into small cube sizes (same size as the potatoes)."
+- "Do the same with the chicken in pot 2. Boil water & then boil chicken for 10 min. When chicken is ready, cut into small cube sizes (same size as the potatoes)."
 - "Melt butter in a large skillet over medium heat. Stir into butter, onion, flour, salt, and pepper, about 3-5 minutes. It makes a paste like substance."
 - "Remove skillet from heat and stir in Chicken broth, milk, chicken, carrots, and potatoes. Mix together well."
 - "Put skillet back on heat. Bring the mixture to a boil, about 1 minute. It should be a little thicker and ready to go."
@@ -52,20 +52,20 @@ recipecategory: Dinner
 ---
 
 
-![Quick &amp; Easy Chicken Pot Pie](https://img-global.cpcdn.com/recipes/0e8951ebfb3efaeb/680x482cq70/quick-easy-chicken-pot-pie-recipe-main-photo.jpg)
+![Quick & Easy Chicken Pot Pie](https://img-global.cpcdn.com/recipes/0e8951ebfb3efaeb/680x482cq70/quick-easy-chicken-pot-pie-recipe-main-photo.jpg)
 
-Hey everyone, it's me again, Dan, welcome to our recipe page. Today, I will show you a way to make a special dish, quick &amp; easy chicken pot pie. One of my favorites food recipes. For mine, I am going to make it a little bit tasty. This will be really delicious.
+Hey everyone, it's me again, Dan, welcome to our recipe page. Today, I will show you a way to make a special dish, quick & easy chicken pot pie. One of my favorites food recipes. For mine, I am going to make it a little bit tasty. This will be really delicious.
 
-Quick &amp; Easy Chicken Pot Pie is one of the most favored of current trending foods on earth. It is easy, it is quick, it tastes delicious. It is enjoyed by millions every day. They are fine and they look wonderful. Quick &amp; Easy Chicken Pot Pie is something which I've loved my whole life.
+Quick & Easy Chicken Pot Pie is one of the most favored of current trending foods on earth. It is easy, it is quick, it tastes delicious. It is enjoyed by millions every day. They are fine and they look wonderful. Quick & Easy Chicken Pot Pie is something which I've loved my whole life.
 
 Перевод слова quick, американское и британское произношение, транскрипция, словосочетания, однокоренные слова, примеры использования. Quick, as an adjective, refers to something moving with high speed. Quick may also refer to: Quick (restaurant), a Belgian fast-food restaurant chain. Quick (sportswear), a Dutch manufacturer of sportswear.
 
 
-To get started with this particular recipe, we must prepare a few components. You can have quick &amp; easy chicken pot pie using 11 ingredients and 8 steps. Here is how you can achieve it.
+To get started with this particular recipe, we must prepare a few components. You can have quick & easy chicken pot pie using 11 ingredients and 8 steps. Here is how you can achieve it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Quick &amp; Easy Chicken Pot Pie:
+##### The ingredients needed to make Quick & Easy Chicken Pot Pie:
 
 1. Prepare 1/3 cup butter
 1. Make ready 1/3 cup chopped onion
@@ -84,11 +84,11 @@ To get started with this particular recipe, we must prepare a few components. Yo
 
 <!--inarticleads2-->
 
-##### Instructions to make Quick &amp; Easy Chicken Pot Pie:
+##### Instructions to make Quick & Easy Chicken Pot Pie:
 
 1. Preheat oven to 425 degrees F
 1. Take 2 pots and fill with water. Cut potatoes into small cubes. Boil water in pot 1 and cook potatoes until tender, but not completely ready. After you’ve cooked the potatoes, set aside.
-1. Do the same with the chicken in pot 2. Boil water &amp; then boil chicken for 10 min. When chicken is ready, cut into small cube sizes (same size as the potatoes).
+1. Do the same with the chicken in pot 2. Boil water & then boil chicken for 10 min. When chicken is ready, cut into small cube sizes (same size as the potatoes).
 1. Melt butter in a large skillet over medium heat. Stir into butter, onion, flour, salt, and pepper, about 3-5 minutes. It makes a paste like substance.
 1. Remove skillet from heat and stir in Chicken broth, milk, chicken, carrots, and potatoes. Mix together well.
 1. Put skillet back on heat. Bring the mixture to a boil, about 1 minute. It should be a little thicker and ready to go.
@@ -98,4 +98,4 @@ To get started with this particular recipe, we must prepare a few components. Yo
 
 
 
-So that's going to wrap this up with this special food quick &amp; easy chicken pot pie recipe. Thanks so much for reading. I'm sure that you can make this at home. There is gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
+So that's going to wrap this up with this special food quick & easy chicken pot pie recipe. Thanks so much for reading. I'm sure that you can make this at home. There is gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

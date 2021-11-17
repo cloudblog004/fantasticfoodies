@@ -46,7 +46,7 @@ recipecategory: Dinner
 
 Hello everybody, it is Jim, welcome to my recipe site. Today, we're going to prepare a distinctive dish, hcg diet meal 3: baked chicken zucchini pockets. It is one of my favorites food recipes. For mine, I will make it a little bit tasty. This is gonna smell and look delicious.
 
-Baked Chicken &amp; Zucchini Haiku: &#34;Woah man mind was blown! I&#39;m very fond of recipes that don&#39;t take too long. Here is how you achieve that. Dinner: Baked chicken breast with steamed green beans, side salad dressings.
+Baked Chicken & Zucchini Haiku: *Woah man mind was blown! I&#39;m very fond of recipes that don&#39;t take too long. Here is how you achieve that. Dinner: Baked chicken breast with steamed green beans, side salad dressings.
 
 HCG diet meal 3: baked chicken zucchini pockets is one of the most favored of current trending foods on earth. It's enjoyed by millions every day. It's simple, it's fast, it tastes delicious. They are nice and they look fantastic. HCG diet meal 3: baked chicken zucchini pockets is something which I've loved my entire life.
 

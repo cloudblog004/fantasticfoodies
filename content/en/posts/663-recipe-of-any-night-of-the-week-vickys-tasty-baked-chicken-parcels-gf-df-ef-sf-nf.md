@@ -32,7 +32,7 @@ recipeinstructions:
 - "Baste again and serve in the foil if desired"
 - "These are great done on the BBQ grill too, ideal for outdoor eating, the kids love to use their hands and a paper plate! Just pop the parcels on the grill over indirect heat and close the lid"
 - "You can add more vegetables to the foil parcels to make a more substantial meal for an al fresco supper or even camping. Try adding a sliced potato, half a carrot, slicd bell pepper and some cut string beans underneath the chicken in each parcel. Season the veg before putting the chicken on top, then season the chicken too"
-- "Change the seasonings you use too. Balsamic vinegar instead of worcestershire sauce, taco seasoning in place of salt &amp; pepper, a dash of white wine, anything you want!"
+- "Change the seasonings you use too. Balsamic vinegar instead of worcestershire sauce, taco seasoning in place of salt & pepper, a dash of white wine, anything you want!"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -67,10 +67,10 @@ To begin with this particular recipe, we have to first prepare a few components.
 
 ##### The ingredients needed to make Vickys Tasty Baked Chicken Parcels, GF DF EF SF NF:
 
-1. Take 4 chicken leg &amp; thigh joints
-1. Get 1 pinch salt &amp; pepper to taste
+1. Take 4 chicken leg & thigh joints
+1. Get 1 pinch salt & pepper to taste
 1. Make ready 1 tbsp worcestershire sauce (see my profile for a gf recipe)
-1. Make ready 1 onion, peeled &amp; sliced
+1. Make ready 1 onion, peeled & sliced
 1. Make ready 50 grams mushrooms, sliced
 1. Take 1 clove garlic, finely chopped
 1. Get 1 tbsp lemon juice
@@ -93,7 +93,7 @@ To begin with this particular recipe, we have to first prepare a few components.
 1. Baste again and serve in the foil if desired
 1. These are great done on the BBQ grill too, ideal for outdoor eating, the kids love to use their hands and a paper plate! Just pop the parcels on the grill over indirect heat and close the lid
 1. You can add more vegetables to the foil parcels to make a more substantial meal for an al fresco supper or even camping. Try adding a sliced potato, half a carrot, slicd bell pepper and some cut string beans underneath the chicken in each parcel. Season the veg before putting the chicken on top, then season the chicken too
-1. Change the seasonings you use too. Balsamic vinegar instead of worcestershire sauce, taco seasoning in place of salt &amp; pepper, a dash of white wine, anything you want!
+1. Change the seasonings you use too. Balsamic vinegar instead of worcestershire sauce, taco seasoning in place of salt & pepper, a dash of white wine, anything you want!
 1. Ready to serve and ENJOY!
 
 

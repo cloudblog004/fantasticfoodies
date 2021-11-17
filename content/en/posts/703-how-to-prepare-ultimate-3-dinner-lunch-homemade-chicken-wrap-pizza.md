@@ -21,7 +21,7 @@ recipeingredient:
 recipeinstructions:
 - "Prepare and cook chicken breast! Dice into small pieces so you can easily add to your pizza."
 - "Remove low carb wrap from package and cover base of wrap with 30g of Pizza Base Sauce"
-- "Add toppings such as garlic, chilli, mushroom, capsicum &amp; veggies (broccolini etc..)"
+- "Add toppings such as garlic, chilli, mushroom, capsicum & veggies (broccolini etc..)"
 - "Add 100-150g cooked Chicken Breast to your wrap base pizza"
 - "Add 30g Tasty Light Cheese (spread evenly over pizza) - Add extra garlic or chilli if required"
 - "Bake in the oven at 150 degrees for about 15-20 mins or until golden brown. If using an Air Fryer it should only take 8-10 minutes on 180 degrees. Make sure you keep an eye on it!"
@@ -74,7 +74,7 @@ Instant Pot Chicken Marinara With Polenta. Our simple equation for this easy, sa
 
 1. Prepare and cook chicken breast! Dice into small pieces so you can easily add to your pizza.
 1. Remove low carb wrap from package and cover base of wrap with 30g of Pizza Base Sauce
-1. Add toppings such as garlic, chilli, mushroom, capsicum &amp; veggies (broccolini etc..)
+1. Add toppings such as garlic, chilli, mushroom, capsicum & veggies (broccolini etc..)
 1. Add 100-150g cooked Chicken Breast to your wrap base pizza
 1. Add 30g Tasty Light Cheese (spread evenly over pizza) - Add extra garlic or chilli if required
 1. Bake in the oven at 150 degrees for about 15-20 mins or until golden brown. If using an Air Fryer it should only take 8-10 minutes on 180 degrees. Make sure you keep an eye on it!

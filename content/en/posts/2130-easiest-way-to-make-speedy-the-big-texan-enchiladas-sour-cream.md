@@ -47,7 +47,7 @@ recipeinstructions:
 - "preheat oven 350"
 - "start by boiling your chicken with 1/2 onion and 1tspn chicken bullion (reserve 2 cups water when done cooking"
 - "when chicken is thourghly cooked let cool and shredd. dice your veggies and chop cilantro and add to shredded chicken. I give it a quick stir with 1 tspn oil salt pepper in med high heat pan turn off add cheese till melty. set aside"
-- "sauce: heat oil add onion, jalapeno garlic &amp; cumin cook about 3minutes or till onions start to sweat. Add flour stiring to work out flour taste were making a rue). add in milk, cream &amp;  reserved chicken stock keep cooking till starts to thickens. add seasonings and taste for more if needed. add drained chilies bring to a boil turn off and add in sour cream."
+- "sauce: heat oil add onion, jalapeno garlic & cumin cook about 3minutes or till onions start to sweat. Add flour stiring to work out flour taste were making a rue). add in milk, cream &  reserved chicken stock keep cooking till starts to thickens. add seasonings and taste for more if needed. add drained chilies bring to a boil turn off and add in sour cream."
 - "now to prepare: I don&#39;t fry my tortillas I put on a plate with damp papertown and heat till soft turning half way through. takes about 4minutes or so."
 - "now dip your softened tortilla into sauce roll and set in baking tray. too with monterey jack cheese  bake 350°F for 20 minutes. top with olives and your choice of toppings."
 - "Ready to serve and ENJOY!"
@@ -125,7 +125,7 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 1. preheat oven 350
 1. start by boiling your chicken with 1/2 onion and 1tspn chicken bullion (reserve 2 cups water when done cooking
 1. when chicken is thourghly cooked let cool and shredd. dice your veggies and chop cilantro and add to shredded chicken. I give it a quick stir with 1 tspn oil salt pepper in med high heat pan turn off add cheese till melty. set aside
-1. sauce: heat oil add onion, jalapeno garlic &amp; cumin cook about 3minutes or till onions start to sweat. Add flour stiring to work out flour taste were making a rue). add in milk, cream &amp;  reserved chicken stock keep cooking till starts to thickens. add seasonings and taste for more if needed. add drained chilies bring to a boil turn off and add in sour cream.
+1. sauce: heat oil add onion, jalapeno garlic & cumin cook about 3minutes or till onions start to sweat. Add flour stiring to work out flour taste were making a rue). add in milk, cream &  reserved chicken stock keep cooking till starts to thickens. add seasonings and taste for more if needed. add drained chilies bring to a boil turn off and add in sour cream.
 1. now to prepare: I don&#39;t fry my tortillas I put on a plate with damp papertown and heat till soft turning half way through. takes about 4minutes or so.
 1. now dip your softened tortilla into sauce roll and set in baking tray. too with monterey jack cheese  bake 350°F for 20 minutes. top with olives and your choice of toppings.
 1. Ready to serve and ENJOY!

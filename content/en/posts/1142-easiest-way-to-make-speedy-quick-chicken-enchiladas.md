@@ -26,7 +26,7 @@ recipeinstructions:
 - "Pour black beans in pot but don&#39;t stir in. Your getting your ingredients ready to make your enchiladas."
 - "Grease bottom of baking dish. Then start the process. Warmed tortilla, sauce, chicken, beans, cheese and roll it up and place seam down ."
 - "Pour the rest of enchilada sauce on top and add more cheese . Should look something like this. Bake uncovered for about 20 minutes."
-- "For the complete dish i served with my 20 minute Enchilada sauce recipe and mexican quinoa pilaf. All recipes are found in &#34; my recipes&#34;"
+- "For the complete dish i served with my 20 minute Enchilada sauce recipe and mexican quinoa pilaf. All recipes are found in * my recipes*"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -52,7 +52,7 @@ Hello everybody, it is Louise, welcome to our recipe page. Today, we're going to
 
 Quick chicken enchiladas is one of the most popular of recent trending meals on earth. It's appreciated by millions every day. It is simple, it's quick, it tastes yummy. They are fine and they look fantastic. Quick chicken enchiladas is something that I've loved my entire life.
 
-Quick Chicken Enchiladas. this link is to an external site that may or may not meet accessibility guidelines. Watch us make this easy enchilada recipe. It&#39;s quick and easy cheesy chicken enchiladas. So simple and quick, he can do it on the go!*****Follow C&amp;B Crew on.
+Quick Chicken Enchiladas. this link is to an external site that may or may not meet accessibility guidelines. Watch us make this easy enchilada recipe. It&#39;s quick and easy cheesy chicken enchiladas. So simple and quick, he can do it on the go!*****Follow C&B Crew on.
 
 
 To get started with this recipe, we must first prepare a few components. You can have quick chicken enchiladas using 7 ingredients and 6 steps. Here is how you cook that.
@@ -81,9 +81,9 @@ Quick tip: While the sauce cooks, shred the chicken. These easy, cheesy chicken 
 1. Pour black beans in pot but don&#39;t stir in. Your getting your ingredients ready to make your enchiladas.
 1. Grease bottom of baking dish. Then start the process. Warmed tortilla, sauce, chicken, beans, cheese and roll it up and place seam down .
 1. Pour the rest of enchilada sauce on top and add more cheese . Should look something like this. Bake uncovered for about 20 minutes.
-1. For the complete dish i served with my 20 minute Enchilada sauce recipe and mexican quinoa pilaf. All recipes are found in &#34; my recipes&#34;
+1. For the complete dish i served with my 20 minute Enchilada sauce recipe and mexican quinoa pilaf. All recipes are found in * my recipes*
 1. Ready to serve and ENJOY!
 
-Our easy green chicken enchilada recipe is weeknight ready and all but guaranteed to please everyone from starving spouses to picky toddlers. The enchiladas are simple and fun to make and the sauce is super fast. Shredded beef and pork also work perfectly in this dish. Quick &amp; Easy White Chicken Enchiladas. This is how you do it, folks… These enchiladas are made simple with a rotisserie chicken that has been pulled and shredded into small pieces, but you can use. 
+Our easy green chicken enchilada recipe is weeknight ready and all but guaranteed to please everyone from starving spouses to picky toddlers. The enchiladas are simple and fun to make and the sauce is super fast. Shredded beef and pork also work perfectly in this dish. Quick & Easy White Chicken Enchiladas. This is how you do it, folks… These enchiladas are made simple with a rotisserie chicken that has been pulled and shredded into small pieces, but you can use. 
 
 So that's going to wrap it up for this exceptional food quick chicken enchiladas recipe. Thanks so much for your time. I'm sure that you can make this at home. There's gonna be interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

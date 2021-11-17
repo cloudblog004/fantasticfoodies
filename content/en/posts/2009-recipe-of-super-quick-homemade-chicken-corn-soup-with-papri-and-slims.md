@@ -55,7 +55,7 @@ Hey everyone, it's Louise, welcome to our recipe page. Today, I will show you a 
 
 Chicken corn soup with papri and slims is one of the most well liked of recent trending meals in the world. It's enjoyed by millions daily. It is easy, it is quick, it tastes delicious. Chicken corn soup with papri and slims is something which I've loved my entire life. They are nice and they look wonderful.
 
-Easy Chicken Corn Soup Recipe (Indo-Chinese). Смотреть позже. Поделиться. This Chinese Corn Soup aka Chinese Egg Drop Soup is just like you get in Chinese restaurants! I always have little bags of shredded cooked chicken in the freezer so I almost always throw that in, which is why I am sharing this Chinese Corn Soup with chicken in it it. Crockpot Chicken Tortilla Soup with Black Beans &amp; Corn (Slow Cooker) Cookin&#39; Canuck.
+Easy Chicken Corn Soup Recipe (Indo-Chinese). Смотреть позже. Поделиться. This Chinese Corn Soup aka Chinese Egg Drop Soup is just like you get in Chinese restaurants! I always have little bags of shredded cooked chicken in the freezer so I almost always throw that in, which is why I am sharing this Chinese Corn Soup with chicken in it it. Crockpot Chicken Tortilla Soup with Black Beans & Corn (Slow Cooker) Cookin&#39; Canuck.
 
 
 To get started with this particular recipe, we must first prepare a few ingredients. You can cook chicken corn soup with papri and slims using 12 ingredients and 4 steps. Here is how you cook it.

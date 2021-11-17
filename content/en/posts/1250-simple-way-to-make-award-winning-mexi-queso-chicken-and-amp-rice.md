@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Make Award-winning Mexi Queso Chicken &amp;amp; Rice"
-title: "Simple Way to Make Award-winning Mexi Queso Chicken &amp;amp; Rice"
+description: "Simple Way to Make Award-winning Mexi Queso Chicken & Rice"
+title: "Simple Way to Make Award-winning Mexi Queso Chicken & Rice"
 slug: 1250-simple-way-to-make-award-winning-mexi-queso-chicken-and-amp-rice
 date: 2021-11-25T23:12:41.718Z
 image: https://img-global.cpcdn.com/recipes/39ac6e913b7c6236/680x482cq70/mexi-queso-chicken-rice-recipe-main-photo.jpg
@@ -52,20 +52,20 @@ recipecategory: Dinner
 ---
 
 
-![Mexi Queso Chicken &amp; Rice](https://img-global.cpcdn.com/recipes/39ac6e913b7c6236/680x482cq70/mexi-queso-chicken-rice-recipe-main-photo.jpg)
+![Mexi Queso Chicken & Rice](https://img-global.cpcdn.com/recipes/39ac6e913b7c6236/680x482cq70/mexi-queso-chicken-rice-recipe-main-photo.jpg)
 
-Hey everyone, hope you are having an amazing day today. Today, I'm gonna show you how to prepare a distinctive dish, mexi queso chicken &amp; rice. It is one of my favorites food recipes. For mine, I will make it a little bit tasty. This will be really delicious.
-
-
-
-Mexi Queso Chicken &amp; Rice is one of the most popular of current trending foods on earth. It is simple, it is fast, it tastes yummy. It is appreciated by millions daily. They are fine and they look fantastic. Mexi Queso Chicken &amp; Rice is something that I have loved my whole life.
+Hey everyone, hope you are having an amazing day today. Today, I'm gonna show you how to prepare a distinctive dish, mexi queso chicken & rice. It is one of my favorites food recipes. For mine, I will make it a little bit tasty. This will be really delicious.
 
 
-To get started with this recipe, we must prepare a few components. You can cook mexi queso chicken &amp; rice using 10 ingredients and 9 steps. Here is how you cook that.
+
+Mexi Queso Chicken & Rice is one of the most popular of current trending foods on earth. It is simple, it is fast, it tastes yummy. It is appreciated by millions daily. They are fine and they look fantastic. Mexi Queso Chicken & Rice is something that I have loved my whole life.
+
+
+To get started with this recipe, we must prepare a few components. You can cook mexi queso chicken & rice using 10 ingredients and 9 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Mexi Queso Chicken &amp; Rice:
+##### The ingredients needed to make Mexi Queso Chicken & Rice:
 
 1. Take 4 boneless skinless chicken breasts
 1. Prepare  Mexi seasonings of choice: Mrs. Dash Spicy, cumin, chili powder
@@ -76,14 +76,14 @@ To get started with this recipe, we must prepare a few components. You can cook 
 1. Take 2 Tbsp. butter
 1. Make ready 1 cup milk
 1. Prepare 1 cup shredded Monterey Jack cheese, not pre-packaged!
-1. Get  Couple quick dashes of ground red pepper &amp; black pepper
+1. Get  Couple quick dashes of ground red pepper & black pepper
 
 
 
 
 <!--inarticleads2-->
 
-##### Steps to make Mexi Queso Chicken &amp; Rice:
+##### Steps to make Mexi Queso Chicken & Rice:
 
 1. Cook rice according to package directions; keep warm.
 1. Cook chicken breasts seasoned with seasonings of choice. Keep warm.
@@ -98,4 +98,4 @@ To get started with this recipe, we must prepare a few components. You can cook 
 
 
 
-So that's going to wrap this up with this exceptional food mexi queso chicken &amp; rice recipe. Thank you very much for reading. I'm confident you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!
+So that's going to wrap this up with this exceptional food mexi queso chicken & rice recipe. Thank you very much for reading. I'm confident you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

@@ -23,7 +23,7 @@ recipeingredient:
 - "2 Tbsps Kasuri Methi Dried Fenugreek Leaves"
 - "2-3 tbsps Mustard oil"
 recipeinstructions:
-- "Heat oil and add the chopped onion, saute till it becomes Pinkish and translucent, add the chicken pieces and bhunno it for 5-10 minutes. After that add ginger garlic paste and bhunno it further. Add grounded Cummin and turmeric and bhunno &amp; cook further for 5-10 minutes."
+- "Heat oil and add the chopped onion, saute till it becomes Pinkish and translucent, add the chicken pieces and bhunno it for 5-10 minutes. After that add ginger garlic paste and bhunno it further. Add grounded Cummin and turmeric and bhunno & cook further for 5-10 minutes."
 - "Rub Kasuri Methi between your palm and then add to the chicken,mix well for 2-3 minutes. Then add enough water to boil and cook. Cook till the chicken are cooked well. This is a dry kind of prepration, with masala sticking to the chicken pieces, so when the oil seperates from it, you are done but however if you like gravy add some hot water and cook for 5-10 minutes for the flavours to infuse in the gravy. Serve with Dal, Roti or Rice and veggies."
 - "Ready to serve and ENJOY!"
 categories:
@@ -76,7 +76,7 @@ To get started with this recipe, we must prepare a few components. You can have 
 
 ##### Instructions to make Methi Chicken (Dry type):
 
-1. Heat oil and add the chopped onion, saute till it becomes Pinkish and translucent, add the chicken pieces and bhunno it for 5-10 minutes. After that add ginger garlic paste and bhunno it further. Add grounded Cummin and turmeric and bhunno &amp; cook further for 5-10 minutes.
+1. Heat oil and add the chopped onion, saute till it becomes Pinkish and translucent, add the chicken pieces and bhunno it for 5-10 minutes. After that add ginger garlic paste and bhunno it further. Add grounded Cummin and turmeric and bhunno & cook further for 5-10 minutes.
 1. Rub Kasuri Methi between your palm and then add to the chicken,mix well for 2-3 minutes. Then add enough water to boil and cook. Cook till the chicken are cooked well. This is a dry kind of prepration, with masala sticking to the chicken pieces, so when the oil seperates from it, you are done but however if you like gravy add some hot water and cook for 5-10 minutes for the flavours to infuse in the gravy. Serve with Dal, Roti or Rice and veggies.
 1. Ready to serve and ENJOY!
 

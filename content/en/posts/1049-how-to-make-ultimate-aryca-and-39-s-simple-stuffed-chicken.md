@@ -1,6 +1,6 @@
 ---
-description: "How to Make Ultimate Aryca&amp;#39;s simple stuffed chicken"
-title: "How to Make Ultimate Aryca&amp;#39;s simple stuffed chicken"
+description: "How to Make Ultimate Aryca's simple stuffed chicken"
+title: "How to Make Ultimate Aryca's simple stuffed chicken"
 slug: 1049-how-to-make-ultimate-aryca-and-39-s-simple-stuffed-chicken
 date: 2021-11-15T22:46:29.918Z
 image: https://img-global.cpcdn.com/recipes/4841328510238720/680x482cq70/arycas-simple-stuffed-chicken-recipe-main-photo.jpg

@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Homemade Creamy Pesto Chicken &amp;amp; Pasta Quick Hack"
-title: "Recipe of Homemade Creamy Pesto Chicken &amp;amp; Pasta Quick Hack"
+description: "Recipe of Homemade Creamy Pesto Chicken & Pasta Quick Hack"
+title: "Recipe of Homemade Creamy Pesto Chicken & Pasta Quick Hack"
 slug: 1109-recipe-of-homemade-creamy-pesto-chicken-and-amp-pasta-quick-hack
 date: 2022-03-25T08:50:15.468Z
 image: https://img-global.cpcdn.com/recipes/41e7d6151e6f5bad/680x482cq70/creamy-pesto-chicken-pasta-quick-hack-recipe-main-photo.jpg
@@ -51,20 +51,20 @@ recipecategory: Dessert
 ---
 
 
-![Creamy Pesto Chicken &amp; Pasta Quick Hack](https://img-global.cpcdn.com/recipes/41e7d6151e6f5bad/680x482cq70/creamy-pesto-chicken-pasta-quick-hack-recipe-main-photo.jpg)
+![Creamy Pesto Chicken & Pasta Quick Hack](https://img-global.cpcdn.com/recipes/41e7d6151e6f5bad/680x482cq70/creamy-pesto-chicken-pasta-quick-hack-recipe-main-photo.jpg)
 
-Hello everybody, hope you are having an amazing day today. Today, I'm gonna show you how to make a special dish, creamy pesto chicken &amp; pasta quick hack. It is one of my favorites. For mine, I will make it a bit unique. This will be really delicious.
+Hello everybody, hope you are having an amazing day today. Today, I'm gonna show you how to make a special dish, creamy pesto chicken & pasta quick hack. It is one of my favorites. For mine, I will make it a bit unique. This will be really delicious.
 
-Creamy Pesto Chicken &amp; Pasta Quick Hack is one of the most popular of recent trending foods on earth. It's enjoyed by millions daily. It is simple, it is quick, it tastes delicious. They're nice and they look fantastic. Creamy Pesto Chicken &amp; Pasta Quick Hack is something that I've loved my whole life.
-
-
+Creamy Pesto Chicken & Pasta Quick Hack is one of the most popular of recent trending foods on earth. It's enjoyed by millions daily. It is simple, it is quick, it tastes delicious. They're nice and they look fantastic. Creamy Pesto Chicken & Pasta Quick Hack is something that I've loved my whole life.
 
 
-To begin with this particular recipe, we must prepare a few components. You can have creamy pesto chicken &amp; pasta quick hack using 12 ingredients and 6 steps. Here is how you can achieve that.
+
+
+To begin with this particular recipe, we must prepare a few components. You can have creamy pesto chicken & pasta quick hack using 12 ingredients and 6 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Creamy Pesto Chicken &amp; Pasta Quick Hack:
+##### The ingredients needed to make Creamy Pesto Chicken & Pasta Quick Hack:
 
 1. Prepare  Your favorite Chicken part/s
 1. Take  Bottled or ready-made Pesto sauce
@@ -84,7 +84,7 @@ To begin with this particular recipe, we must prepare a few components. You can 
 
 <!--inarticleads2-->
 
-##### Steps to make Creamy Pesto Chicken &amp; Pasta Quick Hack:
+##### Steps to make Creamy Pesto Chicken & Pasta Quick Hack:
 
 1. In a pot heat your water and add the bay leaves, garlic, onions, peppercorns and 1/4 of a chicken bullion cube. Add your chicken (salted lightly), thawed or 1/2 frozen. How much chicken? Depends how many are eating. How much water? Enough to submerge the chicken. Cover, turn, check until chicken is cooked (about 15-20 mins for 2 pcs of quarter chicken). Set aside when cooked.
 1. Meanwhile while boiling chicken, cook your pasta according to package instructions. Don&#39;t forget to add salt and oil or butter in the water. Set aside when cooked.
@@ -96,4 +96,4 @@ To begin with this particular recipe, we must prepare a few components. You can 
 
 
 
-So that is going to wrap this up for this special food creamy pesto chicken &amp; pasta quick hack recipe. Thank you very much for your time. I am sure that you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
+So that is going to wrap this up for this special food creamy pesto chicken & pasta quick hack recipe. Thank you very much for your time. I am sure that you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

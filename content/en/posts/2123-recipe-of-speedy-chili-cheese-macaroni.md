@@ -73,7 +73,7 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 1. Make ready 1-2 Cup Chicken Stock
 1. Take 1 Small Can Tomato Sauce
 1. Get 1/2 Bag Macaroni
-1. Make ready 1 Block Colby&amp; Monterrey Jack Cheese
+1. Make ready 1 Block Colby& Monterrey Jack Cheese
 1. Take  Salt and Pepper
 1. Get 1 Small Tomatoe
 1. Prepare 1 tsp Cumin

@@ -68,7 +68,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can h
 1. Prepare 8 pieces Chicken
 1. Make ready 1 Onion chopped
 1. Take Half all peppers chopped
-1. Get Spoon ginger, garlic &amp; dhana
+1. Get Spoon ginger, garlic & dhana
 1. Take  I pkt tomato paste
 1. Make ready  Chopped 2 carrots
 1. Make ready 2 potatoes cut in squares

@@ -69,7 +69,7 @@ To get started with this recipe, we must prepare a few components. You can have 
 
 1. Make ready 2 pounds boneless, skinless chicken thighs
 1. Prepare 1-1.5 teaspoons kosher salt
-1. Prepare 1/2 an onion, cut into 1/4&#34; slices vertically
+1. Prepare 1/2 an onion, cut into 1/4* slices vertically
 1. Prepare 4 garlic cloves, crushed
 1. Make ready 12 grape or cherry tomatoes (or you can cut a couple of Romas or regular salad tomatoes into 6 pieces each)
 1. Get 1/2 teaspoon cumin

@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Award-winning Salad with Microwave-Steamed Chicken Tenders &amp;amp; Daikon Sprouts"
-title: "Recipe of Award-winning Salad with Microwave-Steamed Chicken Tenders &amp;amp; Daikon Sprouts"
+description: "Recipe of Award-winning Salad with Microwave-Steamed Chicken Tenders & Daikon Sprouts"
+title: "Recipe of Award-winning Salad with Microwave-Steamed Chicken Tenders & Daikon Sprouts"
 slug: 1221-recipe-of-award-winning-salad-with-microwave-steamed-chicken-tenders-and-amp-daikon-sprouts
 date: 2022-02-11T13:42:47.758Z
 image: https://img-global.cpcdn.com/recipes/5845021401022464/680x482cq70/salad-with-microwave-steamed-chicken-tenders-daikon-sprouts-recipe-main-photo.jpg
@@ -53,20 +53,20 @@ recipecategory: Dessert
 ---
 
 
-![Salad with Microwave-Steamed Chicken Tenders &amp; Daikon Sprouts](https://img-global.cpcdn.com/recipes/5845021401022464/680x482cq70/salad-with-microwave-steamed-chicken-tenders-daikon-sprouts-recipe-main-photo.jpg)
+![Salad with Microwave-Steamed Chicken Tenders & Daikon Sprouts](https://img-global.cpcdn.com/recipes/5845021401022464/680x482cq70/salad-with-microwave-steamed-chicken-tenders-daikon-sprouts-recipe-main-photo.jpg)
 
-Hello everybody, hope you're having an incredible day today. Today, I will show you a way to prepare a special dish, salad with microwave-steamed chicken tenders &amp; daikon sprouts. It is one of my favorites. For mine, I am going to make it a bit tasty. This will be really delicious.
+Hello everybody, hope you're having an incredible day today. Today, I will show you a way to prepare a special dish, salad with microwave-steamed chicken tenders & daikon sprouts. It is one of my favorites. For mine, I am going to make it a bit tasty. This will be really delicious.
 
-Salad with Microwave-Steamed Chicken Tenders &amp; Daikon Sprouts is one of the most favored of current trending foods in the world. It's easy, it's quick, it tastes delicious. It is appreciated by millions every day. They are fine and they look fantastic. Salad with Microwave-Steamed Chicken Tenders &amp; Daikon Sprouts is something that I've loved my entire life.
-
-
+Salad with Microwave-Steamed Chicken Tenders & Daikon Sprouts is one of the most favored of current trending foods in the world. It's easy, it's quick, it tastes delicious. It is appreciated by millions every day. They are fine and they look fantastic. Salad with Microwave-Steamed Chicken Tenders & Daikon Sprouts is something that I've loved my entire life.
 
 
-To get started with this recipe, we must first prepare a few ingredients. You can cook salad with microwave-steamed chicken tenders &amp; daikon sprouts using 14 ingredients and 6 steps. Here is how you cook it.
+
+
+To get started with this recipe, we must first prepare a few ingredients. You can cook salad with microwave-steamed chicken tenders & daikon sprouts using 14 ingredients and 6 steps. Here is how you cook it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Salad with Microwave-Steamed Chicken Tenders &amp; Daikon Sprouts:
+##### The ingredients needed to make Salad with Microwave-Steamed Chicken Tenders & Daikon Sprouts:
 
 1. Get 3 pieces Chicken tenders
 1. Make ready 1 tsp ★ Shio-koji(or salt)
@@ -88,7 +88,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 
 <!--inarticleads2-->
 
-##### Steps to make Salad with Microwave-Steamed Chicken Tenders &amp; Daikon Sprouts:
+##### Steps to make Salad with Microwave-Steamed Chicken Tenders & Daikon Sprouts:
 
 1. To steam the chicken tenders: Arrange the chicken on a plate and sprinkle on the ingredients marked with ★ in order. Place the rosemary (or other herb) on top, wrap it with plastic wrap and cook it at 700W for 1 minute and 30 seconds. Turn the chicken over and cook it for another 1 minute.
 1. The cooking time depends on the size of the chicken. Check the chicken when you turn it over, and adjust the cooking time if necessary. Leave the chicken, with the plastic on, until they are cool.
@@ -100,4 +100,4 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 
 
 
-So that's going to wrap this up for this exceptional food salad with microwave-steamed chicken tenders &amp; daikon sprouts recipe. Thanks so much for your time. I'm confident that you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!
+So that's going to wrap this up for this exceptional food salad with microwave-steamed chicken tenders & daikon sprouts recipe. Thanks so much for your time. I'm confident that you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

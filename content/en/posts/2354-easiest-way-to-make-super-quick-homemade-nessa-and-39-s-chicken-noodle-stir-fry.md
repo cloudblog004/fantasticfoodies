@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Super Quick Homemade Nessa&amp;#39;s Chicken Noodle Stir Fry"
-title: "Easiest Way to Make Super Quick Homemade Nessa&amp;#39;s Chicken Noodle Stir Fry"
+description: "Easiest Way to Make Super Quick Homemade Nessa's Chicken Noodle Stir Fry"
+title: "Easiest Way to Make Super Quick Homemade Nessa's Chicken Noodle Stir Fry"
 slug: 2354-easiest-way-to-make-super-quick-homemade-nessa-and-39-s-chicken-noodle-stir-fry
 date: 2022-05-20T05:39:07.923Z
 image: https://img-global.cpcdn.com/recipes/5030774436790272/680x482cq70/nessas-chicken-noodle-stir-fry-recipe-main-photo.jpg
@@ -68,14 +68,14 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 
 1. Make ready 4 Chicken Breasts
 1. Get 1 Onion
-1. Take 1 Bell Peppers (Red, Green&amp; Yellow)
+1. Take 1 Bell Peppers (Red, Green& Yellow)
 1. Prepare 1 Spring Onions
 1. Take 1 packages Mushrooms (Pack)
 1. Make ready 2 clove Garlic
 1. Take 1 tbsp Ginger
 1. Take 1/2 cup Soy Sauce
 1. Get 1 tbsp Lemon Juice
-1. Take 1 Salt &amp; Pepper To Taste
+1. Take 1 Salt & Pepper To Taste
 1. Make ready 1 Egg Noodles
 
 

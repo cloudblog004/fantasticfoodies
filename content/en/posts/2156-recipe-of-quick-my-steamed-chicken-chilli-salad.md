@@ -72,7 +72,7 @@ To begin with this recipe, we have to prepare a few components. You can cook my 
 1. Get 2 tbls Sliced red onion
 1. Make ready 10 Thin slices cucumber
 1. Prepare 2 tbls chopped yellow Bell pepper
-1. Get  Salt &amp; Pepper to season
+1. Get  Salt & Pepper to season
 1. Prepare 2 tsp chilli sauce dotted all over the salad
 1. Take 2 tsp mayonnaise or sour cream dotted all on the chicken
 1. Make ready 1 inch spring onion chopped to garnish

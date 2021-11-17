@@ -21,12 +21,12 @@ recipeingredient:
 - "1 1/3 cups Franks red hot sauce"
 recipeinstructions:
 - "Put chicken in slow cooker."
-- "In sauce pan on medium-high heat combine hot sauce, coconut oil, coconut aminos, garlic powder &amp; cayenne pepper. Stir and heat until mixed."
+- "In sauce pan on medium-high heat combine hot sauce, coconut oil, coconut aminos, garlic powder & cayenne pepper. Stir and heat until mixed."
 - "Pour sauce over chicken in slow cooker."
 - "Cook 4-6 hours on low."
 - "Remove and shred with 2 forks."
 - "Return chicken to slow cooker on warm until ready to serve."
-- "Serve chicken in baked sweet potatoes &amp; drizzle with Ranch Dressing."
+- "Serve chicken in baked sweet potatoes & drizzle with Ranch Dressing."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -76,12 +76,12 @@ Making Slow Cooker Buffalo Chicken is a no-brainer for your next party. Not only
 ##### Instructions to make Slow cooker Buffalo chicken:
 
 1. Put chicken in slow cooker.
-1. In sauce pan on medium-high heat combine hot sauce, coconut oil, coconut aminos, garlic powder &amp; cayenne pepper. Stir and heat until mixed.
+1. In sauce pan on medium-high heat combine hot sauce, coconut oil, coconut aminos, garlic powder & cayenne pepper. Stir and heat until mixed.
 1. Pour sauce over chicken in slow cooker.
 1. Cook 4-6 hours on low.
 1. Remove and shred with 2 forks.
 1. Return chicken to slow cooker on warm until ready to serve.
-1. Serve chicken in baked sweet potatoes &amp; drizzle with Ranch Dressing.
+1. Serve chicken in baked sweet potatoes & drizzle with Ranch Dressing.
 1. Ready to serve and ENJOY!
 
 Slow cooked chicken tossed with just the right. Simply add all of your traditional buffalo chicken dip ingredients to the bowl of a slow cooker… …stir them together… …and then after cooking the …this ridiculously irresistible dip will be ready to serve. I&#39;ve made buffalo chicken dip dozens of times, and there are never ever. Could I use chicken breasts instead of the ground chicken in the recipe? If so, does that change any of the recipe instructions? 

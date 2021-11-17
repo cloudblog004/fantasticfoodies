@@ -27,7 +27,7 @@ recipeingredient:
 - "2 tbsp lime juice or the juice of 1 lime"
 - "2 clove garlic minced"
 recipeinstructions:
-- "Grill chicken breasts and dice into 1/2&#34; cubes."
+- "Grill chicken breasts and dice into 1/2* cubes."
 - "add ingredients for sauce to jar, close jar, shake until ingredients well combined"
 - "Wash lettuce leaves and spread out on a plate (reserve half the leaves for leftovers)."
 - "Fill with chicken, broccoli, napa cabbage,  carrots, green onions, and cilantro."
@@ -89,7 +89,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 
 ##### Steps to make Paleo Thai Chicken Lettuce Wraps:
 
-1. Grill chicken breasts and dice into 1/2&#34; cubes.
+1. Grill chicken breasts and dice into 1/2* cubes.
 1. add ingredients for sauce to jar, close jar, shake until ingredients well combined
 1. Wash lettuce leaves and spread out on a plate (reserve half the leaves for leftovers).
 1. Fill with chicken, broccoli, napa cabbage,  carrots, green onions, and cilantro.

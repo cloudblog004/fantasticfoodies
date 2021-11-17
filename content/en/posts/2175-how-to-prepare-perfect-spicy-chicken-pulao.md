@@ -55,7 +55,7 @@ Hey everyone, hope you're having an incredible day today. Today, we're going to 
 
 Spicy chicken pulao is one of the most well liked of recent trending foods on earth. It is appreciated by millions every day. It's simple, it is fast, it tastes yummy. They're fine and they look wonderful. Spicy chicken pulao is something that I've loved my whole life.
 
-Chicken pulao recipe - one pot delicious chicken pilaf made with mild spices, fragrant rice and Chicken pulao How to make chicken pulao (Instant pot &amp; stovetop). See recipes for Spicy chicken pulao, Chicken Pulao too. Spicy chicken pulao. rice•chicken•onion•tomato•yogurt•black pepper•Pisa garam masala•garam masala sabut.
+Chicken pulao recipe - one pot delicious chicken pilaf made with mild spices, fragrant rice and Chicken pulao How to make chicken pulao (Instant pot & stovetop). See recipes for Spicy chicken pulao, Chicken Pulao too. Spicy chicken pulao. rice•chicken•onion•tomato•yogurt•black pepper•Pisa garam masala•garam masala sabut.
 
 
 To get started with this recipe, we have to first prepare a few components. You can have spicy chicken pulao using 14 ingredients and 2 steps. Here is how you cook that.

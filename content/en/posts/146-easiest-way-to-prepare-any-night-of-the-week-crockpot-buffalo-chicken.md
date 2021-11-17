@@ -50,7 +50,7 @@ Hello everybody, hope you are having an incredible day today. Today, I will show
 
 Crockpot Buffalo Chicken is one of the most favored of recent trending meals on earth. It is enjoyed by millions every day. It's easy, it is quick, it tastes yummy. They are fine and they look wonderful. Crockpot Buffalo Chicken is something which I have loved my entire life.
 
-Crockpot Buffalo Chicken is easy, juicy, versatile with customizable heat so everyone wins! This Crockpot Buffalo Chicken is destined to become a new &#34;dump and run&#34; recipe favorite! Are you looking for an incredibly easy way to make shredded chicken for sandwiches, salads, tacos and more? Crock Pot chicken wings have a spicy Buffalo sauce for a fantastic snack or light meal.
+Crockpot Buffalo Chicken is easy, juicy, versatile with customizable heat so everyone wins! This Crockpot Buffalo Chicken is destined to become a new *dump and run* recipe favorite! Are you looking for an incredibly easy way to make shredded chicken for sandwiches, salads, tacos and more? Crock Pot chicken wings have a spicy Buffalo sauce for a fantastic snack or light meal.
 
 
 To get started with this recipe, we must prepare a few ingredients. You can cook crockpot buffalo chicken using 6 ingredients and 5 steps. Here is how you cook it.

@@ -78,6 +78,6 @@ Stir in cream of chicken soup. Bottled stir-fry sauce makes this chicken and veg
 1. Cook your rice and stir fried vegetables with the sesame seed oil
 1. Ready to serve and ENJOY!
 
-Weight Watchers Meals -Chinese Chicken Pineapple Stir-Fry Recipe. A healthy, quick and easy dinner idea. I&#39;m gonna say it now: stir fry must be the most versatile meal there is. Get a pan really hot (even though mine can&#39;t get as hot as my mom&#39;s cast iron wok), throw in whatever meat and I almost always add pineapple into my stir fry, but this was the first time I&#39;d ever used noodles instead of rice. Pineapple chicken stir fry with crisp broccoli &amp; flavorful sweet and sour sauce. 
+Weight Watchers Meals -Chinese Chicken Pineapple Stir-Fry Recipe. A healthy, quick and easy dinner idea. I&#39;m gonna say it now: stir fry must be the most versatile meal there is. Get a pan really hot (even though mine can&#39;t get as hot as my mom&#39;s cast iron wok), throw in whatever meat and I almost always add pineapple into my stir fry, but this was the first time I&#39;d ever used noodles instead of rice. Pineapple chicken stir fry with crisp broccoli & flavorful sweet and sour sauce. 
 
 So that is going to wrap it up with this special food pineapple chicken stir fry kinda recipe. Thanks so much for your time. I'm confident you will make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

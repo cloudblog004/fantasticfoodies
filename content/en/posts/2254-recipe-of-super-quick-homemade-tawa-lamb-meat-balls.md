@@ -76,7 +76,7 @@ To get started with this recipe, we must first prepare a few components. You can
 1. Get 1/2 tsp Red chilli powder or to taste
 1. Make ready 1.5 tsp salt or to taste
 1. Prepare 1/2 tsp Turmeric
-1. Take 3 tsp coriander &amp; cumin powder
+1. Take 3 tsp coriander & cumin powder
 1. Take 1/2 Finely chopped onion
 1. Make ready  To cook
 1. Prepare 3 tbsp oil

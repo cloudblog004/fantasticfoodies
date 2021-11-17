@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Perfect Easy Chicken &amp;amp; Dumplings"
-title: "Steps to Prepare Perfect Easy Chicken &amp;amp; Dumplings"
+description: "Steps to Prepare Perfect Easy Chicken & Dumplings"
+title: "Steps to Prepare Perfect Easy Chicken & Dumplings"
 slug: 1055-steps-to-prepare-perfect-easy-chicken-and-amp-dumplings
 date: 2022-05-17T18:24:03.590Z
 image: https://img-global.cpcdn.com/recipes/4845707222056960/680x482cq70/easy-chicken-dumplings-recipe-main-photo.jpg
@@ -50,23 +50,23 @@ recipecategory: Dinner
 ---
 
 
-![Easy Chicken &amp; Dumplings](https://img-global.cpcdn.com/recipes/4845707222056960/680x482cq70/easy-chicken-dumplings-recipe-main-photo.jpg)
+![Easy Chicken & Dumplings](https://img-global.cpcdn.com/recipes/4845707222056960/680x482cq70/easy-chicken-dumplings-recipe-main-photo.jpg)
 
-Hello everybody, hope you're having an amazing day today. Today, I'm gonna show you how to make a distinctive dish, easy chicken &amp; dumplings. It is one of my favorites food recipes. This time, I will make it a bit unique. This is gonna smell and look delicious.
+Hello everybody, hope you're having an amazing day today. Today, I'm gonna show you how to make a distinctive dish, easy chicken & dumplings. It is one of my favorites food recipes. This time, I will make it a bit unique. This is gonna smell and look delicious.
 
-Easy Chicken &amp; Dumplings is one of the most well liked of current trending foods on earth. It is appreciated by millions every day. It's easy, it is fast, it tastes delicious. They're fine and they look wonderful. Easy Chicken &amp; Dumplings is something which I've loved my whole life.
-
-
+Easy Chicken & Dumplings is one of the most well liked of current trending foods on earth. It is appreciated by millions every day. It's easy, it is fast, it tastes delicious. They're fine and they look wonderful. Easy Chicken & Dumplings is something which I've loved my whole life.
 
 
-To begin with this particular recipe, we have to prepare a few ingredients. You can cook easy chicken &amp; dumplings using 7 ingredients and 10 steps. Here is how you cook that.
+
+
+To begin with this particular recipe, we have to prepare a few ingredients. You can cook easy chicken & dumplings using 7 ingredients and 10 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Easy Chicken &amp; Dumplings:
+##### The ingredients needed to make Easy Chicken & Dumplings:
 
 1. Prepare 4 Biscuits (recipe link below)
-1. Get 2 Chicken Breasts, chopped 1 1/2&#34;
+1. Get 2 Chicken Breasts, chopped 1 1/2*
 1. Prepare 1 1/4 cup Frozen Mixed Vegetables
 1. Get 1 tsp Italian Seasoning
 1. Prepare 1 tsp Black Pepper
@@ -78,7 +78,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 
 <!--inarticleads2-->
 
-##### Steps to make Easy Chicken &amp; Dumplings:
+##### Steps to make Easy Chicken & Dumplings:
 
 1. Make my biscuits. They&#39;re fast and easy.  https://cookpad.com/us/recipes/364267-buttermilk-biscuits           (see recipe)
 1. While biscuits bake, Salt and pepper chicken and brown in a large pan.
@@ -94,4 +94,4 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 
 
 
-So that's going to wrap this up with this exceptional food easy chicken &amp; dumplings recipe. Thank you very much for your time. I am confident you will make this at home. There is gonna be more interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
+So that's going to wrap this up with this exceptional food easy chicken & dumplings recipe. Thank you very much for your time. I am confident you will make this at home. There is gonna be more interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

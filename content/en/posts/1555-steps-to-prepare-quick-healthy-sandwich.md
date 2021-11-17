@@ -22,7 +22,7 @@ recipeingredient:
 - "1 tbsp Olive Oil"
 recipeinstructions:
 - "I use frozen chicken pattie. Fried in oil till golden from both sides"
-- "Cut brown bread slice in 1/2. Spread cream cheese on slices. Place salad leaves,cucumber &amp; tomato slices.cut patty in half and place over salad"
+- "Cut brown bread slice in 1/2. Spread cream cheese on slices. Place salad leaves,cucumber & tomato slices.cut patty in half and place over salad"
 - "Cover the other slice and press together and warm up in pan for couples of minute.start morning with healthy diet."
 - "Ready to serve and ENJOY!"
 categories:
@@ -73,7 +73,7 @@ To get started with this particular recipe, we have to prepare a few ingredients
 ##### Steps to make Healthy Sandwich:
 
 1. I use frozen chicken pattie. Fried in oil till golden from both sides
-1. Cut brown bread slice in 1/2. Spread cream cheese on slices. Place salad leaves,cucumber &amp; tomato slices.cut patty in half and place over salad
+1. Cut brown bread slice in 1/2. Spread cream cheese on slices. Place salad leaves,cucumber & tomato slices.cut patty in half and place over salad
 1. Cover the other slice and press together and warm up in pan for couples of minute.start morning with healthy diet.
 1. Ready to serve and ENJOY!
 

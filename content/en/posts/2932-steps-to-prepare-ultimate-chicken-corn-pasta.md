@@ -45,7 +45,7 @@ Hello everybody, hope you are having an incredible day today. Today, I will show
 
 Chicken Corn Pasta is one of the most favored of current trending foods in the world. It's appreciated by millions daily. It is easy, it is quick, it tastes delicious. They are nice and they look wonderful. Chicken Corn Pasta is something that I've loved my whole life.
 
-Please subscribe, like, comment and sharePlease leave a comment on what you would like us to cook next. &#34;Made with penne pasta and rotisserie chicken, this is a quick version of chicken alfredo bake &#34;Lasagna goes south of the border in this Mexican lasagna fusion which uses corn tortillas. Follow all the steps recommended by Chef to get a perfect dish. Grilled Za&#39;atar Chicken With Garlic Yogurt and Cilantro. Add pasta and reserved cooking liquid, tossing to coat well.
+Please subscribe, like, comment and sharePlease leave a comment on what you would like us to cook next. *Made with penne pasta and rotisserie chicken, this is a quick version of chicken alfredo bake *Lasagna goes south of the border in this Mexican lasagna fusion which uses corn tortillas. Follow all the steps recommended by Chef to get a perfect dish. Grilled Za&#39;atar Chicken With Garlic Yogurt and Cilantro. Add pasta and reserved cooking liquid, tossing to coat well.
 
 
 To begin with this recipe, we must first prepare a few components. You can have chicken corn pasta using 5 ingredients and 1 steps. Here is how you can achieve that.
@@ -61,7 +61,7 @@ To begin with this recipe, we must first prepare a few components. You can have 
 1. Take  Garlic and onion minced
 
 
-Use them in commercial designs under lifetime, perpetual &amp; worldwide rights. See more ideas about pasta dishes, corn pasta, recipes. Spoon vegetables into bowl with pasta; stir in chicken. My love of Mexican street corn (elotes) is definitely not a secret here on the blog. 
+Use them in commercial designs under lifetime, perpetual & worldwide rights. See more ideas about pasta dishes, corn pasta, recipes. Spoon vegetables into bowl with pasta; stir in chicken. My love of Mexican street corn (elotes) is definitely not a secret here on the blog. 
 
 <!--inarticleads2-->
 

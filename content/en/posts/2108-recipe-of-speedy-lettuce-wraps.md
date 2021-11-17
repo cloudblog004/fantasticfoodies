@@ -49,7 +49,7 @@ recipecategory: Dinner
 
 Hey everyone, hope you're having an amazing day today. Today, I'm gonna show you how to prepare a special dish, lettuce wraps. It is one of my favorites food recipes. This time, I will make it a bit tasty. This will be really delicious.
 
-I am such a sucker for lettuce wraps. They are so low in carbs so I become a bottomless pit, stuffing my face without any kind of guilt. Table Of Contents tap to hide The Best Lettuce For Lettuce Wraps How To Make A Lettuce Wrap With Romaine How To Make A Lettuce Wrap With Romaine. Because romaine doesn&#39;t have as much &#34;leafy&#34;.
+I am such a sucker for lettuce wraps. They are so low in carbs so I become a bottomless pit, stuffing my face without any kind of guilt. Table Of Contents tap to hide The Best Lettuce For Lettuce Wraps How To Make A Lettuce Wrap With Romaine How To Make A Lettuce Wrap With Romaine. Because romaine doesn&#39;t have as much *leafy*.
 
 lettuce wraps is one of the most popular of current trending meals in the world. It's easy, it is fast, it tastes delicious. It is appreciated by millions daily. lettuce wraps is something that I've loved my entire life. They're fine and they look fantastic.
 
@@ -63,7 +63,7 @@ To begin with this particular recipe, we have to first prepare a few components.
 1. Make ready  meat
 1. Make ready 1 lb ground beef, turkey, chicken, or thin sliced fillet
 1. Get 1 clove garlic
-1. Prepare 1 dash salt &amp; pepper to taste
+1. Prepare 1 dash salt & pepper to taste
 1. Get  toppings
 1. Get 1 lettuce leaves
 1. Take 1 tsp soy sauce to taste

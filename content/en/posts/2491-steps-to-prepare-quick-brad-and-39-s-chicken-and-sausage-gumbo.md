@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Quick Brad&amp;#39;s chicken and sausage gumbo"
-title: "Steps to Prepare Quick Brad&amp;#39;s chicken and sausage gumbo"
+description: "Steps to Prepare Quick Brad's chicken and sausage gumbo"
+title: "Steps to Prepare Quick Brad's chicken and sausage gumbo"
 slug: 2491-steps-to-prepare-quick-brad-and-39-s-chicken-and-sausage-gumbo
 date: 2022-03-01T02:39:31.643Z
 image: https://img-global.cpcdn.com/recipes/9edb383b3e2eff92/680x482cq70/brads-chicken-and-sausage-gumbo-recipe-main-photo.jpg
@@ -78,7 +78,7 @@ To begin with this recipe, we must first prepare a few components. You can have 
 1. Prepare 3 lbs chicken thighs with bone and skin
 1. Get  Seasoned flour to dredge chicken
 1. Take 1 lg yellow onion, chopped
-1. Prepare 1 red &amp; 1 yellow bell pepper, chopped
+1. Prepare 1 red & 1 yellow bell pepper, chopped
 1. Get 6 celery stalks, chopped
 1. Prepare 8-10 roma tomatoes, chopped
 1. Take 10 cloves garlic, peeled and smashed

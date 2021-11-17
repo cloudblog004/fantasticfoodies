@@ -23,12 +23,12 @@ recipeingredient:
 - "1 head red onion"
 recipeinstructions:
 - "preheat oven to 150"
-- "clean &amp; cut chicken breast into chunks.  season the chunks with bbq mesquite DRY seasoning.  preheat stove top &amp; lightly grease a medium size skillet with olive oil.  cook chunks until color is a golden brown(no more pink) OR use a grill (George foreman) to cook chunks"
-- "shape prepared pizza dough into square or circle.  open &amp; spread the bbq sauce over the shaped dough."
-- "sprinkle both cheeses over the sauce. &amp; then sprinkle the cilantro."
-- "chop the head of red onion &amp; sprinkle the chopped onions over the other added ingredients"
+- "clean & cut chicken breast into chunks.  season the chunks with bbq mesquite DRY seasoning.  preheat stove top & lightly grease a medium size skillet with olive oil.  cook chunks until color is a golden brown(no more pink) OR use a grill (George foreman) to cook chunks"
+- "shape prepared pizza dough into square or circle.  open & spread the bbq sauce over the shaped dough."
+- "sprinkle both cheeses over the sauce. & then sprinkle the cilantro."
+- "chop the head of red onion & sprinkle the chopped onions over the other added ingredients"
 - "with the cooked chicken chunks scatter over other ingredients."
-- "lightly grease pizza pan with butter flavored no-stick cooking grease.  Place pizza on pan &amp; put in oven.  Cook for 30-45 mins OR until cheese is melted and crust is brown"
+- "lightly grease pizza pan with butter flavored no-stick cooking grease.  Place pizza on pan & put in oven.  Cook for 30-45 mins OR until cheese is melted and crust is brown"
 - "eat and enjoy"
 - "Ready to serve and ENJOY!"
 categories:
@@ -81,12 +81,12 @@ Come to BBQ Chicken Pizza Country. Place Pita Breads on a microwave plate. Wood 
 ##### Steps to make bbq chicken pizza:
 
 1. preheat oven to 150
-1. clean &amp; cut chicken breast into chunks.  season the chunks with bbq mesquite DRY seasoning.  preheat stove top &amp; lightly grease a medium size skillet with olive oil.  cook chunks until color is a golden brown(no more pink) OR use a grill (George foreman) to cook chunks
-1. shape prepared pizza dough into square or circle.  open &amp; spread the bbq sauce over the shaped dough.
-1. sprinkle both cheeses over the sauce. &amp; then sprinkle the cilantro.
-1. chop the head of red onion &amp; sprinkle the chopped onions over the other added ingredients
+1. clean & cut chicken breast into chunks.  season the chunks with bbq mesquite DRY seasoning.  preheat stove top & lightly grease a medium size skillet with olive oil.  cook chunks until color is a golden brown(no more pink) OR use a grill (George foreman) to cook chunks
+1. shape prepared pizza dough into square or circle.  open & spread the bbq sauce over the shaped dough.
+1. sprinkle both cheeses over the sauce. & then sprinkle the cilantro.
+1. chop the head of red onion & sprinkle the chopped onions over the other added ingredients
 1. with the cooked chicken chunks scatter over other ingredients.
-1. lightly grease pizza pan with butter flavored no-stick cooking grease.  Place pizza on pan &amp; put in oven.  Cook for 30-45 mins OR until cheese is melted and crust is brown
+1. lightly grease pizza pan with butter flavored no-stick cooking grease.  Place pizza on pan & put in oven.  Cook for 30-45 mins OR until cheese is melted and crust is brown
 1. eat and enjoy
 1. Ready to serve and ENJOY!
 

@@ -58,7 +58,7 @@ Hello everybody, it's Drew, welcome to my recipe site. Today, I'm gonna show you
 
 chicken cheese enchiladas is one of the most well liked of recent trending meals in the world. It is appreciated by millions every day. It is simple, it's fast, it tastes yummy. They are nice and they look fantastic. chicken cheese enchiladas is something which I've loved my entire life.
 
-This Easy Chicken &amp; Cheese Enchiladas is the easiest homemade enchiladas recipe ever. The combination of cream of chicken soup. Homemade Chicken Enchiladas made from scratch - saucy, cheesy and full of flavour! Cottage cheese lends a lighter texture to chicken and cheese enchiladas, bathed in classic red enchilada sauce.
+This Easy Chicken & Cheese Enchiladas is the easiest homemade enchiladas recipe ever. The combination of cream of chicken soup. Homemade Chicken Enchiladas made from scratch - saucy, cheesy and full of flavour! Cottage cheese lends a lighter texture to chicken and cheese enchiladas, bathed in classic red enchilada sauce.
 
 
 To begin with this recipe, we have to prepare a few ingredients. You can cook chicken cheese enchiladas using 12 ingredients and 7 steps. Here is how you can achieve that.

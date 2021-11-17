@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Prepare Ultimate Crockpot (or not) General Tso&amp;#39;s Chicken"
-title: "Step-by-Step Guide to Prepare Ultimate Crockpot (or not) General Tso&amp;#39;s Chicken"
+description: "Step-by-Step Guide to Prepare Ultimate Crockpot (or not) General Tso's Chicken"
+title: "Step-by-Step Guide to Prepare Ultimate Crockpot (or not) General Tso's Chicken"
 slug: 3487-step-by-step-guide-to-prepare-ultimate-crockpot-or-not-general-tso-and-39-s-chicken
 date: 2022-01-16T13:05:03.425Z
 image: https://img-global.cpcdn.com/recipes/d88b887efdea9342/680x482cq70/crockpot-or-not-general-tsos-chicken-recipe-main-photo.jpg

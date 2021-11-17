@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Favorite Healthy Sweet &amp;amp; Sour Chicken"
-title: "Recipe of Favorite Healthy Sweet &amp;amp; Sour Chicken"
+description: "Recipe of Favorite Healthy Sweet & Sour Chicken"
+title: "Recipe of Favorite Healthy Sweet & Sour Chicken"
 slug: 1523-recipe-of-favorite-healthy-sweet-and-amp-sour-chicken
 date: 2022-05-27T17:07:34.433Z
 image: https://img-global.cpcdn.com/recipes/f15283b01ff51a23/680x482cq70/healthy-sweet-sour-chicken-recipe-main-photo.jpg
@@ -54,20 +54,20 @@ recipecategory: Dinner
 ---
 
 
-![Healthy Sweet &amp; Sour Chicken](https://img-global.cpcdn.com/recipes/f15283b01ff51a23/680x482cq70/healthy-sweet-sour-chicken-recipe-main-photo.jpg)
+![Healthy Sweet & Sour Chicken](https://img-global.cpcdn.com/recipes/f15283b01ff51a23/680x482cq70/healthy-sweet-sour-chicken-recipe-main-photo.jpg)
 
-Hello everybody, it is John, welcome to my recipe page. Today, I'm gonna show you how to prepare a special dish, healthy sweet &amp; sour chicken. It is one of my favorites. For mine, I am going to make it a little bit tasty. This will be really delicious.
-
-
-
-Healthy Sweet &amp; Sour Chicken is one of the most well liked of recent trending meals in the world. It is simple, it is quick, it tastes delicious. It is appreciated by millions daily. They're nice and they look wonderful. Healthy Sweet &amp; Sour Chicken is something that I've loved my whole life.
+Hello everybody, it is John, welcome to my recipe page. Today, I'm gonna show you how to prepare a special dish, healthy sweet & sour chicken. It is one of my favorites. For mine, I am going to make it a little bit tasty. This will be really delicious.
 
 
-To begin with this recipe, we have to prepare a few ingredients. You can have healthy sweet &amp; sour chicken using 17 ingredients and 4 steps. Here is how you cook it.
+
+Healthy Sweet & Sour Chicken is one of the most well liked of recent trending meals in the world. It is simple, it is quick, it tastes delicious. It is appreciated by millions daily. They're nice and they look wonderful. Healthy Sweet & Sour Chicken is something that I've loved my whole life.
+
+
+To begin with this recipe, we have to prepare a few ingredients. You can have healthy sweet & sour chicken using 17 ingredients and 4 steps. Here is how you cook it.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Healthy Sweet &amp; Sour Chicken:
+##### The ingredients needed to make Healthy Sweet & Sour Chicken:
 
 1. Take 5 boneless, skinless chicken breasts
 1. Prepare 5 ml veg oil
@@ -92,7 +92,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can have he
 
 <!--inarticleads2-->
 
-##### Steps to make Healthy Sweet &amp; Sour Chicken:
+##### Steps to make Healthy Sweet & Sour Chicken:
 
 1. To make the sauce, drain both the pineapple tins in a sieve over a bowl and keep all the juice –  you should have about 250ml. Add 300ml water, then stir in the soy sauce, vinegar, sweetener, ketchup and chilli flakes until  thoroughly combined. Set aside. Put the cornflour in a bowl and stir in approx three  tablespoons (or more) if required of water to make a smooth paste.
 1. Cut each chicken breast into eight or nine even pieces. Heat the oil in a  large non-stick frying pan or wok and stir-fry the onion and peppers for two minutes over  a high heat. Drain the water chestnuts and cut them in half horizontally.
@@ -102,4 +102,4 @@ To begin with this recipe, we have to prepare a few ingredients. You can have he
 
 
 
-So that is going to wrap it up with this exceptional food healthy sweet &amp; sour chicken recipe. Thanks so much for your time. I'm confident that you can make this at home. There is gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!
+So that is going to wrap it up with this exceptional food healthy sweet & sour chicken recipe. Thanks so much for your time. I'm confident that you can make this at home. There is gonna be more interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

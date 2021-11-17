@@ -26,7 +26,7 @@ recipeinstructions:
 - "Spoon filling down center of tortillas, and roll tightly, leaving the opening on bottom"
 - "Heat about a third inch of vegetable oil in a sauté pan to medium heat and fry opening side down for 2-4 minutes, then flip and fry for another 2-4 minutes or until golden brown. TIP: press down with a spatula for the first minute to keep them closed. If they start to open once flipped you can hold them together with tongs for a min."
 - "Set on paper towel for 3-5 minutes to remove excess oil and crisp"
-- "FINITO! Take a cooksnap &amp; let me know what you think! :)"
+- "FINITO! Take a cooksnap & let me know what you think! :)"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -81,7 +81,7 @@ To get started with this particular recipe, we must first prepare a few componen
 1. Spoon filling down center of tortillas, and roll tightly, leaving the opening on bottom
 1. Heat about a third inch of vegetable oil in a sauté pan to medium heat and fry opening side down for 2-4 minutes, then flip and fry for another 2-4 minutes or until golden brown. TIP: press down with a spatula for the first minute to keep them closed. If they start to open once flipped you can hold them together with tongs for a min.
 1. Set on paper towel for 3-5 minutes to remove excess oil and crisp
-1. FINITO! Take a cooksnap &amp; let me know what you think! :)
+1. FINITO! Take a cooksnap & let me know what you think! :)
 1. Ready to serve and ENJOY!
 
 

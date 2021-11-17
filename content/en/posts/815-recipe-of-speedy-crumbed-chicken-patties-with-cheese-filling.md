@@ -29,7 +29,7 @@ recipeingredient:
 - "1  12 Eggs whisked"
 - "1 cup Panko Breadcrumbs"
 recipeinstructions:
-- "In a large ball, place Chicken Mince and season with Salt &amp; Pepper quite well. Add all Vegetables, Panko Breadcrumbs and 1/2 Egg, mix until well combined. Divide into 8 portions."
+- "In a large ball, place Chicken Mince and season with Salt & Pepper quite well. Add all Vegetables, Panko Breadcrumbs and 1/2 Egg, mix until well combined. Divide into 8 portions."
 - "In a separate bowl, combine Cheese, Garlic and Parsley. Make 8 rounds."
 - "Take 1 portions of chicken mixture and shape it into a round, place 1 cheese filling in the centre, and enclose. Flatten slightly. If the chicken mixture is very sticky, wet your hands with water will help. Repeat with the remaining chicken mixture and cheese filling."
 - "Coat with Flour, then dip in lightly whisked Eggs to coat, and finally coat with Panko Breadcrumbs."
@@ -73,7 +73,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 1. Make ready  *Note: Add more finely chopped vegetables
 1. Take 1/2 cup Panko Breadcrumbs
 1. Make ready 1/2 Egg
-1. Prepare  Salt &amp; Pepper
+1. Prepare  Salt & Pepper
 1. Prepare  Oil for frying
 1. Make ready 2 cloves Garlic *finely chopped
 1. Prepare  &lt;Filling&gt;
@@ -81,7 +81,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 1. Get 2 tablespoons Parsley Leaves *finely chopped
 1. Prepare  &lt;Coating&gt;
 1. Prepare 1/4 cup Plain Flour *add more if you need
-1. Get 1 &amp; 1/2 Eggs *whisked
+1. Get 1 & 1/2 Eggs *whisked
 1. Prepare 1 cup Panko Breadcrumbs
 
 
@@ -91,7 +91,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 
 ##### Steps to make Crumbed Chicken Patties With Cheese Filling:
 
-1. In a large ball, place Chicken Mince and season with Salt &amp; Pepper quite well. Add all Vegetables, Panko Breadcrumbs and 1/2 Egg, mix until well combined. Divide into 8 portions.
+1. In a large ball, place Chicken Mince and season with Salt & Pepper quite well. Add all Vegetables, Panko Breadcrumbs and 1/2 Egg, mix until well combined. Divide into 8 portions.
 1. In a separate bowl, combine Cheese, Garlic and Parsley. Make 8 rounds.
 1. Take 1 portions of chicken mixture and shape it into a round, place 1 cheese filling in the centre, and enclose. Flatten slightly. If the chicken mixture is very sticky, wet your hands with water will help. Repeat with the remaining chicken mixture and cheese filling.
 1. Coat with Flour, then dip in lightly whisked Eggs to coat, and finally coat with Panko Breadcrumbs.

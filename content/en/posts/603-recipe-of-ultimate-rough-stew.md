@@ -77,7 +77,7 @@ To get started with this particular recipe, we have to first prepare a few ingre
 1. Prepare to taste Salt
 
 
-SMART Vocabulary: related words and phrases. Defintions of Stew over not found. Roughhousing and stew over are semantically related. Sometimes you can use &#34;Roughhousing&#34; instead a verb &#34;Stew over&#34;. 
+SMART Vocabulary: related words and phrases. Defintions of Stew over not found. Roughhousing and stew over are semantically related. Sometimes you can use *Roughhousing* instead a verb *Stew over*. 
 
 <!--inarticleads2-->
 
@@ -89,6 +89,6 @@ SMART Vocabulary: related words and phrases. Defintions of Stew over not found. 
 1. Served mine with white rice and fried diced plantain
 1. Ready to serve and ENJOY!
 
-Roughhousing and stew over are semantically related. Sometimes you can use &#34;Roughhousing&#34; instead a verb &#34;Stew over&#34;. Rough could describe having a up and down day, hence the day balance. While tough is giving the rough= state of mind. and ruff is the action taken, for example ruffian. They all correlate somehow. referring to the dictionary，&#34;rough &#34; and &#34;tough&#34; have the similar meaning &#34;violent，use much force&#34; ， is there any distinction between these two words when. 
+Roughhousing and stew over are semantically related. Sometimes you can use *Roughhousing* instead a verb *Stew over*. Rough could describe having a up and down day, hence the day balance. While tough is giving the rough= state of mind. and ruff is the action taken, for example ruffian. They all correlate somehow. referring to the dictionary，*rough * and *tough* have the similar meaning *violent，use much force* ， is there any distinction between these two words when. 
 
 So that is going to wrap it up with this exceptional food rough stew recipe. Thanks so much for your time. I'm confident that you can make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

@@ -18,7 +18,7 @@ recipeingredient:
 - "2 cup shredded mozzarella  i like the four cheese pizza blend"
 - "1/2 cup parmesan cheese"
 recipeinstructions:
-- "preheat oven to 350. spray 9&#34;x&#34;13 casserole dish-i use a lasagna tin- with cooking spray"
+- "preheat oven to 350. spray 9*x*13 casserole dish-i use a lasagna tin- with cooking spray"
 - "spoon about a half cup sauce  on bottom of casserole . not alot, just enough to lightly cover. lay frozen chicken on top. its ok to put pieces on top of each other, just try to do it evenly"
 - "sprinkle parmesan cheese on top of chicken, then top with rest of sauce, making sure to cover all chicken well. you can use a little more if you like it saucy,  just not too much or it will end up soggy"
 - "top with mozzarella cheese. two cups is just a suggestion, if you like it super cheesy, go for it! :-D"
@@ -69,7 +69,7 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 
 ##### Steps to make Quickie Chicken Parm Casserole:
 
-1. preheat oven to 350. spray 9&#34;x&#34;13 casserole dish-i use a lasagna tin- with cooking spray
+1. preheat oven to 350. spray 9*x*13 casserole dish-i use a lasagna tin- with cooking spray
 1. spoon about a half cup sauce  on bottom of casserole . not alot, just enough to lightly cover. lay frozen chicken on top. its ok to put pieces on top of each other, just try to do it evenly
 1. sprinkle parmesan cheese on top of chicken, then top with rest of sauce, making sure to cover all chicken well. you can use a little more if you like it saucy,  just not too much or it will end up soggy
 1. top with mozzarella cheese. two cups is just a suggestion, if you like it super cheesy, go for it! :-D

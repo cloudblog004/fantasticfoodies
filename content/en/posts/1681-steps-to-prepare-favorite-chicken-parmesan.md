@@ -69,7 +69,7 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 
 ##### The ingredients needed to make Chicken Parmesan:
 
-1. Prepare 2 boneless skinless chicken breasts, halved &amp; pounded 1/2&#34; thin
+1. Prepare 2 boneless skinless chicken breasts, halved & pounded 1/2* thin
 1. Make ready 1 egg beaten
 1. Take 1 cup Italian seasoned breadcrumbs
 1. Get 3/4 cup grated parmesan

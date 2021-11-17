@@ -27,7 +27,7 @@ recipeinstructions:
 - "In a wide pot add oil. Once hot add the whole spices"
 - "Now add onions. Cook till golden brown. Add ginger garlic paste"
 - "Mix well add the greens. Cook for 5 mins. Add tomatoes."
-- "Add all the spices. Add chicken. Mix well. Add water cover &amp; cook for 1/2 an hr"
+- "Add all the spices. Add chicken. Mix well. Add water cover & cook for 1/2 an hr"
 - "Check seasoning as per your taste."
 - "Serve hot with Roti or steamed rice"
 - "Ready to serve and ENJOY!"
@@ -66,7 +66,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 
 1. Prepare 1 kg boneless chicken cubes
 1. Make ready 3-4 tomatoes pureed
-1. Make ready 1 bunch fresh fenugreek &amp; spinach pureed
+1. Make ready 1 bunch fresh fenugreek & spinach pureed
 1. Take 2 onions chopped
 1. Prepare  Dhania
 1. Prepare  Salt to taste, turmeric, red chili powder, cumin powder
@@ -85,7 +85,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 1. In a wide pot add oil. Once hot add the whole spices
 1. Now add onions. Cook till golden brown. Add ginger garlic paste
 1. Mix well add the greens. Cook for 5 mins. Add tomatoes.
-1. Add all the spices. Add chicken. Mix well. Add water cover &amp; cook for 1/2 an hr
+1. Add all the spices. Add chicken. Mix well. Add water cover & cook for 1/2 an hr
 1. Check seasoning as per your taste.
 1. Serve hot with Roti or steamed rice
 1. Ready to serve and ENJOY!

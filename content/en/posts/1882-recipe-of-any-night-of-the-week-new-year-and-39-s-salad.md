@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Any-night-of-the-week New Year&amp;#39;s  Salad"
-title: "Recipe of Any-night-of-the-week New Year&amp;#39;s  Salad"
+description: "Recipe of Any-night-of-the-week New Year's  Salad"
+title: "Recipe of Any-night-of-the-week New Year's  Salad"
 slug: 1882-recipe-of-any-night-of-the-week-new-year-and-39-s-salad
 date: 2022-03-08T07:52:40.635Z
 image: https://img-global.cpcdn.com/recipes/49705007/680x482cq70/new-years-salad-recipe-main-photo.jpg

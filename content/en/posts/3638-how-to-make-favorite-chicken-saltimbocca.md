@@ -78,7 +78,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 1. Prepare 1 Extra Virgin Olive Oil (enough to coat pan well)
 
 
-Saltimbocca&#39;s name means to &#34;jump in the mouth&#34; with flavor. It is a restaurant dish, but at home on a weeknight, a chicken breast version makes a very tasty facsimile. Pound the chicken and marinate it in a mixture of chopped sage, garlic and olive oil, then brown it quickly before it goes under the broiler. In Italian, saltimbocca means &#34;jumps in the mouth&#34; — this delightful and sinfully simple recipe does just that. 
+Saltimbocca&#39;s name means to *jump in the mouth* with flavor. It is a restaurant dish, but at home on a weeknight, a chicken breast version makes a very tasty facsimile. Pound the chicken and marinate it in a mixture of chopped sage, garlic and olive oil, then brown it quickly before it goes under the broiler. In Italian, saltimbocca means *jumps in the mouth* — this delightful and sinfully simple recipe does just that. 
 
 <!--inarticleads2-->
 
@@ -93,6 +93,6 @@ Saltimbocca&#39;s name means to &#34;jump in the mouth&#34; with flavor. It is a
 1. **NOTE** top with extra parm cheese and serve with rice or pasta or alongside grilled asparagus.
 1. Ready to serve and ENJOY!
 
-Pound the chicken and marinate it in a mixture of chopped sage, garlic and olive oil, then brown it quickly before it goes under the broiler. In Italian, saltimbocca means &#34;jumps in the mouth&#34; — this delightful and sinfully simple recipe does just that. Saltimbocca also refers to the Roman style of preparing cutlets of meat, traditionally veal, but often chicken and pork in the US. The cutlet is pounded thin and wrapped in prosciutto and hearty. Thin chicken cutlets and sage leaves are wrapped in prosciutto and pan-fried for this quick and easy main dish. 
+Pound the chicken and marinate it in a mixture of chopped sage, garlic and olive oil, then brown it quickly before it goes under the broiler. In Italian, saltimbocca means *jumps in the mouth* — this delightful and sinfully simple recipe does just that. Saltimbocca also refers to the Roman style of preparing cutlets of meat, traditionally veal, but often chicken and pork in the US. The cutlet is pounded thin and wrapped in prosciutto and hearty. Thin chicken cutlets and sage leaves are wrapped in prosciutto and pan-fried for this quick and easy main dish. 
 
 So that is going to wrap this up for this special food chicken saltimbocca recipe. Thanks so much for your time. I am confident that you can make this at home. There is gonna be more interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

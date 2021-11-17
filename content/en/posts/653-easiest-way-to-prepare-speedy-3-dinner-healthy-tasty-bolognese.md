@@ -64,13 +64,13 @@ To begin with this particular recipe, we have to prepare a few components. You c
 
 1. Take 500 g Turkey mince
 1. Get 200 g High fiber spaghetti
-1. Get 500 g Italian Passata Tomato &amp; Basil
+1. Get 500 g Italian Passata Tomato & Basil
 1. Take 1 Brown Onion
 1. Take 2 Garlic cloves
 1. Make ready 400 g Mushrooms
 1. Make ready  2x Tomatoes
 1. Get 1 Tbsp Tomato paste
-1. Prepare  Salt, pepper, oregano, thyme, chili &amp; chicken/vegetables stock
+1. Prepare  Salt, pepper, oregano, thyme, chili & chicken/vegetables stock
 1. Take  Kcal: 359 Macros: Protein: 32g Carbohydrates: 40g Fats: 7g
 
 

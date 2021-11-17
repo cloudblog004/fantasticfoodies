@@ -122,6 +122,6 @@ Secrets to Standout Sweet and Sour Chicken. The secret is in the chicken marinad
 1. It&#39;s easier to make if you prepare the dish until Step 6 the night before, cover it with plastic wrap, and store it in the refrigerator.
 1. Ready to serve and ENJOY!
 
-The beauty of this dish is that you can adjust at the end. Have a little taste of the sauce. If emits a potent, sour smell remove it from the fridge and throw away outside immediately. Thirdly, the chef instructed us to touch the meat, &#34;Raw chicken naturally has a. Sweet And Sour Chicken- Quick &amp; Easy Chinese Recipe. 
+The beauty of this dish is that you can adjust at the end. Have a little taste of the sauce. If emits a potent, sour smell remove it from the fridge and throw away outside immediately. Thirdly, the chef instructed us to touch the meat, *Raw chicken naturally has a. Sweet And Sour Chicken- Quick & Easy Chinese Recipe. 
 
 So that is going to wrap this up for this special food economical, healthy and easy sweet and sour chicken recipe. Thank you very much for your time. I am sure that you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Quick Super Easy Braised Chicken Recipe •Spicy &amp;amp; Sour Sauce • My home Style • ThaiChef Food"
-title: "Easiest Way to Make Quick Super Easy Braised Chicken Recipe •Spicy &amp;amp; Sour Sauce • My home Style • ThaiChef Food"
+description: "Easiest Way to Make Quick Super Easy Braised Chicken Recipe •Spicy & Sour Sauce • My home Style • ThaiChef Food"
+title: "Easiest Way to Make Quick Super Easy Braised Chicken Recipe •Spicy & Sour Sauce • My home Style • ThaiChef Food"
 slug: 3156-easiest-way-to-make-quick-super-easy-braised-chicken-recipe-spicy-and-amp-sour-sauce-my-home-style-thaichef-food
 date: 2021-12-13T16:40:00.953Z
 image: https://img-global.cpcdn.com/recipes/302475caea0c96b6/680x482cq70/super-easy-braised-chicken-recipe-spicy-sour-sauce-my-home-style-thaichef-food-recipe-main-photo.jpg
@@ -50,20 +50,20 @@ recipecategory: Dinner
 ---
 
 
-![Super Easy Braised Chicken Recipe •Spicy &amp; Sour Sauce • My home Style • ThaiChef Food](https://img-global.cpcdn.com/recipes/302475caea0c96b6/680x482cq70/super-easy-braised-chicken-recipe-spicy-sour-sauce-my-home-style-thaichef-food-recipe-main-photo.jpg)
+![Super Easy Braised Chicken Recipe •Spicy & Sour Sauce • My home Style • ThaiChef Food](https://img-global.cpcdn.com/recipes/302475caea0c96b6/680x482cq70/super-easy-braised-chicken-recipe-spicy-sour-sauce-my-home-style-thaichef-food-recipe-main-photo.jpg)
 
-Hello everybody, hope you are having an incredible day today. Today, I will show you a way to make a distinctive dish, super easy braised chicken recipe •spicy &amp; sour sauce • my home style • thaichef food. One of my favorites. This time, I will make it a bit tasty. This will be really delicious.
-
-
-
-Super Easy Braised Chicken Recipe •Spicy &amp; Sour Sauce • My home Style • ThaiChef Food is one of the most favored of recent trending foods on earth. It's appreciated by millions daily. It's easy, it is fast, it tastes yummy. Super Easy Braised Chicken Recipe •Spicy &amp; Sour Sauce • My home Style • ThaiChef Food is something which I have loved my whole life. They're fine and they look fantastic.
+Hello everybody, hope you are having an incredible day today. Today, I will show you a way to make a distinctive dish, super easy braised chicken recipe •spicy & sour sauce • my home style • thaichef food. One of my favorites. This time, I will make it a bit tasty. This will be really delicious.
 
 
-To begin with this recipe, we have to prepare a few components. You can have super easy braised chicken recipe •spicy &amp; sour sauce • my home style • thaichef food using 12 ingredients and 5 steps. Here is how you can achieve that.
+
+Super Easy Braised Chicken Recipe •Spicy & Sour Sauce • My home Style • ThaiChef Food is one of the most favored of recent trending foods on earth. It's appreciated by millions daily. It's easy, it is fast, it tastes yummy. Super Easy Braised Chicken Recipe •Spicy & Sour Sauce • My home Style • ThaiChef Food is something which I have loved my whole life. They're fine and they look fantastic.
+
+
+To begin with this recipe, we have to prepare a few components. You can have super easy braised chicken recipe •spicy & sour sauce • my home style • thaichef food using 12 ingredients and 5 steps. Here is how you can achieve that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Super Easy Braised Chicken Recipe •Spicy &amp; Sour Sauce • My home Style • ThaiChef Food:
+##### The ingredients needed to make Super Easy Braised Chicken Recipe •Spicy & Sour Sauce • My home Style • ThaiChef Food:
 
 1. Make ready 2 pcs. Chicken leg
 1. Prepare 14 g. Chopped Garlic
@@ -83,7 +83,7 @@ To begin with this recipe, we have to prepare a few components. You can have sup
 
 <!--inarticleads2-->
 
-##### Steps to make Super Easy Braised Chicken Recipe •Spicy &amp; Sour Sauce • My home Style • ThaiChef Food:
+##### Steps to make Super Easy Braised Chicken Recipe •Spicy & Sour Sauce • My home Style • ThaiChef Food:
 
 1. Fried chopped garlic, shallot and coriander root until get aroma • add chicken leg skin down
 1. Add 2 cups of water And seasoning salt, soy sauce, oyster sauce and sugar• Bring to boil and skim surface • Turn down to low heat and Cover for simmer 15-20 mins • After 15-20 mins 😋 tender and absorb all sauce•Remove chicken
@@ -94,4 +94,4 @@ To begin with this recipe, we have to prepare a few components. You can have sup
 
 
 
-So that's going to wrap it up with this special food super easy braised chicken recipe •spicy &amp; sour sauce • my home style • thaichef food recipe. Thanks so much for reading. I'm confident you can make this at home. There's gonna be more interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!
+So that's going to wrap it up with this special food super easy braised chicken recipe •spicy & sour sauce • my home style • thaichef food recipe. Thanks so much for reading. I'm confident you can make this at home. There's gonna be more interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

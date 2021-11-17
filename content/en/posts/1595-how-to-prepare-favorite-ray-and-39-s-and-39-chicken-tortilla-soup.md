@@ -1,6 +1,6 @@
 ---
-description: "How to Prepare Favorite Ray&amp;#39;s&amp;#39; Chicken Tortilla Soup"
-title: "How to Prepare Favorite Ray&amp;#39;s&amp;#39; Chicken Tortilla Soup"
+description: "How to Prepare Favorite Ray's' Chicken Tortilla Soup"
+title: "How to Prepare Favorite Ray's' Chicken Tortilla Soup"
 slug: 1595-how-to-prepare-favorite-ray-and-39-s-and-39-chicken-tortilla-soup
 date: 2022-01-23T07:30:03.539Z
 image: https://img-global.cpcdn.com/recipes/4939180127813632/680x482cq70/rays-chicken-tortilla-soup-recipe-main-photo.jpg
@@ -41,7 +41,7 @@ recipeinstructions:
 - "start by prepping all your veggies. and dicing your chicken"
 - "add 1 tbspn oil and cook chicken till done.this chicken you can find in your local supermarket in the butcher area already pre seasoned like a fajita seasoning. set aside"
 - "mix achote paste with 1 tspn water add to pot . this makes the base of your sauce"
-- "add olive oil all veggies, garlic and stir fry about 5 minutes. add in stock, water &amp; all seasonings. cook med-high heat till veggies are tender about 20 minutes. keep checking so seasonings. Add in chicken cook another ten minutes. top with chips cheese as you like."
+- "add olive oil all veggies, garlic and stir fry about 5 minutes. add in stock, water & all seasonings. cook med-high heat till veggies are tender about 20 minutes. keep checking so seasonings. Add in chicken cook another ten minutes. top with chips cheese as you like."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -79,12 +79,12 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 1. Prepare 2 lb boneless skineless marinated chicken
 1. Prepare 1 diced white onion
 1. Prepare 4 chopped chiotes
-1. Prepare 1 diced red &amp; yellow bellpeppers
+1. Prepare 1 diced red & yellow bellpeppers
 1. Get 4 diced zuchini
 1. Make ready 4 diced roma tomatoes
-1. Take 2 can washed &amp; rinsed black beans
+1. Take 2 can washed & rinsed black beans
 1. Prepare 2 can drained corn
-1. Take 1 diced &amp; seeded jalapeno
+1. Take 1 diced & seeded jalapeno
 1. Get 1 tbsp garlic
 1. Get 1 box low sodium chicken broth
 1. Take 4 cup water
@@ -111,7 +111,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 1. start by prepping all your veggies. and dicing your chicken
 1. add 1 tbspn oil and cook chicken till done.this chicken you can find in your local supermarket in the butcher area already pre seasoned like a fajita seasoning. set aside
 1. mix achote paste with 1 tspn water add to pot . this makes the base of your sauce
-1. add olive oil all veggies, garlic and stir fry about 5 minutes. add in stock, water &amp; all seasonings. cook med-high heat till veggies are tender about 20 minutes. keep checking so seasonings. Add in chicken cook another ten minutes. top with chips cheese as you like.
+1. add olive oil all veggies, garlic and stir fry about 5 minutes. add in stock, water & all seasonings. cook med-high heat till veggies are tender about 20 minutes. keep checking so seasonings. Add in chicken cook another ten minutes. top with chips cheese as you like.
 1. Ready to serve and ENJOY!
 
 

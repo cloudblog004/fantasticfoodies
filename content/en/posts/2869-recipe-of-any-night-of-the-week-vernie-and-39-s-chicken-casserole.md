@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Any-night-of-the-week Vernie&amp;#39;s Chicken Casserole"
-title: "Recipe of Any-night-of-the-week Vernie&amp;#39;s Chicken Casserole"
+description: "Recipe of Any-night-of-the-week Vernie's Chicken Casserole"
+title: "Recipe of Any-night-of-the-week Vernie's Chicken Casserole"
 slug: 2869-recipe-of-any-night-of-the-week-vernie-and-39-s-chicken-casserole
 date: 2022-05-21T07:00:21.368Z
 image: https://img-global.cpcdn.com/recipes/51667d4e64382d3e/680x482cq70/vernies-chicken-casserole-recipe-main-photo.jpg
@@ -74,7 +74,7 @@ To begin with this recipe, we must first prepare a few components. You can have 
 1. Make ready 1/2 tsp pepper
 
 
-To save time, most of these chicken casserole recipes use cooked chicken, whether Most casseroles can be wrapped and refrigerated overnight, and many can be frozen for. This chicken and rice casserole dinner is the easiest decision you&#39;ll make all week. Is there anything more comforting than a chicken &amp; rice casserole? This super-simple, five-ingredient chicken casserole recipe comes together quickly and bakes up beautifully. 
+To save time, most of these chicken casserole recipes use cooked chicken, whether Most casseroles can be wrapped and refrigerated overnight, and many can be frozen for. This chicken and rice casserole dinner is the easiest decision you&#39;ll make all week. Is there anything more comforting than a chicken & rice casserole? This super-simple, five-ingredient chicken casserole recipe comes together quickly and bakes up beautifully. 
 
 <!--inarticleads2-->
 
@@ -86,6 +86,6 @@ To save time, most of these chicken casserole recipes use cooked chicken, whethe
 1. Bake at 400° for 25 - 30 minutes.
 1. Ready to serve and ENJOY!
 
-Is there anything more comforting than a chicken &amp; rice casserole? This super-simple, five-ingredient chicken casserole recipe comes together quickly and bakes up beautifully. It&#39;s sure to be your quick-meal go to for at-home dinners and a reliable favorite for. This Tex-Mex chicken enchilada casserole is a delicious dinner option when you&#39;re craving Southwestern-style comfort food. Full of flavor from the cilantro, cumin, chopped onion. 
+Is there anything more comforting than a chicken & rice casserole? This super-simple, five-ingredient chicken casserole recipe comes together quickly and bakes up beautifully. It&#39;s sure to be your quick-meal go to for at-home dinners and a reliable favorite for. This Tex-Mex chicken enchilada casserole is a delicious dinner option when you&#39;re craving Southwestern-style comfort food. Full of flavor from the cilantro, cumin, chopped onion. 
 
 So that's going to wrap it up for this special food vernie&#39;s chicken casserole recipe. Thank you very much for reading. I'm confident that you will make this at home. There is gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

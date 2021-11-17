@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Prepare Ultimate My Chicken &amp;amp; Chorizo Enchiladas. 😁"
-title: "Easiest Way to Prepare Ultimate My Chicken &amp;amp; Chorizo Enchiladas. 😁"
+description: "Easiest Way to Prepare Ultimate My Chicken & Chorizo Enchiladas. 😁"
+title: "Easiest Way to Prepare Ultimate My Chicken & Chorizo Enchiladas. 😁"
 slug: 2210-easiest-way-to-prepare-ultimate-my-chicken-and-amp-chorizo-enchiladas
 date: 2022-04-26T13:53:54.041Z
 image: https://img-global.cpcdn.com/recipes/386b9e5fa05da255/680x482cq70/my-chicken-chorizo-enchiladas-recipe-main-photo.jpg
@@ -59,20 +59,20 @@ recipecategory: Dinner
 ---
 
 
-![My Chicken &amp; Chorizo Enchiladas. 😁](https://img-global.cpcdn.com/recipes/386b9e5fa05da255/680x482cq70/my-chicken-chorizo-enchiladas-recipe-main-photo.jpg)
+![My Chicken & Chorizo Enchiladas. 😁](https://img-global.cpcdn.com/recipes/386b9e5fa05da255/680x482cq70/my-chicken-chorizo-enchiladas-recipe-main-photo.jpg)
 
-Hello everybody, it's Brad, welcome to my recipe site. Today, I'm gonna show you how to make a special dish, my chicken &amp; chorizo enchiladas. 😁. One of my favorites food recipes. This time, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
+Hello everybody, it's Brad, welcome to my recipe site. Today, I'm gonna show you how to make a special dish, my chicken & chorizo enchiladas. 😁. One of my favorites food recipes. This time, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
 
-My Chicken &amp; Chorizo Enchiladas. 😁 is one of the most favored of recent trending meals in the world. It's simple, it's fast, it tastes delicious. It's enjoyed by millions daily. They are nice and they look wonderful. My Chicken &amp; Chorizo Enchiladas. 😁 is something that I have loved my entire life.
-
-
+My Chicken & Chorizo Enchiladas. 😁 is one of the most favored of recent trending meals in the world. It's simple, it's fast, it tastes delicious. It's enjoyed by millions daily. They are nice and they look wonderful. My Chicken & Chorizo Enchiladas. 😁 is something that I have loved my entire life.
 
 
-To begin with this recipe, we must first prepare a few ingredients. You can have my chicken &amp; chorizo enchiladas. 😁 using 17 ingredients and 9 steps. Here is how you cook that.
+
+
+To begin with this recipe, we must first prepare a few ingredients. You can have my chicken & chorizo enchiladas. 😁 using 17 ingredients and 9 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make My Chicken &amp; Chorizo Enchiladas. 😁:
+##### The ingredients needed to make My Chicken & Chorizo Enchiladas. 😁:
 
 1. Take 2 Wraps
 1. Take 1 Chicken Breast cut cubed small
@@ -97,7 +97,7 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 
 <!--inarticleads2-->
 
-##### Instructions to make My Chicken &amp; Chorizo Enchiladas. 😁:
+##### Instructions to make My Chicken & Chorizo Enchiladas. 😁:
 
 1. Cut up the chorizo and Chicken. You only need a quater of this size chorizo.
 1. Heatup a little olive oil add the onions and then the chicken fry until the chicken is all coloured.
@@ -112,4 +112,4 @@ To begin with this recipe, we must first prepare a few ingredients. You can have
 
 
 
-So that is going to wrap this up with this special food my chicken &amp; chorizo enchiladas. 😁 recipe. Thanks so much for your time. I'm sure that you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!
+So that is going to wrap this up with this special food my chicken & chorizo enchiladas. 😁 recipe. Thanks so much for your time. I'm sure that you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

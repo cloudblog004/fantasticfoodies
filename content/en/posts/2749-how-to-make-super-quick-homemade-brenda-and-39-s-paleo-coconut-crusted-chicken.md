@@ -1,6 +1,6 @@
 ---
-description: "How to Make Super Quick Homemade Brenda&amp;#39;s Paleo Coconut Crusted Chicken"
-title: "How to Make Super Quick Homemade Brenda&amp;#39;s Paleo Coconut Crusted Chicken"
+description: "How to Make Super Quick Homemade Brenda's Paleo Coconut Crusted Chicken"
+title: "How to Make Super Quick Homemade Brenda's Paleo Coconut Crusted Chicken"
 slug: 2749-how-to-make-super-quick-homemade-brenda-and-39-s-paleo-coconut-crusted-chicken
 date: 2021-12-20T20:34:11.783Z
 image: https://img-global.cpcdn.com/recipes/5666144304234496/680x482cq70/brendas-paleo-coconut-crusted-chicken-recipe-main-photo.jpg

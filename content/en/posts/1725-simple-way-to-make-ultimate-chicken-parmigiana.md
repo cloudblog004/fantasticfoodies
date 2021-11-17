@@ -27,9 +27,9 @@ recipeingredient:
 - "6 slices mozzarella cheese"
 recipeinstructions:
 - "Spray 13x9 baking dish with nonstick cooking spray."
-- "Whisk eggs, salt, &amp; pepper until blended. Dip chicken in egg mixture &amp; coat with cracker crumbs."
+- "Whisk eggs, salt, & pepper until blended. Dip chicken in egg mixture & coat with cracker crumbs."
 - "Heat oil in large skillet over medium-high heat until hot. Add chicken. Cook chicken until browned on both sides, about 3 minutes per side. Drain. Arrange in single layer in prepared baking dish."
-- "Preheat oven to 350 degrees. Wipe skillet with paper towel. Combine tomato sauce, basil, &amp; garlic powder in the skillet &amp; mix well. Bring to a boil, stirring occasionally. Reduce heat."
+- "Preheat oven to 350 degrees. Wipe skillet with paper towel. Combine tomato sauce, basil, & garlic powder in the skillet & mix well. Bring to a boil, stirring occasionally. Reduce heat."
 - "Simmer, stirring occasionally, until mixture is thickened, about 6 minutes. Stir in butter. Pour over chicken. Sprinkle with parmesan cheese."
 - "Bake, covered, for 30 minutes. Remove the cover. Top each chicken breast with mozzarella cheese. Bake 10 minutes longer."
 - "Ready to serve and ENJOY!"
@@ -86,9 +86,9 @@ To get started with this particular recipe, we must first prepare a few componen
 ##### Steps to make Chicken Parmigiana:
 
 1. Spray 13x9 baking dish with nonstick cooking spray.
-1. Whisk eggs, salt, &amp; pepper until blended. Dip chicken in egg mixture &amp; coat with cracker crumbs.
+1. Whisk eggs, salt, & pepper until blended. Dip chicken in egg mixture & coat with cracker crumbs.
 1. Heat oil in large skillet over medium-high heat until hot. Add chicken. Cook chicken until browned on both sides, about 3 minutes per side. Drain. Arrange in single layer in prepared baking dish.
-1. Preheat oven to 350 degrees. Wipe skillet with paper towel. Combine tomato sauce, basil, &amp; garlic powder in the skillet &amp; mix well. Bring to a boil, stirring occasionally. Reduce heat.
+1. Preheat oven to 350 degrees. Wipe skillet with paper towel. Combine tomato sauce, basil, & garlic powder in the skillet & mix well. Bring to a boil, stirring occasionally. Reduce heat.
 1. Simmer, stirring occasionally, until mixture is thickened, about 6 minutes. Stir in butter. Pour over chicken. Sprinkle with parmesan cheese.
 1. Bake, covered, for 30 minutes. Remove the cover. Top each chicken breast with mozzarella cheese. Bake 10 minutes longer.
 1. Ready to serve and ENJOY!

@@ -81,7 +81,7 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 1. Prepare 3 STALK Celery (medium diced)
 1. Prepare 1 Yellow Onion (medium diced)
 1. Prepare 2 HEAD Garlic (tops cut off horizontally)
-1. Prepare  Kosher Salt &amp; Freshly Ground Black Pepper (to taste)
+1. Prepare  Kosher Salt & Freshly Ground Black Pepper (to taste)
 1. Get  White Beans
 1. Take 1 1/2 CUP Dry White Beans or Cannellini Beans (small and soaked in water overnight)
 1. Get 3 Bay Leaves

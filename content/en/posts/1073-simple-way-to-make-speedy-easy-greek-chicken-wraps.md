@@ -102,7 +102,7 @@ To get started with this particular recipe, we have to prepare a few components.
 1. Take 1/2 cup dried oregano
 1. Get 1/4 cup dried basil
 1. Take 2 tbsp olive oil, extra virgin
-1. Take 1/4 tsp salt &amp; pepper to taste
+1. Take 1/4 tsp salt & pepper to taste
 
 
 

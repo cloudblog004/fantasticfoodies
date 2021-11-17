@@ -75,7 +75,7 @@ To get started with this particular recipe, we have to first prepare a few compo
 1. Get As needed mozzarella cheese
 1. Take As needed Parmesan cheese
 1. Get As needed Italian style bread crumbs
-1. Get As needed season:oregano/Italian seasons,parsley, basil, s&amp;p
+1. Get As needed season:oregano/Italian seasons,parsley, basil, s&p
 1. Prepare As needed minced garlic
 1. Take 1 box pasta noodles penne or whatever
 

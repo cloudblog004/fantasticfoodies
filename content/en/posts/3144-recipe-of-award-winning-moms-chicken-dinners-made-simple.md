@@ -63,7 +63,7 @@ To get started with this recipe, we have to first prepare a few components. You 
 1. Get  Salt and Pepper to taste
 
 
-This easy sheet-pan dinner features herb-roasted vegetables and boneless, skinless chicken breasts. &#34;Baked EXTRA CRISPY Parmesan chicken and veggies. You don&#39;t have to drop major dough to make something delicious for dinner. We&#39;ve got you covered for dinner every week of the year with these easy and cheap chicken, ground beef, and tilapia recipes. These will make you want to ditch takeout for good. 
+This easy sheet-pan dinner features herb-roasted vegetables and boneless, skinless chicken breasts. *Baked EXTRA CRISPY Parmesan chicken and veggies. You don&#39;t have to drop major dough to make something delicious for dinner. We&#39;ve got you covered for dinner every week of the year with these easy and cheap chicken, ground beef, and tilapia recipes. These will make you want to ditch takeout for good. 
 
 <!--inarticleads2-->
 

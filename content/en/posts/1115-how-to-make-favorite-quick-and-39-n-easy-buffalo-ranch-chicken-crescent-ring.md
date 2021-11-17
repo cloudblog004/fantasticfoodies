@@ -1,6 +1,6 @@
 ---
-description: "How to Make Favorite Quick &amp;#39;n Easy Buffalo Ranch Chicken Crescent Ring"
-title: "How to Make Favorite Quick &amp;#39;n Easy Buffalo Ranch Chicken Crescent Ring"
+description: "How to Make Favorite Quick 'n Easy Buffalo Ranch Chicken Crescent Ring"
+title: "How to Make Favorite Quick 'n Easy Buffalo Ranch Chicken Crescent Ring"
 slug: 1115-how-to-make-favorite-quick-and-39-n-easy-buffalo-ranch-chicken-crescent-ring
 date: 2021-12-25T15:45:19.795Z
 image: https://img-global.cpcdn.com/recipes/d5c8dc59f3fc96c1/680x482cq70/quick-n-easy-buffalo-ranch-chicken-crescent-ring-recipe-main-photo.jpg
@@ -63,7 +63,7 @@ To get started with this recipe, we must prepare a few ingredients. You can have
 1. Make ready 2 pkg Chicken Strips
 1. Get 1 bottle Buffalo Ranch Sauce
 1. Take 1 pkg Mozzarella Shredded
-1. Make ready 1 pkg Hash browns (we prefer Southern style w/ peppers &amp; onion)
+1. Make ready 1 pkg Hash browns (we prefer Southern style w/ peppers & onion)
 
 
 

@@ -77,7 +77,7 @@ To begin with this recipe, we have to prepare a few ingredients. You can have ca
 1. Make ready 1 box pasta (we like penne)
 
 
-Cajun Chicken Pasta — Grilled chicken, a creamy Alfredo-style sauce, &amp; plenty of sauteed veggies, all seasoned with a spicy cajun seasoning! Cajun Chicken Pasta Penne with fresh homemade seasoning, is a delicious, slightly spicy and totally flavorful dinner, saturated in garlic cream sauce and perfect for a filling dish. This pasta tastes just like the real thing and it is so easy to make in the comfort of your own kitchen. Place chicken breasts in a resealable plastic bag and sprinkle in cajun seasoning. 
+Cajun Chicken Pasta — Grilled chicken, a creamy Alfredo-style sauce, & plenty of sauteed veggies, all seasoned with a spicy cajun seasoning! Cajun Chicken Pasta Penne with fresh homemade seasoning, is a delicious, slightly spicy and totally flavorful dinner, saturated in garlic cream sauce and perfect for a filling dish. This pasta tastes just like the real thing and it is so easy to make in the comfort of your own kitchen. Place chicken breasts in a resealable plastic bag and sprinkle in cajun seasoning. 
 
 <!--inarticleads2-->
 

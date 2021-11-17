@@ -78,6 +78,6 @@ Fresh salsa dresses up grilled chicken--or any other meat for that matter--in th
 1. Then serve it ❤❤ u can eat raita with this yUmmy chicken
 1. Ready to serve and ENJOY!
 
-Don&#39;t worry, you don&#39;t need a special diet to get your vaccine. But we talked to the CDC and doctors to learn more. Cucumber chicken with shredded chicken breast, colby jack &amp; cucumber spread on a spinach wrap, cucumber chicken by Target Stores. You can replace the chicken with salmon fillets or any firm white fish. If the thought of a plain, boring chicken breast makes you want to roll your eyes, you need to check this list, STAT. 
+Don&#39;t worry, you don&#39;t need a special diet to get your vaccine. But we talked to the CDC and doctors to learn more. Cucumber chicken with shredded chicken breast, colby jack & cucumber spread on a spinach wrap, cucumber chicken by Target Stores. You can replace the chicken with salmon fillets or any firm white fish. If the thought of a plain, boring chicken breast makes you want to roll your eyes, you need to check this list, STAT. 
 
 So that's going to wrap it up for this special food chicken with cucumber (diet food) recipe. Thanks so much for your time. I'm sure that you will make this at home. There's gonna be interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

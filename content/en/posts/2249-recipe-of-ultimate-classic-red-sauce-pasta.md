@@ -38,7 +38,7 @@ recipeinstructions:
 - "Jab chicken ka color change ho jaye tu chili flakes, macaroni masala aur salt add karein 1/2 tsp mix well."
 - "Phir carrot add karein cook well."
 - "Capsicum and cabbage add karein mix well."
-- "Add sugar mix &amp; cook well."
+- "Add sugar mix & cook well."
 - "Now add chilli garlic ketchup mix well."
 - "Add 1 tbspn chilli sauce and 1 tbspn vinegar, oregano and mix well."
 - "Thora thick ho Jaye tu water add karein 1/4 cup water add kia cook well."
@@ -110,7 +110,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 1. Jab chicken ka color change ho jaye tu chili flakes, macaroni masala aur salt add karein 1/2 tsp mix well.
 1. Phir carrot add karein cook well.
 1. Capsicum and cabbage add karein mix well.
-1. Add sugar mix &amp; cook well.
+1. Add sugar mix & cook well.
 1. Now add chilli garlic ketchup mix well.
 1. Add 1 tbspn chilli sauce and 1 tbspn vinegar, oregano and mix well.
 1. Thora thick ho Jaye tu water add karein 1/4 cup water add kia cook well.

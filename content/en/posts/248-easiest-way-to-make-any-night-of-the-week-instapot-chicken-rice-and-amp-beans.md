@@ -1,6 +1,6 @@
 ---
-description: "Easiest Way to Make Any-night-of-the-week Instapot Chicken Rice &amp;amp; Beans"
-title: "Easiest Way to Make Any-night-of-the-week Instapot Chicken Rice &amp;amp; Beans"
+description: "Easiest Way to Make Any-night-of-the-week Instapot Chicken Rice & Beans"
+title: "Easiest Way to Make Any-night-of-the-week Instapot Chicken Rice & Beans"
 slug: 248-easiest-way-to-make-any-night-of-the-week-instapot-chicken-rice-and-amp-beans
 date: 2022-02-24T23:33:47.464Z
 image: https://img-global.cpcdn.com/recipes/84cf00d069c80631/680x482cq70/instapot-chicken-rice-beans-recipe-main-photo.jpg
@@ -53,20 +53,20 @@ recipecategory: Lunch
 ---
 
 
-![Instapot Chicken Rice &amp; Beans](https://img-global.cpcdn.com/recipes/84cf00d069c80631/680x482cq70/instapot-chicken-rice-beans-recipe-main-photo.jpg)
+![Instapot Chicken Rice & Beans](https://img-global.cpcdn.com/recipes/84cf00d069c80631/680x482cq70/instapot-chicken-rice-beans-recipe-main-photo.jpg)
 
-Hello everybody, it's Brad, welcome to my recipe page. Today, we're going to prepare a special dish, instapot chicken rice &amp; beans. One of my favorites food recipes. For mine, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
+Hello everybody, it's Brad, welcome to my recipe page. Today, we're going to prepare a special dish, instapot chicken rice & beans. One of my favorites food recipes. For mine, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
 
-Instapot Chicken Rice &amp; Beans is one of the most favored of recent trending meals in the world. It's enjoyed by millions daily. It is simple, it is fast, it tastes yummy. Instapot Chicken Rice &amp; Beans is something that I have loved my whole life. They are nice and they look fantastic.
-
-
+Instapot Chicken Rice & Beans is one of the most favored of recent trending meals in the world. It's enjoyed by millions daily. It is simple, it is fast, it tastes yummy. Instapot Chicken Rice & Beans is something that I have loved my whole life. They are nice and they look fantastic.
 
 
-To get started with this recipe, we must first prepare a few components. You can cook instapot chicken rice &amp; beans using 11 ingredients and 9 steps. Here is how you cook that.
+
+
+To get started with this recipe, we must first prepare a few components. You can cook instapot chicken rice & beans using 11 ingredients and 9 steps. Here is how you cook that.
 
 <!--inarticleads1-->
 
-##### The ingredients needed to make Instapot Chicken Rice &amp; Beans:
+##### The ingredients needed to make Instapot Chicken Rice & Beans:
 
 1. Prepare 2 tbsp Olive oil
 1. Prepare  1/4 cup chopped onion
@@ -85,7 +85,7 @@ To get started with this recipe, we must first prepare a few components. You can
 
 <!--inarticleads2-->
 
-##### Instructions to make Instapot Chicken Rice &amp; Beans:
+##### Instructions to make Instapot Chicken Rice & Beans:
 
 1. Chop broccoli florets
 1. Place florets and cup of water in instapot. Set on high pressure with a time of zero.
@@ -100,4 +100,4 @@ To get started with this recipe, we must first prepare a few components. You can
 
 
 
-So that is going to wrap this up for this exceptional food instapot chicken rice &amp; beans recipe. Thank you very much for reading. I'm confident you will make this at home. There is gonna be more interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!
+So that is going to wrap this up for this exceptional food instapot chicken rice & beans recipe. Thank you very much for reading. I'm confident you will make this at home. There is gonna be more interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!

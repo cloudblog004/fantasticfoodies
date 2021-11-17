@@ -20,7 +20,7 @@ recipeingredient:
 - "8 oz sour cream"
 - "8 oz shredded cheddar cheese"
 recipeinstructions:
-- "Lay cut chicken in 9x13 casserole dish. Arrange about 2-3 inches apart just enough to &#34;fill&#34; the dish. Set aside."
+- "Lay cut chicken in 9x13 casserole dish. Arrange about 2-3 inches apart just enough to *fill* the dish. Set aside."
 - "Mix together cooked brown rice, cream of chicken soup, rinsed black beans and sour cream in a medium size bowl."
 - "Cover chicken with rice mixture and bake at 350 degrees for about 30 minutes or until bubbly and the chicken is done."
 - "Turn off oven and sprinkle with cheese and leave in oven for about 5 minutes until cheese is melted. Serve."
@@ -72,7 +72,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can h
 
 ##### Instructions to make Chicken and Rice Casserole:
 
-1. Lay cut chicken in 9x13 casserole dish. Arrange about 2-3 inches apart just enough to &#34;fill&#34; the dish. Set aside.
+1. Lay cut chicken in 9x13 casserole dish. Arrange about 2-3 inches apart just enough to *fill* the dish. Set aside.
 1. Mix together cooked brown rice, cream of chicken soup, rinsed black beans and sour cream in a medium size bowl.
 1. Cover chicken with rice mixture and bake at 350 degrees for about 30 minutes or until bubbly and the chicken is done.
 1. Turn off oven and sprinkle with cheese and leave in oven for about 5 minutes until cheese is melted. Serve.

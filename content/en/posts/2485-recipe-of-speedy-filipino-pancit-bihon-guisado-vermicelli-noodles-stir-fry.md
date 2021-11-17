@@ -39,7 +39,7 @@ recipeingredient:
 - "4-6 halved Calamansi or sliced lime on the side"
 - " Green onions cut into garnish size optional garnish"
 recipeinstructions:
-- "Salt &amp; pepper the chicken, liver and pork tips. Par boil in a pot with the bullion cube then cut into strips or chop if you prefer bone-in and set aside. Wash and dip the vermicelli in clean water then leave to soak in the liquid used to boil the meat."
+- "Salt & pepper the chicken, liver and pork tips. Par boil in a pot with the bullion cube then cut into strips or chop if you prefer bone-in and set aside. Wash and dip the vermicelli in clean water then leave to soak in the liquid used to boil the meat."
 - "In a deep pan or wok, sauté the garlic and onions. Drop in the bell pepper if you prefer it softer, if not, add later."
 - "Add chicken, pork, liver, shrimps, woodear mushrooms and sauté with a dash of soy sauce. The optional proteins are up to you. It can just be the basic chicken. It can also be leftover roast chicken or meat. That&#39;s why the Pancit is so versatile. :) Sauté whatever you have at this point with the garlic and onions, except the already fried fishballs (add that when ready to serve)."
 - "Sauté 3 mins. Drop in the chilies now if you prefer a little heat. Mix in."
@@ -119,7 +119,7 @@ To get started with this recipe, we have to prepare a few components. You can ha
 
 ##### Instructions to make Filipino Pancit Bihon Guisado - Vermicelli Noodles Stir Fry:
 
-1. Salt &amp; pepper the chicken, liver and pork tips. Par boil in a pot with the bullion cube then cut into strips or chop if you prefer bone-in and set aside. Wash and dip the vermicelli in clean water then leave to soak in the liquid used to boil the meat.
+1. Salt & pepper the chicken, liver and pork tips. Par boil in a pot with the bullion cube then cut into strips or chop if you prefer bone-in and set aside. Wash and dip the vermicelli in clean water then leave to soak in the liquid used to boil the meat.
 1. In a deep pan or wok, sauté the garlic and onions. Drop in the bell pepper if you prefer it softer, if not, add later.
 1. Add chicken, pork, liver, shrimps, woodear mushrooms and sauté with a dash of soy sauce. The optional proteins are up to you. It can just be the basic chicken. It can also be leftover roast chicken or meat. That&#39;s why the Pancit is so versatile. :) Sauté whatever you have at this point with the garlic and onions, except the already fried fishballs (add that when ready to serve).
 1. Sauté 3 mins. Drop in the chilies now if you prefer a little heat. Mix in.

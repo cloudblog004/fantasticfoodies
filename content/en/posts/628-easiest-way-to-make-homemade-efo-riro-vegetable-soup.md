@@ -59,7 +59,7 @@ recipecategory: Dessert
 
 Hey everyone, I hope you are having an incredible day today. Today, we're going to prepare a distinctive dish, efo riro (vegetable soup). It is one of my favorites food recipes. For mine, I am going to make it a little bit tasty. This is gonna smell and look delicious.
 
-I hope you enjoy this recipe as much as I enjoyed putting it together for you guys! Full written recipe for the vegetable soup (Efo riro). Efo riro as this vegetable soup is natively called in Yoruba literally translates to &#39;vegetable stir &#39; (where &#39;efo&#39; translates to This Nigerian spinach stew, also called vegetable soup and natively known as &#34;Efo Riro&#34; is guaranteed to be one of the most savory and delicious spinach recipes you will ever taste! Efo Riro is a very popular Yoruba soup in Nigeria, it is one of my favorite Nigerian soups because of its health benefits.
+I hope you enjoy this recipe as much as I enjoyed putting it together for you guys! Full written recipe for the vegetable soup (Efo riro). Efo riro as this vegetable soup is natively called in Yoruba literally translates to &#39;vegetable stir &#39; (where &#39;efo&#39; translates to This Nigerian spinach stew, also called vegetable soup and natively known as *Efo Riro* is guaranteed to be one of the most savory and delicious spinach recipes you will ever taste! Efo Riro is a very popular Yoruba soup in Nigeria, it is one of my favorite Nigerian soups because of its health benefits.
 
 Efo riro (Vegetable soup) is one of the most popular of recent trending foods in the world. It is enjoyed by millions daily. It's simple, it is fast, it tastes delicious. Efo riro (Vegetable soup) is something that I've loved my entire life. They're nice and they look fantastic.
 
@@ -84,7 +84,7 @@ To begin with this recipe, we have to prepare a few components. You can have efo
 1. Take  locust bean
 
 
-The best vegetables suitable for this recipe are efo tete or efo… Efo Riro soup recipe first appeared on this website a few years back and was a big favorite among our readers, who also poured in their happy feedbacks. Another thing I did differently in this efo riro soup recipe was frying the iru and crayfish in the palm oil. Believe me, this step make the utmost. Today I made Efo Riro which is one of my favorite vegetable soups. &#34;Efo riro&#34; is a Yoruba word which simply means &#34;Vegetable soup&#34; and it&#39;s enjoyed by many. 
+The best vegetables suitable for this recipe are efo tete or efo… Efo Riro soup recipe first appeared on this website a few years back and was a big favorite among our readers, who also poured in their happy feedbacks. Another thing I did differently in this efo riro soup recipe was frying the iru and crayfish in the palm oil. Believe me, this step make the utmost. Today I made Efo Riro which is one of my favorite vegetable soups. *Efo riro* is a Yoruba word which simply means *Vegetable soup* and it&#39;s enjoyed by many. 
 
 <!--inarticleads2-->
 
@@ -102,6 +102,6 @@ The best vegetables suitable for this recipe are efo tete or efo… Efo Riro sou
 1. Finally, add your smoked fish and stir gently. Food is ready!
 1. Ready to serve and ENJOY!
 
-Believe me, this step make the utmost. Today I made Efo Riro which is one of my favorite vegetable soups. &#34;Efo riro&#34; is a Yoruba word which simply means &#34;Vegetable soup&#34; and it&#39;s enjoyed by many. This is because it&#39;s really versatile and could be eaten with meals such as Rice, Yam and any type of Swallow. When I got to the market to buy the. See recipes for Eforiro, EFO-RIRO SOUP, Efo riro soup with semo too. 
+Believe me, this step make the utmost. Today I made Efo Riro which is one of my favorite vegetable soups. *Efo riro* is a Yoruba word which simply means *Vegetable soup* and it&#39;s enjoyed by many. This is because it&#39;s really versatile and could be eaten with meals such as Rice, Yam and any type of Swallow. When I got to the market to buy the. See recipes for Eforiro, EFO-RIRO SOUP, Efo riro soup with semo too. 
 
 So that's going to wrap it up with this exceptional food efo riro (vegetable soup) recipe. Thank you very much for your time. I am confident you can make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

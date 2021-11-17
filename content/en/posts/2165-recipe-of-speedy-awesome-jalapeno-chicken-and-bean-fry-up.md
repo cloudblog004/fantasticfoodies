@@ -32,8 +32,8 @@ recipeinstructions:
 - "Add chutney"
 - "Add jalapenos"
 - "Add beans"
-- "If you are going &#34;hot&#34; add more jalapeno"
-- "If you invoke the &#34;panty peeler&#34; add mascaponi"
+- "If you are going *hot* add more jalapeno"
+- "If you invoke the *panty peeler* add mascaponi"
 - "Bump the fry-up onto rice...serve..... enjoy"
 - "Ready to serve and ENJOY!"
 categories:
@@ -82,7 +82,7 @@ To begin with this recipe, we have to prepare a few components. You can cook awe
 1. Get  Rice
 
 
-Awesome jalapeno chicken and bean fry-up. Chicken•Jalepeno•Ginger and chillie relish from woolies•Beans•Mascaponi•Chillie oil•Chillie and garlic flakes•Chutney. A jalapeno chicken recipe with an Asian twist? Spicy Jalapeno Chicken &amp; Broccoli Stir Fry is spicier and healthier than Chinese takeout. 
+Awesome jalapeno chicken and bean fry-up. Chicken•Jalepeno•Ginger and chillie relish from woolies•Beans•Mascaponi•Chillie oil•Chillie and garlic flakes•Chutney. A jalapeno chicken recipe with an Asian twist? Spicy Jalapeno Chicken & Broccoli Stir Fry is spicier and healthier than Chinese takeout. 
 
 <!--inarticleads2-->
 
@@ -95,11 +95,11 @@ Awesome jalapeno chicken and bean fry-up. Chicken•Jalepeno•Ginger and chilli
 1. Add chutney
 1. Add jalapenos
 1. Add beans
-1. If you are going &#34;hot&#34; add more jalapeno
-1. If you invoke the &#34;panty peeler&#34; add mascaponi
+1. If you are going *hot* add more jalapeno
+1. If you invoke the *panty peeler* add mascaponi
 1. Bump the fry-up onto rice...serve..... enjoy
 1. Ready to serve and ENJOY!
 
-A jalapeno chicken recipe with an Asian twist? Spicy Jalapeno Chicken &amp; Broccoli Stir Fry is spicier and healthier than Chinese takeout. Kung Pao chicken, vegetable fried rice, and egg rolls to a favorites in our house. But with planning, you can skip the often calorie laden and less than nutritious.. Chinese Jalapeno Chicken, Chinese Saliva Chicken, Chinese-american Fried Chicken. 
+A jalapeno chicken recipe with an Asian twist? Spicy Jalapeno Chicken & Broccoli Stir Fry is spicier and healthier than Chinese takeout. Kung Pao chicken, vegetable fried rice, and egg rolls to a favorites in our house. But with planning, you can skip the often calorie laden and less than nutritious.. Chinese Jalapeno Chicken, Chinese Saliva Chicken, Chinese-american Fried Chicken. 
 
 So that's going to wrap it up for this exceptional food awesome jalapeno chicken and bean fry-up recipe. Thanks so much for reading. I am sure that you will make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

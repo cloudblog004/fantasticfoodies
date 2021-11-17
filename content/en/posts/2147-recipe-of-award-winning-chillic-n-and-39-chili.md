@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Award-winning Chillic N&amp;#39; Chili"
-title: "Recipe of Award-winning Chillic N&amp;#39; Chili"
+description: "Recipe of Award-winning Chillic N' Chili"
+title: "Recipe of Award-winning Chillic N' Chili"
 slug: 2147-recipe-of-award-winning-chillic-n-and-39-chili
 date: 2022-06-04T10:29:30.136Z
 image: //assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png

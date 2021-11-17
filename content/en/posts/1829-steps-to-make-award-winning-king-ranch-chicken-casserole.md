@@ -27,13 +27,13 @@ recipeingredient:
 - " water"
 recipeinstructions:
 - "Prep is 20 minutes, but you&#39;ll need 40 minutes to an hour for baking."
-- "Place the chicken into a sauce pan with enough water to cover it. Salt &amp; pepper the water well. I like to add some garlic or onion too. Bring to a boil &amp; cook for 15 minutes, or until the chicken is cooked through."
-- "Set aside &amp; let the chicken cool. Retain liquid in a bowl. When the chicken has cooled shred the meat off of the bone. Discard bones &amp; skin."
-- "In a frying pan sauté the celery,  mushrooms, &amp; garlic in the butter until tender &amp; fragrant. This can be done while the chicken cooks."
-- "Transfer the sautéed vegetables to a mixing bowl. Add the condensed soup undiluted, chicken, Rotel tomatoes, &amp; red pepper flakes (optional). Fold the ingredients together."
+- "Place the chicken into a sauce pan with enough water to cover it. Salt & pepper the water well. I like to add some garlic or onion too. Bring to a boil & cook for 15 minutes, or until the chicken is cooked through."
+- "Set aside & let the chicken cool. Retain liquid in a bowl. When the chicken has cooled shred the meat off of the bone. Discard bones & skin."
+- "In a frying pan sauté the celery,  mushrooms, & garlic in the butter until tender & fragrant. This can be done while the chicken cooks."
+- "Transfer the sautéed vegetables to a mixing bowl. Add the condensed soup undiluted, chicken, Rotel tomatoes, & red pepper flakes (optional). Fold the ingredients together."
 - "Prepare an 8x8 pan or similar baking dish. Preheat oven to 350°F Fahrenheit."
-- "Dip each corn tortilla into the broth reserved from the chicken. Then make a single layer in the pan. (As you would for lasagna) Then place 1/2 of the chicken mixture onto the tortillas, spread evenly. Repeat steps for another layer of tortillas &amp; mixture."
-- "Cover with foil and bake for 20 to 30 minutes. Then remove foil, sprinkle with cheese &amp; continue to bake for 20 to 30 more minutes or untli center is hot. Allow to rest for 5 minutes before serving."
+- "Dip each corn tortilla into the broth reserved from the chicken. Then make a single layer in the pan. (As you would for lasagna) Then place 1/2 of the chicken mixture onto the tortillas, spread evenly. Repeat steps for another layer of tortillas & mixture."
+- "Cover with foil and bake for 20 to 30 minutes. Then remove foil, sprinkle with cheese & continue to bake for 20 to 30 more minutes or untli center is hot. Allow to rest for 5 minutes before serving."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -75,10 +75,10 @@ To get started with this recipe, we have to prepare a few components. You can co
 1. Get 1 tsp red pepper flakes (optional)
 1. Prepare 1 can Rotel brand tomatoes (10 oz, other tomatoes with chilies may be substituted)
 1. Make ready 6 to 8 corn tortillas
-1. Get  salt &amp; pepper
+1. Get  salt & pepper
 1. Prepare 2 tbsp butter
 1. Make ready 2 clove garlic mined (small or to taste)
-1. Make ready 1 chicken thigh &amp; leg quarter
+1. Make ready 1 chicken thigh & leg quarter
 1. Prepare  water
 
 
@@ -89,13 +89,13 @@ We bet that after one taste of this rich, creamy King Ranch casserole recipe, yo
 ##### Instructions to make King Ranch Chicken Casserole:
 
 1. Prep is 20 minutes, but you&#39;ll need 40 minutes to an hour for baking.
-1. Place the chicken into a sauce pan with enough water to cover it. Salt &amp; pepper the water well. I like to add some garlic or onion too. Bring to a boil &amp; cook for 15 minutes, or until the chicken is cooked through.
-1. Set aside &amp; let the chicken cool. Retain liquid in a bowl. When the chicken has cooled shred the meat off of the bone. Discard bones &amp; skin.
-1. In a frying pan sauté the celery,  mushrooms, &amp; garlic in the butter until tender &amp; fragrant. This can be done while the chicken cooks.
-1. Transfer the sautéed vegetables to a mixing bowl. Add the condensed soup undiluted, chicken, Rotel tomatoes, &amp; red pepper flakes (optional). Fold the ingredients together.
+1. Place the chicken into a sauce pan with enough water to cover it. Salt & pepper the water well. I like to add some garlic or onion too. Bring to a boil & cook for 15 minutes, or until the chicken is cooked through.
+1. Set aside & let the chicken cool. Retain liquid in a bowl. When the chicken has cooled shred the meat off of the bone. Discard bones & skin.
+1. In a frying pan sauté the celery,  mushrooms, & garlic in the butter until tender & fragrant. This can be done while the chicken cooks.
+1. Transfer the sautéed vegetables to a mixing bowl. Add the condensed soup undiluted, chicken, Rotel tomatoes, & red pepper flakes (optional). Fold the ingredients together.
 1. Prepare an 8x8 pan or similar baking dish. Preheat oven to 350°F Fahrenheit.
-1. Dip each corn tortilla into the broth reserved from the chicken. Then make a single layer in the pan. (As you would for lasagna) Then place 1/2 of the chicken mixture onto the tortillas, spread evenly. Repeat steps for another layer of tortillas &amp; mixture.
-1. Cover with foil and bake for 20 to 30 minutes. Then remove foil, sprinkle with cheese &amp; continue to bake for 20 to 30 more minutes or untli center is hot. Allow to rest for 5 minutes before serving.
+1. Dip each corn tortilla into the broth reserved from the chicken. Then make a single layer in the pan. (As you would for lasagna) Then place 1/2 of the chicken mixture onto the tortillas, spread evenly. Repeat steps for another layer of tortillas & mixture.
+1. Cover with foil and bake for 20 to 30 minutes. Then remove foil, sprinkle with cheese & continue to bake for 20 to 30 more minutes or untli center is hot. Allow to rest for 5 minutes before serving.
 1. Ready to serve and ENJOY!
 
 This cheesy casserole is basically a Texan lasagna! Layers of crispy corn tortillas, cheese, and a creamy chicken mixture loaded with bell peppers, tomatoes, green chiles, chili powder and cumin! Perfect for potlucks or family get togethers! A King Ranch Chicken Casserole is just the kind of hot, bubbly comfort we&#39;ve all come to expect from Southern cooking. It hails from Texas - named after the biggest ranch in the state even though there&#39;s no actual link between the recipe and the ranch itself. 

@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Quick Jamie&amp;#39;s Quick Lasagna"
-title: "Recipe of Quick Jamie&amp;#39;s Quick Lasagna"
+description: "Recipe of Quick Jamie's Quick Lasagna"
+title: "Recipe of Quick Jamie's Quick Lasagna"
 slug: 1305-recipe-of-quick-jamie-and-39-s-quick-lasagna
 date: 2022-04-27T19:24:00.663Z
 image: //assets-global.cpcdn.com/assets/blank-4e0bea6785e03f5e602ec562f230caae08da540cada707380b4fe1bbebba43da.png

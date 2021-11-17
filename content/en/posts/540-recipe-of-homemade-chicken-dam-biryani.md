@@ -35,16 +35,16 @@ recipeingredient:
 - "1/2 tsp Shahzeera"
 - "6-8 Cardamom"
 recipeinstructions:
-- "First wash and soak rice for about an hour or two adding 1 tablespoon oil, salt 2 teaspoons and sticks of cinnamon, few cloves, few cardamoms, shahzeera ) later on add few mint &amp; coriander leaves in water while cooking."
+- "First wash and soak rice for about an hour or two adding 1 tablespoon oil, salt 2 teaspoons and sticks of cinnamon, few cloves, few cardamoms, shahzeera ) later on add few mint & coriander leaves in water while cooking."
 - "Wash and marinate the chicken for an hour with all spices like so (red chilli powder, turmeric powder, salt 1 teaspoon, ginger garlic paste, Garam masala powder, oil, mint and coriander leaves, half of the fried onions, kasuri methi, lemon juice)."
 - "Start cooking rice in stove on higher flame and before one boil when it’s only 30% cooked u immediately off the flame and drain the rice."
 - "Now in the cookware dish add oil or ghee in the base nicely then to the sides in a dish add the layer of marinated chicken in the base make sure non-watery gravy, it must be thick marination."
 - "Then add all the rice slowly then tap the dish generously so that it settles layer."
-- "Now add fried onions, ghee, milk with saffron dipped, mint &amp; coriander leaves, food colour is optional."
+- "Now add fried onions, ghee, milk with saffron dipped, mint & coriander leaves, food colour is optional."
 - "Now cover it well with foil paper or the perfect lid steam must be inside before closing lid add half cup of water and make roughly spots in rice using the backside of a spoon."
 - "Lastly, keep it on steaming for about good 20 minutes on simmer flame the aroma starts coming around."
 - "Turn off the flame and check after five minutes, if required to cook more water in gravy add it beneath and cover again for 5-10 minutes on simmer flame."
-- "Let it rest for 20 minutes then serve hot with Mirchi ka salan or raita &amp; salad and enjoy the best biryani at home."
+- "Let it rest for 20 minutes then serve hot with Mirchi ka salan or raita & salad and enjoy the best biryani at home."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -108,16 +108,16 @@ Hyderabadi chicken biryani recipe, the best authentic biryani better than restau
 
 ##### Steps to make Chicken dam biryani:
 
-1. First wash and soak rice for about an hour or two adding 1 tablespoon oil, salt 2 teaspoons and sticks of cinnamon, few cloves, few cardamoms, shahzeera ) later on add few mint &amp; coriander leaves in water while cooking.
+1. First wash and soak rice for about an hour or two adding 1 tablespoon oil, salt 2 teaspoons and sticks of cinnamon, few cloves, few cardamoms, shahzeera ) later on add few mint & coriander leaves in water while cooking.
 1. Wash and marinate the chicken for an hour with all spices like so (red chilli powder, turmeric powder, salt 1 teaspoon, ginger garlic paste, Garam masala powder, oil, mint and coriander leaves, half of the fried onions, kasuri methi, lemon juice).
 1. Start cooking rice in stove on higher flame and before one boil when it’s only 30% cooked u immediately off the flame and drain the rice.
 1. Now in the cookware dish add oil or ghee in the base nicely then to the sides in a dish add the layer of marinated chicken in the base make sure non-watery gravy, it must be thick marination.
 1. Then add all the rice slowly then tap the dish generously so that it settles layer.
-1. Now add fried onions, ghee, milk with saffron dipped, mint &amp; coriander leaves, food colour is optional.
+1. Now add fried onions, ghee, milk with saffron dipped, mint & coriander leaves, food colour is optional.
 1. Now cover it well with foil paper or the perfect lid steam must be inside before closing lid add half cup of water and make roughly spots in rice using the backside of a spoon.
 1. Lastly, keep it on steaming for about good 20 minutes on simmer flame the aroma starts coming around.
 1. Turn off the flame and check after five minutes, if required to cook more water in gravy add it beneath and cover again for 5-10 minutes on simmer flame.
-1. Let it rest for 20 minutes then serve hot with Mirchi ka salan or raita &amp; salad and enjoy the best biryani at home.
+1. Let it rest for 20 minutes then serve hot with Mirchi ka salan or raita & salad and enjoy the best biryani at home.
 1. Ready to serve and ENJOY!
 
 Hyderabadi Chicken Dum Biryani — Hyderabadi biryani is a form of biryani, from Hyderabad, South India. It is prepared in the form of kachay gosht ki biryani and dum ki. Everyone loves chicken biryani rice, and here is why this deliciously flavored chicken biryani recipe conquers the heart of the most demanding gastronomes. Chicken Dum Biryani Recipe is one of the best ways to make biryani and mind you, it is full of very distinct flavours. The most important of which comes from the very many. 

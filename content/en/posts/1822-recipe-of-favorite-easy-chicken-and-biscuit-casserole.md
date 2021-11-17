@@ -26,9 +26,9 @@ recipeingredient:
 - "10 oz 1 cancondensed mushroom soup"
 - "10 oz 1 cancondensed cream chicken soup"
 recipeinstructions:
-- "Season your chicken with seasoning of your choice- I use poultry seasoning when chicken in raw. Add 1 tbsp of olive oil into a skillet, add chicken, cook for 15 mins covered on med-low heat. Add chopped onion &amp; boullion, cook for 3 mins. Add vegetables for last 10 mins of cooking. If using frozen vegs add at last 5 mins of cooking just to warm up. Preheat oven at 400°f"
-- "Remove chicken breast &amp; cubed. All this point if your using fresh vegs they should be done also."
-- "Spray a 13×9 pan with cooking spray. Pour soups, milk, thyme &amp; pepper &amp; mix well. Add vegs mix well. Add chicken mix well. Place in oven for 15 mins at 400°f . Take out and mix well."
+- "Season your chicken with seasoning of your choice- I use poultry seasoning when chicken in raw. Add 1 tbsp of olive oil into a skillet, add chicken, cook for 15 mins covered on med-low heat. Add chopped onion & boullion, cook for 3 mins. Add vegetables for last 10 mins of cooking. If using frozen vegs add at last 5 mins of cooking just to warm up. Preheat oven at 400°f"
+- "Remove chicken breast & cubed. All this point if your using fresh vegs they should be done also."
+- "Spray a 13×9 pan with cooking spray. Pour soups, milk, thyme & pepper & mix well. Add vegs mix well. Add chicken mix well. Place in oven for 15 mins at 400°f . Take out and mix well."
 - "Cut biscuits into quarter pieces. And cover chicken mixture with biscuits. Then place back into oven for 15 more mins or until biscuits are golden brown."
 - "Ready to serve and ENJOY!"
 categories:
@@ -78,15 +78,15 @@ To begin with this particular recipe, we must first prepare a few components. Yo
 1. Get 10 oz 1 can-condensed cream chicken soup
 
 
-Old-fashioned Creamed Chicken And Biscuits, Biscuit &amp; Chicken Casserole, Easy Parmesan Chicken Leftover Turkey or Chicken and Biscuits CasseroleAbout a Mom. butter, cream of chicken soup, frozen peas, pepper, carrots, chicken broth. Chicken Biscuits Casserole : Looking for easy chicken recipes for your busy weeknights? During the week when everyone&#39;s schedule is pulling me in different directions, preparing a home-cooked meal can be a challenge. This ultra-homey casserole gets the bulk of its substance from tender pieces of shredded chicken breast. 
+Old-fashioned Creamed Chicken And Biscuits, Biscuit & Chicken Casserole, Easy Parmesan Chicken Leftover Turkey or Chicken and Biscuits CasseroleAbout a Mom. butter, cream of chicken soup, frozen peas, pepper, carrots, chicken broth. Chicken Biscuits Casserole : Looking for easy chicken recipes for your busy weeknights? During the week when everyone&#39;s schedule is pulling me in different directions, preparing a home-cooked meal can be a challenge. This ultra-homey casserole gets the bulk of its substance from tender pieces of shredded chicken breast. 
 
 <!--inarticleads2-->
 
 ##### Instructions to make Easy chicken and biscuit casserole:
 
-1. Season your chicken with seasoning of your choice- I use poultry seasoning when chicken in raw. Add 1 tbsp of olive oil into a skillet, add chicken, cook for 15 mins covered on med-low heat. Add chopped onion &amp; boullion, cook for 3 mins. Add vegetables for last 10 mins of cooking. If using frozen vegs add at last 5 mins of cooking just to warm up. Preheat oven at 400°f
-1. Remove chicken breast &amp; cubed. All this point if your using fresh vegs they should be done also.
-1. Spray a 13×9 pan with cooking spray. Pour soups, milk, thyme &amp; pepper &amp; mix well. Add vegs mix well. Add chicken mix well. Place in oven for 15 mins at 400°f . Take out and mix well.
+1. Season your chicken with seasoning of your choice- I use poultry seasoning when chicken in raw. Add 1 tbsp of olive oil into a skillet, add chicken, cook for 15 mins covered on med-low heat. Add chopped onion & boullion, cook for 3 mins. Add vegetables for last 10 mins of cooking. If using frozen vegs add at last 5 mins of cooking just to warm up. Preheat oven at 400°f
+1. Remove chicken breast & cubed. All this point if your using fresh vegs they should be done also.
+1. Spray a 13×9 pan with cooking spray. Pour soups, milk, thyme & pepper & mix well. Add vegs mix well. Add chicken mix well. Place in oven for 15 mins at 400°f . Take out and mix well.
 1. Cut biscuits into quarter pieces. And cover chicken mixture with biscuits. Then place back into oven for 15 more mins or until biscuits are golden brown.
 1. Ready to serve and ENJOY!
 

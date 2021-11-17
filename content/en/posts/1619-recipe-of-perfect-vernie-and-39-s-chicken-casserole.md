@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Perfect Vernie&amp;#39;s Chicken Casserole"
-title: "Recipe of Perfect Vernie&amp;#39;s Chicken Casserole"
+description: "Recipe of Perfect Vernie's Chicken Casserole"
+title: "Recipe of Perfect Vernie's Chicken Casserole"
 slug: 1619-recipe-of-perfect-vernie-and-39-s-chicken-casserole
 date: 2022-02-28T14:26:08.679Z
 image: https://img-global.cpcdn.com/recipes/51667d4e64382d3e/680x482cq70/vernies-chicken-casserole-recipe-main-photo.jpg

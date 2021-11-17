@@ -61,9 +61,9 @@ To begin with this particular recipe, we have to first prepare a few ingredients
 
 1. Make ready 3 1/2 can chicken brooth
 1. Make ready 2 can cream of chicken
-1. Prepare 3 eggs boiled &amp; sliced into peices
+1. Prepare 3 eggs boiled & sliced into peices
 1. Prepare 1 1/3 cup flour
-1. Get 1 1/2 tbsp salt&amp; pepper
+1. Get 1 1/2 tbsp salt& pepper
 1. Get 1 bonless cooked chicken breats cut.into small peices
 
 

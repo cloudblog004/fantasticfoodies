@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Super Quick Homemade Melissa&amp;#39;s Crockpot Thai Chicken"
-title: "Recipe of Super Quick Homemade Melissa&amp;#39;s Crockpot Thai Chicken"
+description: "Recipe of Super Quick Homemade Melissa's Crockpot Thai Chicken"
+title: "Recipe of Super Quick Homemade Melissa's Crockpot Thai Chicken"
 slug: 232-recipe-of-super-quick-homemade-melissa-and-39-s-crockpot-thai-chicken
 date: 2022-06-04T06:51:14.844Z
 image: https://img-global.cpcdn.com/recipes/5238632782757888/680x482cq70/melissas-crockpot-thai-chicken-recipe-main-photo.jpg

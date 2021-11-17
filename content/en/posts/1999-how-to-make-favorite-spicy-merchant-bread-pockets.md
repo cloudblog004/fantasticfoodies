@@ -79,7 +79,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 1. Prepare 1 and half tbs cuisine (chat masala)
 1. Make ready 1 and half tbs White paper
 1. Make ready 1 Big bread
-1. Get  &#34;For frying&#34;
+1. Get  *For frying*
 1. Get 2 cup Oil
 1. Get 2 cup bread Crumbs
 1. Take 3 eggs

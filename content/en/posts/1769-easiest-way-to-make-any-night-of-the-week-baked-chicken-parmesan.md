@@ -32,10 +32,10 @@ recipeinstructions:
 - "First, Add pasta to boiling water in Medium sized pot. Add salt. Cook till soft and tender. Strain and set aside."
 - "Beat Dijon Mustard with egg and water. Set aside."
 - "Toast 2 slides of the bread of your choice well. Crumble finely. Add salt, pepper, season salt, garlic powder, paprika, and grated parmesan. Ba-Bada-Ba you made delicious, home-made bread crumbs my friend!🍞"
-- "Take flour, salt &amp; pepper and spread onto a plate. Set aside."
-- "Heat a saute pan with 1 tablespoon of butter. Take 1 piece of thawded chicken breast, drench in your mustard &amp; egg mixture. Next, drench that same piece in flour mixture. Back into the mustard and egg pool! Now throw that piece of chicken on your plate of home made bread crumbs. Cover and stick mixture to your meat the best you can! (Repeat with each piece of chicken!)"
+- "Take flour, salt & pepper and spread onto a plate. Set aside."
+- "Heat a saute pan with 1 tablespoon of butter. Take 1 piece of thawded chicken breast, drench in your mustard & egg mixture. Next, drench that same piece in flour mixture. Back into the mustard and egg pool! Now throw that piece of chicken on your plate of home made bread crumbs. Cover and stick mixture to your meat the best you can! (Repeat with each piece of chicken!)"
 - "Cook chicken on Medium heat in saute pan. Cook for 3 minutes on each side."
-- "Get out your favorite baking pan! Add cooked noodles, tomato sauce and put pieces of chicken neatly on top. For extra &#34;savory-yummymess&#34; put a piece of Provolone cheese on top each piece of crusted chicken. Bake at 350°F for 15 minutes, take out and let cool before serving. Enjoy my dears!🍴❤💜💙😘"
+- "Get out your favorite baking pan! Add cooked noodles, tomato sauce and put pieces of chicken neatly on top. For extra *savory-yummymess* put a piece of Provolone cheese on top each piece of crusted chicken. Bake at 350°F for 15 minutes, take out and let cool before serving. Enjoy my dears!🍴❤💜💙😘"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -75,7 +75,7 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 1. Get 2 piece Toasted Bread ( Italian, white, wheat, etc. Crumbled finely)
 1. Take 3 piece Thawed Chicken
 1. Make ready 1 cup Flour
-1. Make ready 1 dash Salt &amp; Pepper
+1. Make ready 1 dash Salt & Pepper
 1. Prepare 1 Egg
 1. Take 2 tbsp Dijon Mustard
 1. Prepare 1 cup Grated Parmesan Cheese
@@ -96,10 +96,10 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 1. First, Add pasta to boiling water in Medium sized pot. Add salt. Cook till soft and tender. Strain and set aside.
 1. Beat Dijon Mustard with egg and water. Set aside.
 1. Toast 2 slides of the bread of your choice well. Crumble finely. Add salt, pepper, season salt, garlic powder, paprika, and grated parmesan. Ba-Bada-Ba you made delicious, home-made bread crumbs my friend!🍞
-1. Take flour, salt &amp; pepper and spread onto a plate. Set aside.
-1. Heat a saute pan with 1 tablespoon of butter. Take 1 piece of thawded chicken breast, drench in your mustard &amp; egg mixture. Next, drench that same piece in flour mixture. Back into the mustard and egg pool! Now throw that piece of chicken on your plate of home made bread crumbs. Cover and stick mixture to your meat the best you can! (Repeat with each piece of chicken!)
+1. Take flour, salt & pepper and spread onto a plate. Set aside.
+1. Heat a saute pan with 1 tablespoon of butter. Take 1 piece of thawded chicken breast, drench in your mustard & egg mixture. Next, drench that same piece in flour mixture. Back into the mustard and egg pool! Now throw that piece of chicken on your plate of home made bread crumbs. Cover and stick mixture to your meat the best you can! (Repeat with each piece of chicken!)
 1. Cook chicken on Medium heat in saute pan. Cook for 3 minutes on each side.
-1. Get out your favorite baking pan! Add cooked noodles, tomato sauce and put pieces of chicken neatly on top. For extra &#34;savory-yummymess&#34; put a piece of Provolone cheese on top each piece of crusted chicken. Bake at 350°F for 15 minutes, take out and let cool before serving. Enjoy my dears!🍴❤💜💙😘
+1. Get out your favorite baking pan! Add cooked noodles, tomato sauce and put pieces of chicken neatly on top. For extra *savory-yummymess* put a piece of Provolone cheese on top each piece of crusted chicken. Bake at 350°F for 15 minutes, take out and let cool before serving. Enjoy my dears!🍴❤💜💙😘
 1. Ready to serve and ENJOY!
 
 

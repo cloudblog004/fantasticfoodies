@@ -102,6 +102,6 @@ For this recipe, the goal is delicious, quick and easy chicken and dumplings. We
 1. Add a lil sprinkle cheddar when serving and ENJOY!
 1. Ready to serve and ENJOY!
 
-Today I am cooking at home and making an easy recipe for chicken and dumplings. I am utilizing canned chicken breast and mixed vegetables to make a hearty. Chicken and dumplings is a soup that consists of a chicken cooked in water, with the resulting chicken broth being used to cook the dumplings by boiling. A dumpling—in this context—is a biscuit dough, which is a mixture of flour, shortening, and liquid (water, milk, buttermilk, or chicken stock). Quick &amp; Hearty Chicken and Dumplings. 
+Today I am cooking at home and making an easy recipe for chicken and dumplings. I am utilizing canned chicken breast and mixed vegetables to make a hearty. Chicken and dumplings is a soup that consists of a chicken cooked in water, with the resulting chicken broth being used to cook the dumplings by boiling. A dumpling—in this context—is a biscuit dough, which is a mixture of flour, shortening, and liquid (water, milk, buttermilk, or chicken stock). Quick & Hearty Chicken and Dumplings. 
 
 So that's going to wrap this up with this special food quick chicken and dumplings recipe. Thanks so much for reading. I am sure that you can make this at home. There's gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

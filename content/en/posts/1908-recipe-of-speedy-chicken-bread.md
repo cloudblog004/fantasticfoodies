@@ -101,7 +101,7 @@ To get started with this recipe, we have to first prepare a few components. You 
 1. Prepare 1/2 tsp salt
 1. Get 1 tsp chicken tandoori masala
 1. Take 1 tsp red chili flakes
-1. Make ready 1 &amp; 1/2 cup boiled and shreded chicken
+1. Make ready 1 & 1/2 cup boiled and shreded chicken
 1. Take 2 tbsp olives
 1. Get  Fresh coriander
 1. Make ready  Assembling

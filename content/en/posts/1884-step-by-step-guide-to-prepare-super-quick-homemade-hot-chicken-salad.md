@@ -25,7 +25,7 @@ recipeingredient:
 - "2 cops potato chips"
 - "2 tspchopped pimento rinsed"
 recipeinstructions:
-- "Mix all ingredients together except Potato chips &amp; cheese."
+- "Mix all ingredients together except Potato chips & cheese."
 - "Put dish in refrigerator overnight, before cooking top with"
 - "Top with cheese, crushed potato chips,Bake at 375 for 15 to 20 min."
 - "Ready to serve and ENJOY!"
@@ -81,7 +81,7 @@ To get started with this recipe, we must first prepare a few ingredients. You ca
 
 ##### Steps to make Hot Chicken Salad:
 
-1. Mix all ingredients together except Potato chips &amp; cheese.
+1. Mix all ingredients together except Potato chips & cheese.
 1. Put dish in refrigerator overnight, before cooking top with
 1. Top with cheese, crushed potato chips,Bake at 375 for 15 to 20 min.
 1. Ready to serve and ENJOY!

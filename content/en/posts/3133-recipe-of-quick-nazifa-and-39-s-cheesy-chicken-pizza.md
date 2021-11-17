@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Quick Nazifa&amp;#39;s Cheesy Chicken Pizza"
-title: "Recipe of Quick Nazifa&amp;#39;s Cheesy Chicken Pizza"
+description: "Recipe of Quick Nazifa's Cheesy Chicken Pizza"
+title: "Recipe of Quick Nazifa's Cheesy Chicken Pizza"
 slug: 3133-recipe-of-quick-nazifa-and-39-s-cheesy-chicken-pizza
 date: 2022-01-31T09:57:53.606Z
 image: https://img-global.cpcdn.com/recipes/682429fbacbff612/680x482cq70/nazifas-cheesy-chicken-pizza-recipe-main-photo.jpg
@@ -70,7 +70,7 @@ To begin with this recipe, we have to first prepare a few ingredients. You can h
 
 ##### The ingredients needed to make Nazifa&#39;s Cheesy Chicken Pizza:
 
-1. Make ready  Flour / Maida - 1.5 (1 &amp; ½) Cups
+1. Make ready  Flour / Maida - 1.5 (1 & ½) Cups
 1. Prepare 1 Teaspoon Sugar -
 1. Take 1 Teaspoon Yeast -
 1. Get  Salt - 1 Teaspoon or as much needed

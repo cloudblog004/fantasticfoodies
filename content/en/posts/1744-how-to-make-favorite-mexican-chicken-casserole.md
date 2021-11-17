@@ -74,7 +74,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 1. Get 10 corn tortillas, shredded into 1-in. square pieces
 1. Make ready 1 can cream of chicken soup
 1. Take 1 can cream of mushroom soup
-1. Get 1/3 can Rotel, drained (tomato &amp; green chilis)
+1. Get 1/3 can Rotel, drained (tomato & green chilis)
 1. Take 24 oz. mozzarella cheese, shredded
 1. Take 1/2 large white onion, chopped
 1. Get 1/2 can black olives, whole and drained

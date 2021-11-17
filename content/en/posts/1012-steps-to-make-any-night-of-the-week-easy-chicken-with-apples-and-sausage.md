@@ -69,13 +69,13 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 
 ##### The ingredients needed to make Easy Chicken with Apples and Sausage:
 
-1. Get 1 lb. smoked sausage, sliced about 1/4&#34; thick (I used Georgia Boy)
+1. Get 1 lb. smoked sausage, sliced about 1/4* thick (I used Georgia Boy)
 1. Prepare 4 Chicken breasts (or thighs- I used two of each)
 1. Get 1 (16 oz) Bag baby carrots
 1. Get 1 can Apple pie filling
 1. Make ready 1 tbsp. Cinnamon
 1. Make ready 1 tsp Cajun seasoning (I used Tony Cacherie&#39;s)
-1. Get 3 Medium sweet peppers, seeds and membranes removed, large diced (about 1/2&#34;x 1/2&#34;)
+1. Get 3 Medium sweet peppers, seeds and membranes removed, large diced (about 1/2*x 1/2*)
 1. Make ready 2 Cups Instant brown rice
 1. Make ready 2 Cups water
 1. Make ready 2 tbsp. Dried basil

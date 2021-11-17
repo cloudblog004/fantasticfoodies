@@ -1,6 +1,6 @@
 ---
-description: "How to Make Favorite Jeramy and Corey&amp;#39;s Chicken Sandwich"
-title: "How to Make Favorite Jeramy and Corey&amp;#39;s Chicken Sandwich"
+description: "How to Make Favorite Jeramy and Corey's Chicken Sandwich"
+title: "How to Make Favorite Jeramy and Corey's Chicken Sandwich"
 slug: 2927-how-to-make-favorite-jeramy-and-corey-and-39-s-chicken-sandwich
 date: 2022-03-16T17:41:41.221Z
 image: https://img-global.cpcdn.com/recipes/361e3b138b6a6abe/680x482cq70/jeramy-and-coreys-chicken-sandwich-recipe-main-photo.jpg

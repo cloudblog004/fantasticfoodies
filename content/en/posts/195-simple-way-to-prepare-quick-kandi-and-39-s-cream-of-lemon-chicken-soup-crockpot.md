@@ -1,6 +1,6 @@
 ---
-description: "Simple Way to Prepare Quick Kandi&amp;#39;s Cream of Lemon Chicken Soup (crockpot)"
-title: "Simple Way to Prepare Quick Kandi&amp;#39;s Cream of Lemon Chicken Soup (crockpot)"
+description: "Simple Way to Prepare Quick Kandi's Cream of Lemon Chicken Soup (crockpot)"
+title: "Simple Way to Prepare Quick Kandi's Cream of Lemon Chicken Soup (crockpot)"
 slug: 195-simple-way-to-prepare-quick-kandi-and-39-s-cream-of-lemon-chicken-soup-crockpot
 date: 2022-04-13T02:25:04.043Z
 image: https://img-global.cpcdn.com/recipes/4984096974438400/680x482cq70/kandis-cream-of-lemon-chicken-soup-crockpot-recipe-main-photo.jpg
@@ -86,7 +86,7 @@ To begin with this recipe, we must prepare a few components. You can cook kandi&
 1. Get 1 tbsp each basil, garlic powder, onion salt
 
 
-I love this, I use low fat cream cheese but you could use fat free. Full ingredient &amp; nutrition information of the Crock Pot Lemon Chicken Calories. Cream and lemon is a luscious combination and is stellar served over crispy chicken! It&#39;s super easy and fast to make, and the sauce is absolutely to die for. 
+I love this, I use low fat cream cheese but you could use fat free. Full ingredient & nutrition information of the Crock Pot Lemon Chicken Calories. Cream and lemon is a luscious combination and is stellar served over crispy chicken! It&#39;s super easy and fast to make, and the sauce is absolutely to die for. 
 
 <!--inarticleads2-->
 

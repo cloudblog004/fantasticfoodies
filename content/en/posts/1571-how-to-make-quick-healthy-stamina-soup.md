@@ -27,7 +27,7 @@ recipeinstructions:
 - "First, cook garlic with mid-high heat."
 - "When garlic turned light brown add meat, cook another 2-3 mins. Then you add vegetables beside top of the nappa leaf. And cook another minute."
 - "Add water and cubes soup stock cook few more mins."
-- "Then add ginger and nappa top. Add salt &amp; pepper to taste, if need any."
+- "Then add ginger and nappa top. Add salt & pepper to taste, if need any."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -71,7 +71,7 @@ To begin with this particular recipe, we have to prepare a few ingredients. You 
 1. Make ready 2 Tbs Ginger (minced)
 1. Get 3 Cubes Chicken bouillon
 1. Take 4 Cups Water
-1. Make ready to taste Salt &amp; Pepper
+1. Make ready to taste Salt & Pepper
 
 
 The code name for this soup is. Your most important resource in combat (besides your life) is your stamina. The yellow bar at the bottom of your screen displays your stamina. Soup is a versatile, budget-friendly dish that you can make during tough times. 
@@ -83,7 +83,7 @@ The code name for this soup is. Your most important resource in combat (besides 
 1. First, cook garlic with mid-high heat.
 1. When garlic turned light brown add meat, cook another 2-3 mins. Then you add vegetables beside top of the nappa leaf. And cook another minute.
 1. Add water and cubes soup stock cook few more mins.
-1. Then add ginger and nappa top. Add salt &amp; pepper to taste, if need any.
+1. Then add ginger and nappa top. Add salt & pepper to taste, if need any.
 1. Ready to serve and ENJOY!
 
 The yellow bar at the bottom of your screen displays your stamina. Soup is a versatile, budget-friendly dish that you can make during tough times. You can also prepare a big batch of soup ahead of time and freeze it in individual containers for later consumption. Stamina is the energy and strength needed to exert oneself for a longer period of time. The word commonly relates to the exertion used for physical activities such as exercise and sports. 

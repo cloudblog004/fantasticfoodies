@@ -92,14 +92,14 @@ To get started with this recipe, we must first prepare a few components. You can
 1. Prepare 1 medium size brown onion
 1. Prepare 1/4 C candlenuts (opt)
 1. Make ready 3-4 garlics
-1. Make ready 1-2 C dried chillies deseeded, soaked &amp; softened in boiling water
+1. Make ready 1-2 C dried chillies deseeded, soaked & softened in boiling water
 1. Prepare  C. Paste
 1. Take 1 C meat curry powder
 1. Prepare As needed Water
 1. Make ready  D. Spices
 1. Take 1 cinnamon stick
 1. Get 1 star Anise
-1. Prepare  F. Extras &amp; Seasoning
+1. Prepare  F. Extras & Seasoning
 1. Take 1 tsp sugar
 1. Prepare 1 tbsp thick tamarind juice
 1. Prepare 2-3 tsp or to taste Chicken seasoning powder

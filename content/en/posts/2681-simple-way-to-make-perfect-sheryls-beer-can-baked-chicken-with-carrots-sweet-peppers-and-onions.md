@@ -82,6 +82,6 @@ They&#39;re no-bake and easy to make with ingredients you probably have on hand,
 1. Remove from oven let rest 10 min and serve.
 1. Ready to serve and ENJOY!
 
-This beer baked chicken is crispy and bursting will flavors. It really needs nothing else but you can An inexpensive delicious way to feed a crowd! Proceed with the same directions, it&#39;s. Here I added a plethora of bright bell peppers and sweet red onions to help shout &#34;summer braise&#34; from the rooftops. For a long time, I would break down a chicken into its various parts whenever I made a braise, but then I fell in love with chicken thighs and have never looked back. 
+This beer baked chicken is crispy and bursting will flavors. It really needs nothing else but you can An inexpensive delicious way to feed a crowd! Proceed with the same directions, it&#39;s. Here I added a plethora of bright bell peppers and sweet red onions to help shout *summer braise* from the rooftops. For a long time, I would break down a chicken into its various parts whenever I made a braise, but then I fell in love with chicken thighs and have never looked back. 
 
 So that's going to wrap this up with this exceptional food sheryl`s beer can baked chicken with carrots,sweet peppers and onions recipe. Thanks so much for reading. I am confident that you will make this at home. There is gonna be more interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

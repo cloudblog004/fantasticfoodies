@@ -94,7 +94,7 @@ To get started with this particular recipe, we must first prepare a few ingredie
 1. Get 1/2 cup apple viniger
 
 
-Learn how to make Mango-Chicken Wraps. Be the first to rate &amp; review! These Caribbean Chicken Mango Lettuce Wraps are simple to make: Top blackened chicken with chunky mango-avocado salsa. Don&#39;t be scared if the ingredient list is longer than you&#39;re used to. 
+Learn how to make Mango-Chicken Wraps. Be the first to rate & review! These Caribbean Chicken Mango Lettuce Wraps are simple to make: Top blackened chicken with chunky mango-avocado salsa. Don&#39;t be scared if the ingredient list is longer than you&#39;re used to. 
 
 <!--inarticleads2-->
 
@@ -110,6 +110,6 @@ Learn how to make Mango-Chicken Wraps. Be the first to rate &amp; review! These 
 1. take afobo and sour cream and whisk togeather
 1. Ready to serve and ENJOY!
 
-These Caribbean Chicken Mango Lettuce Wraps are simple to make: Top blackened chicken with chunky mango-avocado salsa. Don&#39;t be scared if the ingredient list is longer than you&#39;re used to. You probably have most of the items in your pantry already! On the bottom third of each tortilla, place one-quarter of each of the chicken strips, mango slices, red onion rings and mesclun mix. An easy Summer meal, these Mango Jalapeno Chicken Lettuce Wraps bring the sweet and the heat, for a perfectly sweet &amp; spicy combination! 
+These Caribbean Chicken Mango Lettuce Wraps are simple to make: Top blackened chicken with chunky mango-avocado salsa. Don&#39;t be scared if the ingredient list is longer than you&#39;re used to. You probably have most of the items in your pantry already! On the bottom third of each tortilla, place one-quarter of each of the chicken strips, mango slices, red onion rings and mesclun mix. An easy Summer meal, these Mango Jalapeno Chicken Lettuce Wraps bring the sweet and the heat, for a perfectly sweet & spicy combination! 
 
 So that is going to wrap this up with this exceptional food mango chicken hispanic wraps recipe. Thank you very much for reading. I'm sure that you can make this at home. There is gonna be more interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

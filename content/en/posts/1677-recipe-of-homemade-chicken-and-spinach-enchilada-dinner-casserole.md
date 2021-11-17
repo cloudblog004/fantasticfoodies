@@ -24,8 +24,8 @@ recipeingredient:
 - " Shredded jack or cheddar cheese enough to cover the top of dish"
 - " Corn or flour tortillas I thought I had corn but I had flour Worked very well"
 recipeinstructions:
-- "Mix shredded chicken, the soups, the Rotel, onion, cumin, &amp; garlic, in a large bowl. Spray cooking spray in a large Pyrex baking dish."
-- "Put one third of mixture in the baking dish then layer the tortillas,chicken mixture, &amp; spinach, repeat till all mixture is used. Top with cheese. Bake at 350 degrees for 30 minutes."
+- "Mix shredded chicken, the soups, the Rotel, onion, cumin, & garlic, in a large bowl. Spray cooking spray in a large Pyrex baking dish."
+- "Put one third of mixture in the baking dish then layer the tortillas,chicken mixture, & spinach, repeat till all mixture is used. Top with cheese. Bake at 350 degrees for 30 minutes."
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -60,11 +60,11 @@ To get started with this recipe, we have to first prepare a few components. You 
 
 ##### The ingredients needed to make Chicken and spinach enchilada dinner casserole:
 
-1. Prepare 2-3 boneless skinless chicken breast, cooked &amp; shredded
+1. Prepare 2-3 boneless skinless chicken breast, cooked & shredded
 1. Take 1 onion, chopped
 1. Get 1 can cream of mushroom soup
 1. Get 1 can cream of chicken soup
-1. Prepare  I can Rotel, with lime &amp; cilantro
+1. Prepare  I can Rotel, with lime & cilantro
 1. Take  Fresh baby spinach
 1. Make ready 3-5 cloves garlic, minced fine
 1. Take 1 tbsp. cumin
@@ -78,8 +78,8 @@ We love a good casserole﻿ and this chicken enchilada casserole recipe certainl
 
 ##### Steps to make Chicken and spinach enchilada dinner casserole:
 
-1. Mix shredded chicken, the soups, the Rotel, onion, cumin, &amp; garlic, in a large bowl. Spray cooking spray in a large Pyrex baking dish.
-1. Put one third of mixture in the baking dish then layer the tortillas,chicken mixture, &amp; spinach, repeat till all mixture is used. Top with cheese. Bake at 350 degrees for 30 minutes.
+1. Mix shredded chicken, the soups, the Rotel, onion, cumin, & garlic, in a large bowl. Spray cooking spray in a large Pyrex baking dish.
+1. Put one third of mixture in the baking dish then layer the tortillas,chicken mixture, & spinach, repeat till all mixture is used. Top with cheese. Bake at 350 degrees for 30 minutes.
 1. Ready to serve and ENJOY!
 
 Cookbook author, Greta Podleski, assembles a delicious and easy chicken enchilada casserole. It&#39;s cheesy, it&#39;s spicy, it&#39;s sinfully delicious. I love chicken enchiladas and this casserole is even easier to make than making regular chicken enchiladas because you just layer your ingredients. Add Spinach and mix until wilted and blended into broth. Add pre-cooked shredded chicken and mix together. 

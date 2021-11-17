@@ -22,8 +22,8 @@ recipeingredient:
 - "to taste Salt and pepper"
 - " Vegetable oil"
 recipeinstructions:
-- "Mix together bread crumbs &amp; seasonings on a cookie sheet &amp; drizzle with oil. cook in 400° oven for 5 minutes. This makes the bread crumbs crispier"
-- "Whisk together eggs, mayonnaise, salt &amp; pepper to make a batter"
+- "Mix together bread crumbs & seasonings on a cookie sheet & drizzle with oil. cook in 400° oven for 5 minutes. This makes the bread crumbs crispier"
+- "Whisk together eggs, mayonnaise, salt & pepper to make a batter"
 - "Add chicken to batter and make sure they are covered completely"
 - "Coat each chicken tender with bread crumbs, pressing down to ensure the crumbs stick. Place on a greased baking sheet"
 - "Cook in 400° oven for 15 minutes or until chicken is done."
@@ -77,8 +77,8 @@ To begin with this particular recipe, we must prepare a few ingredients. You can
 
 ##### Instructions to make Crispy Baked Chicken Tenders:
 
-1. Mix together bread crumbs &amp; seasonings on a cookie sheet &amp; drizzle with oil. cook in 400° oven for 5 minutes. This makes the bread crumbs crispier
-1. Whisk together eggs, mayonnaise, salt &amp; pepper to make a batter
+1. Mix together bread crumbs & seasonings on a cookie sheet & drizzle with oil. cook in 400° oven for 5 minutes. This makes the bread crumbs crispier
+1. Whisk together eggs, mayonnaise, salt & pepper to make a batter
 1. Add chicken to batter and make sure they are covered completely
 1. Coat each chicken tender with bread crumbs, pressing down to ensure the crumbs stick. Place on a greased baking sheet
 1. Cook in 400° oven for 15 minutes or until chicken is done.

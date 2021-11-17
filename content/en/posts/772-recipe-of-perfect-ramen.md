@@ -63,7 +63,7 @@ Hey everyone, it's Brad, welcome to my recipe site. Today, I will show you a way
 
 Ramen is one of the most favored of current trending meals in the world. It's easy, it is fast, it tastes delicious. It's appreciated by millions daily. Ramen is something that I've loved my whole life. They're fine and they look wonderful.
 
-Ramen (/ˈrɑːmən/) (拉麺, ラーメン, rāmen, Japanese pronunciation: [ɾaꜜːmeɴ]) (literally: &#34;pulled noodles&#34;) is a Japanese noodle soup. РАМЕН ДЛЯ НАРУТО Ramen offshoots, like mazesoba, tsukemen, or instant noodle hacks, are accepted. HomemadeMy two first attempt at ramen (tonkotsu the first, new wave shoyu chicken ramen the second). Making ramen from scratch is pretty darn elaborate.
+Ramen (/ˈrɑːmən/) (拉麺, ラーメン, rāmen, Japanese pronunciation: [ɾaꜜːmeɴ]) (literally: *pulled noodles*) is a Japanese noodle soup. РАМЕН ДЛЯ НАРУТО Ramen offshoots, like mazesoba, tsukemen, or instant noodle hacks, are accepted. HomemadeMy two first attempt at ramen (tonkotsu the first, new wave shoyu chicken ramen the second). Making ramen from scratch is pretty darn elaborate.
 
 
 To begin with this recipe, we have to prepare a few components. You can cook ramen using 23 ingredients and 3 steps. Here is how you can achieve that.

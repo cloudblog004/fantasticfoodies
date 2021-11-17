@@ -1,6 +1,6 @@
 ---
-description: "Step-by-Step Guide to Prepare Super Quick Homemade Healthy-ish American Shepherd&amp;#39;s Pie"
-title: "Step-by-Step Guide to Prepare Super Quick Homemade Healthy-ish American Shepherd&amp;#39;s Pie"
+description: "Step-by-Step Guide to Prepare Super Quick Homemade Healthy-ish American Shepherd's Pie"
+title: "Step-by-Step Guide to Prepare Super Quick Homemade Healthy-ish American Shepherd's Pie"
 slug: 2016-step-by-step-guide-to-prepare-super-quick-homemade-healthy-ish-american-shepherd-and-39-s-pie
 date: 2022-05-17T22:11:14.020Z
 image: https://img-global.cpcdn.com/recipes/5855998733975552/680x482cq70/healthy-ish-american-shepherds-pie-recipe-main-photo.jpg

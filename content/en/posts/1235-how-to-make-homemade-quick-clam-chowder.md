@@ -65,7 +65,7 @@ recipecategory: Dinner
 
 Hello everybody, it is Louise, welcome to our recipe site. Today, I will show you a way to make a special dish, quick clam chowder. One of my favorites. This time, I am going to make it a little bit tasty. This is gonna smell and look delicious.
 
-We celebrate National Clam Day by making clam chowder. Ok, so maybe it&#39;s a little obvious, but it&#39;s still damn good.▼ INGREDIENTS:½ cup onion. Manhattan clam chowder with plenty of clams, tomatoes, carrots, and potatoes is ready in under an I was looking for a quick and easy Manhattan clam chowder and never found one, so I made my own! Be the first to rate &amp; review!
+We celebrate National Clam Day by making clam chowder. Ok, so maybe it&#39;s a little obvious, but it&#39;s still damn good.▼ INGREDIENTS:½ cup onion. Manhattan clam chowder with plenty of clams, tomatoes, carrots, and potatoes is ready in under an I was looking for a quick and easy Manhattan clam chowder and never found one, so I made my own! Be the first to rate & review!
 
 Quick Clam Chowder is one of the most favored of current trending meals on earth. It's easy, it is quick, it tastes delicious. It's appreciated by millions every day. They are fine and they look wonderful. Quick Clam Chowder is something which I have loved my entire life.
 

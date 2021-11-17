@@ -62,7 +62,7 @@ recipecategory: Dinner
 
 Hey everyone, it's John, welcome to our recipe page. Today, we're going to make a special dish, dahi baingan 😍. One of my favorites food recipes. This time, I'm gonna make it a little bit tasty. This will be really delicious.
 
-See recipes for Dahi waley baingun, Dahi baingan too. Baingan slice •Water as you required•Chopped garlic•medium onion (chopped)•Oil for fry•Salt / According to your taste•Red Chili. however, dahi baingan recipe is very simple with no tomato based sauce and no stuffing. sliced baingan&#39;s are deep fried or pan fried which is later added to spiced yoghurt curry. further. Dahi Baingan - baby eggplants layered with yogurt and spicy masala makes a great main vegetarian dish for potlucks &amp; parties. Dahi Baingan is an easy North Indian food recipe that is prepared with brinjals, curd and spices.
+See recipes for Dahi waley baingun, Dahi baingan too. Baingan slice •Water as you required•Chopped garlic•medium onion (chopped)•Oil for fry•Salt / According to your taste•Red Chili. however, dahi baingan recipe is very simple with no tomato based sauce and no stuffing. sliced baingan&#39;s are deep fried or pan fried which is later added to spiced yoghurt curry. further. Dahi Baingan - baby eggplants layered with yogurt and spicy masala makes a great main vegetarian dish for potlucks & parties. Dahi Baingan is an easy North Indian food recipe that is prepared with brinjals, curd and spices.
 
 Dahi baingan 😍 is one of the most well liked of recent trending foods on earth. It is easy, it's quick, it tastes delicious. It is enjoyed by millions every day. They are nice and they look fantastic. Dahi baingan 😍 is something which I've loved my whole life.
 

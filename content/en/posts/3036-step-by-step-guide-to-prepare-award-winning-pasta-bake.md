@@ -27,7 +27,7 @@ recipeinstructions:
 - "Place chicken breast in pan, cook until internal temperature is 165°F.  When chicken is fully cooked, shred and season to taste with salt and pepper."
 - "When noodles are al dente, drain water.  Add marinara sauce to pot, and stir."
 - "In seperate container, combine parmesan cheese, basil, thyme, and garlic powder.  Mix together."
-- "Pour noodles into small cooking casserole dish (I used a 5&#34;x9&#34;).  Cover with mozzerella cheese, evenly spread chicken, and season dish with parmesan mix."
+- "Pour noodles into small cooking casserole dish (I used a 5*x9*).  Cover with mozzerella cheese, evenly spread chicken, and season dish with parmesan mix."
 - "Cover dish with aluminum foil, and cook in oven for 15-20 minutes."
 - "Ready to serve and ENJOY!"
 categories:
@@ -83,7 +83,7 @@ To begin with this recipe, we have to prepare a few components. You can cook pas
 1. Place chicken breast in pan, cook until internal temperature is 165°F.  When chicken is fully cooked, shred and season to taste with salt and pepper.
 1. When noodles are al dente, drain water.  Add marinara sauce to pot, and stir.
 1. In seperate container, combine parmesan cheese, basil, thyme, and garlic powder.  Mix together.
-1. Pour noodles into small cooking casserole dish (I used a 5&#34;x9&#34;).  Cover with mozzerella cheese, evenly spread chicken, and season dish with parmesan mix.
+1. Pour noodles into small cooking casserole dish (I used a 5*x9*).  Cover with mozzerella cheese, evenly spread chicken, and season dish with parmesan mix.
 1. Cover dish with aluminum foil, and cook in oven for 15-20 minutes.
 1. Ready to serve and ENJOY!
 

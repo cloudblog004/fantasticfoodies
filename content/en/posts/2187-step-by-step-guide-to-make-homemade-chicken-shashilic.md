@@ -30,8 +30,8 @@ recipeinstructions:
 - "Preparation ingredients"
 - "Aik pan mn oil lekr garlic sanamin stick white zeera ke sath cook karain chicken ko"
 - "Chicken apna colour change kar le phir add karain Shimla mirch with onion well.cooked"
-- "Add all souce black pepper Vinegar mix &amp;cook"
-- "Ready to cook &amp; serve to platter with egg fried rice"
+- "Add all souce black pepper Vinegar mix &cook"
+- "Ready to cook & serve to platter with egg fried rice"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -80,7 +80,7 @@ To begin with this recipe, we must prepare a few components. You can have chicke
 1. Take 1/2 white zeera
 
 
-The &#34;classic&#34; shashlik, Granny says, should be made with mutton. Chicken Shashlik is a type of Shish Kebab, very easy to prepare and can be grilled on Here is a simple recipe to make a very easy Chicken Shashlik. Chicken Shashlik is a delicious appetizer recipe often served in restaurants. It is served on a bed of rice usually or sometimes with noodles and is a complete meal in itself. 
+The *classic* shashlik, Granny says, should be made with mutton. Chicken Shashlik is a type of Shish Kebab, very easy to prepare and can be grilled on Here is a simple recipe to make a very easy Chicken Shashlik. Chicken Shashlik is a delicious appetizer recipe often served in restaurants. It is served on a bed of rice usually or sometimes with noodles and is a complete meal in itself. 
 
 <!--inarticleads2-->
 
@@ -89,8 +89,8 @@ The &#34;classic&#34; shashlik, Granny says, should be made with mutton. Chicken
 1. Preparation ingredients
 1. Aik pan mn oil lekr garlic sanamin stick white zeera ke sath cook karain chicken ko
 1. Chicken apna colour change kar le phir add karain Shimla mirch with onion well.cooked
-1. Add all souce black pepper Vinegar mix &amp;cook
-1. Ready to cook &amp; serve to platter with egg fried rice
+1. Add all souce black pepper Vinegar mix &cook
+1. Ready to cook & serve to platter with egg fried rice
 1. Ready to serve and ENJOY!
 
 Chicken Shashlik is a delicious appetizer recipe often served in restaurants. It is served on a bed of rice usually or sometimes with noodles and is a complete meal in itself. Chicken Shashlik with Chicken Fried Rice is one of my all time favorite dish. It has a scrumptious taste must give it a try. If you want to serve Chicken Shashlik with Egg. 

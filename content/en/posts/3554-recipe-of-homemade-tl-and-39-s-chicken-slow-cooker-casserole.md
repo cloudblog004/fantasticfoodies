@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Homemade TL&amp;#39;s chicken slow cooker casserole"
-title: "Recipe of Homemade TL&amp;#39;s chicken slow cooker casserole"
+description: "Recipe of Homemade TL's chicken slow cooker casserole"
+title: "Recipe of Homemade TL's chicken slow cooker casserole"
 slug: 3554-recipe-of-homemade-tl-and-39-s-chicken-slow-cooker-casserole
 date: 2022-02-03T14:38:58.792Z
 image: https://img-global.cpcdn.com/recipes/5107017382363136/680x482cq70/tls-chicken-slow-cooker-casserole-recipe-main-photo.jpg

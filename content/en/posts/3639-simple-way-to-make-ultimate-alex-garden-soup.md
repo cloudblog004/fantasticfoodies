@@ -84,6 +84,6 @@ The following is an easy way to make it. Easy Way To Make Alex&#39;s vegetable s
 1. Enjoy!!
 1. Ready to serve and ENJOY!
 
-Cut up your chicken breast along with your carrots and dump them in a stockpot. Mia - Fallschirm (Alex Garden Bigroom Bootleg). Immune-boosting, vegan, plant based, oil free, &amp; gluten free. Great for fighting off colds and flu while cleansing with whole foods. This oil-free Cleansing Detox Soup is packed with all the good stuff, and by good stuff I mean immune-boosting natural remedies like fresh lemon juice. 
+Cut up your chicken breast along with your carrots and dump them in a stockpot. Mia - Fallschirm (Alex Garden Bigroom Bootleg). Immune-boosting, vegan, plant based, oil free, & gluten free. Great for fighting off colds and flu while cleansing with whole foods. This oil-free Cleansing Detox Soup is packed with all the good stuff, and by good stuff I mean immune-boosting natural remedies like fresh lemon juice. 
 
 So that's going to wrap it up with this exceptional food alex garden soup. 🙂 recipe. Thanks so much for your time. I'm sure you will make this at home. There's gonna be interesting food at home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!

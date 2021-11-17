@@ -92,6 +92,6 @@ To begin with this recipe, we have to prepare a few components. I had two very l
 1. The liquid, carrots, and onions can be used as sauce or a side dish.
 1. Ready to serve and ENJOY!
 
-The wine that I used was a red table wine - a very cheap bottle of Charles Shaw® Nouveau, and it worked fine. This slow-cooker chicken recipe cooks for hours in a delicious sauce that keeps the meat tender. Watch how to cook a whole chicken without heating up your entire kitchen. Keyword:How to Roast a Whole Chicken in the Crockpot. Tag me on Instagram at @familyfreshmeals or leave me a comment &amp; rating below. 
+The wine that I used was a red table wine - a very cheap bottle of Charles Shaw® Nouveau, and it worked fine. This slow-cooker chicken recipe cooks for hours in a delicious sauce that keeps the meat tender. Watch how to cook a whole chicken without heating up your entire kitchen. Keyword:How to Roast a Whole Chicken in the Crockpot. Tag me on Instagram at @familyfreshmeals or leave me a comment & rating below. 
 
 So that's going to wrap it up with this special food roasted chicken (using slow cooker) recipe. Thank you very much for your time. I'm confident that you can make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!

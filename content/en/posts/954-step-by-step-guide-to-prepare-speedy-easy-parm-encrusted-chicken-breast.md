@@ -74,6 +74,6 @@ This is an easy chicken dinner the whole family will love! I will definitely mak
 1. You will have to judge baking time if you have smaller breasts. Enjoy.
 1. Ready to serve and ENJOY!
 
-Used chicken tenders instead of breast. Was pleasantly surprised and enjoyed the yummy results. It is perfect for an Easy Chicken Parm that you can have put together with almost no effort. You can also use the chicken and create delicious sandwiches, salads The bags have four boneless, skinless chicken breast fillets that are fully-cooked. The chicken is encrusted with tasty flavorings that make. &#34;Chicken breasts for dinner? 
+Used chicken tenders instead of breast. Was pleasantly surprised and enjoyed the yummy results. It is perfect for an Easy Chicken Parm that you can have put together with almost no effort. You can also use the chicken and create delicious sandwiches, salads The bags have four boneless, skinless chicken breast fillets that are fully-cooked. The chicken is encrusted with tasty flavorings that make. *Chicken breasts for dinner? 
 
 So that is going to wrap it up for this special food easy parm encrusted chicken breast recipe. Thanks so much for your time. I'm confident that you can make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!

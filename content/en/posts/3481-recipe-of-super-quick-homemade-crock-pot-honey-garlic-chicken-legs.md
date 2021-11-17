@@ -20,7 +20,7 @@ recipeingredient:
 recipeinstructions:
 - "Everything in the crockpot"
 - "High 4-6 hours, low 8-10. Depending on crockpot."
-- "Serve over rice &amp; enjoy. (Mix left over liquid, which will be thin, in to rice for flavor.)"
+- "Serve over rice & enjoy. (Mix left over liquid, which will be thin, in to rice for flavor.)"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -58,7 +58,7 @@ To get started with this particular recipe, we have to prepare a few components.
 1. Prepare 6-8 chicken legs
 1. Make ready 1/2 cup honey
 1. Take 6-8 cloves garlic (finely chopped)
-1. Get  Salt&amp;pepper
+1. Get  Salt&pepper
 
 
 
@@ -69,7 +69,7 @@ To get started with this particular recipe, we have to prepare a few components.
 
 1. Everything in the crockpot
 1. High 4-6 hours, low 8-10. Depending on crockpot.
-1. Serve over rice &amp; enjoy. (Mix left over liquid, which will be thin, in to rice for flavor.)
+1. Serve over rice & enjoy. (Mix left over liquid, which will be thin, in to rice for flavor.)
 1. Ready to serve and ENJOY!
 
 

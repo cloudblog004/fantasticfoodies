@@ -59,8 +59,8 @@ To get started with this particular recipe, we must prepare a few ingredients. Y
 ##### The ingredients needed to make Hummus Chicken Casserole:
 
 1. Prepare 1 lb shredded chicken
-1. Prepare 16 oz &#34;everything&#34; flavored hummus
-1. Take 15 oz &#34;Patak&#39;s&#34; Korma curry
+1. Prepare 16 oz *everything* flavored hummus
+1. Take 15 oz *Patak&#39;s* Korma curry
 1. Take 1 cup tahini
 1. Prepare 1 cup garbanzo beans
 1. Get 2 tsp turmeric

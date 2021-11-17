@@ -20,7 +20,7 @@ recipeingredient:
 recipeinstructions:
 - "Mix soup and veggies in a pot on Med Low heat to warm."
 - "Cut up chicken and add to soup/veggie mix."
-- "Flatten individual biscuits an place into a greased/sprayed large muffin tin. The biscuits need to be flattened enough to cover the sides and bottom, forming a &#34;cup.&#34;"
+- "Flatten individual biscuits an place into a greased/sprayed large muffin tin. The biscuits need to be flattened enough to cover the sides and bottom, forming a *cup.*"
 - "Spoon mixture into biscuit cups and bake at temp and time listed on biscuit tube...minus 2 minutes."
 - "Ready to serve and ENJOY!"
 categories:
@@ -70,7 +70,7 @@ To get started with this recipe, we have to first prepare a few components. You 
 
 1. Mix soup and veggies in a pot on Med Low heat to warm.
 1. Cut up chicken and add to soup/veggie mix.
-1. Flatten individual biscuits an place into a greased/sprayed large muffin tin. The biscuits need to be flattened enough to cover the sides and bottom, forming a &#34;cup.&#34;
+1. Flatten individual biscuits an place into a greased/sprayed large muffin tin. The biscuits need to be flattened enough to cover the sides and bottom, forming a *cup.*
 1. Spoon mixture into biscuit cups and bake at temp and time listed on biscuit tube...minus 2 minutes.
 1. Ready to serve and ENJOY!
 

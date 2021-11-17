@@ -25,7 +25,7 @@ recipeingredient:
 - "2 T white wine vinegar"
 - "2 C baby greens"
 recipeinstructions:
-- "Mix the jam, thyme, S&amp;P to taste, in a bowl. Lay a long piece of plastic wrap on a cutting board. Place the chicken on the plastic and cover with another piece. Gently pound with a mallet to about 1/4&#34; thick."
+- "Mix the jam, thyme, S&P to taste, in a bowl. Lay a long piece of plastic wrap on a cutting board. Place the chicken on the plastic and cover with another piece. Gently pound with a mallet to about 1/4* thick."
 - "Brush half of the jam mixture evenly on top of each breast. Mound a quarter of the cheese on each piece of chicken, then wrap 2 slices of ham around each breast covering the cheese."
 - "Heat 2T oil in a medium nonstick skillet over medium-high heat. Add the wrapped chicken and cook until golden brown and crispy, 3-4 minutes each side. Meanwhile, whisk the shallot, mustard, vinegar and remaining jam mixture in a medium bowl. Slowly whisk in the remaining 3T olive oil to make a smooth dressing."
 - "Place each piece of chicken on a plate and drizzle with some of the dressing. Toss the greens with the remaining dressing; serve with the chicken."
@@ -82,7 +82,7 @@ To begin with this recipe, we must first prepare a few components. You can cook 
 
 ##### Steps to make Inside out Chicken Cordon Bleu:
 
-1. Mix the jam, thyme, S&amp;P to taste, in a bowl. Lay a long piece of plastic wrap on a cutting board. Place the chicken on the plastic and cover with another piece. Gently pound with a mallet to about 1/4&#34; thick.
+1. Mix the jam, thyme, S&P to taste, in a bowl. Lay a long piece of plastic wrap on a cutting board. Place the chicken on the plastic and cover with another piece. Gently pound with a mallet to about 1/4* thick.
 1. Brush half of the jam mixture evenly on top of each breast. Mound a quarter of the cheese on each piece of chicken, then wrap 2 slices of ham around each breast covering the cheese.
 1. Heat 2T oil in a medium nonstick skillet over medium-high heat. Add the wrapped chicken and cook until golden brown and crispy, 3-4 minutes each side. Meanwhile, whisk the shallot, mustard, vinegar and remaining jam mixture in a medium bowl. Slowly whisk in the remaining 3T olive oil to make a smooth dressing.
 1. Place each piece of chicken on a plate and drizzle with some of the dressing. Toss the greens with the remaining dressing; serve with the chicken.

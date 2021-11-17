@@ -43,7 +43,7 @@ recipeinstructions:
 - "Ab filling ready karain aik pan mn 2tsp oil add kar ke chicken ko boon lain add garlic well cooked add all dry spices with tandoori masala"
 - "Alhumdulillah ready to cook filling ab dough ko roti ki shape dain or greens ki dish mn set karain kante se spoke lagaein dough pe spread tomatoes sauce"
 - "Spread chicken onion shimla carrot zeera black pepper last mn cheez kaddu kash kar ke bake karain 20 minutes per heat oven mn 180 %pe"
-- "Ready to bake pizza serve &amp;decorate well presented"
+- "Ready to bake pizza serve &decorate well presented"
 - "Alhumdulillah enjoy chicken tandoori pizza"
 - "Ready to serve and ENJOY!"
 categories:
@@ -116,7 +116,7 @@ Italian Classic crust with toppings from the Tandoori cuisine cooking style Chic
 1. Ab filling ready karain aik pan mn 2tsp oil add kar ke chicken ko boon lain add garlic well cooked add all dry spices with tandoori masala
 1. Alhumdulillah ready to cook filling ab dough ko roti ki shape dain or greens ki dish mn set karain kante se spoke lagaein dough pe spread tomatoes sauce
 1. Spread chicken onion shimla carrot zeera black pepper last mn cheez kaddu kash kar ke bake karain 20 minutes per heat oven mn 180 %pe
-1. Ready to bake pizza serve &amp;decorate well presented
+1. Ready to bake pizza serve &decorate well presented
 1. Alhumdulillah enjoy chicken tandoori pizza
 1. Ready to serve and ENJOY!
 

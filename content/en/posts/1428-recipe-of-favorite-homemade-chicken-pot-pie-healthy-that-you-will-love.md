@@ -28,13 +28,13 @@ recipeinstructions:
 - "Cook Vegetables I Buy The Birds Eye Package Microwave 5 Minutes"
 - "Oven 350"
 - "Large Pan Over Medium Heat Mix iN Numbers 2-6 Mix Well With Wire Whisk"
-- "Now, Stir iN Onions; Stir &amp; Cook Until Thick."
-- "Now, Stir iN Numbers 8-9; Add Number 10 make sure its cooked and 1 make sure its cooked Mix &amp; Remove From Heat."
+- "Now, Stir iN Onions; Stir & Cook Until Thick."
+- "Now, Stir iN Numbers 8-9; Add Number 10 make sure its cooked and 1 make sure its cooked Mix & Remove From Heat."
 - "Now, You Need A 9 inch Pan"
 - "Now Add Your Mixture tO Pan smooth it even"
 - "Let it Set For Five Minutes."
 - "Add Your Pie Crust On Top Crease Edges, Make Slices On Top All Over"
-- "Finally, Bake for 25 Minutes If Your Edges Are Darker Then The Pie Add Foil To Edges &amp; Continue tO Bake 10 More Minutes"
+- "Finally, Bake for 25 Minutes If Your Edges Are Darker Then The Pie Add Foil To Edges & Continue tO Bake 10 More Minutes"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -91,13 +91,13 @@ To get started with this recipe, we must prepare a few ingredients. You can cook
 1. Cook Vegetables I Buy The Birds Eye Package Microwave 5 Minutes
 1. Oven 350
 1. Large Pan Over Medium Heat Mix iN Numbers 2-6 Mix Well With Wire Whisk
-1. Now, Stir iN Onions; Stir &amp; Cook Until Thick.
-1. Now, Stir iN Numbers 8-9; Add Number 10 make sure its cooked and 1 make sure its cooked Mix &amp; Remove From Heat.
+1. Now, Stir iN Onions; Stir & Cook Until Thick.
+1. Now, Stir iN Numbers 8-9; Add Number 10 make sure its cooked and 1 make sure its cooked Mix & Remove From Heat.
 1. Now, You Need A 9 inch Pan
 1. Now Add Your Mixture tO Pan smooth it even
 1. Let it Set For Five Minutes.
 1. Add Your Pie Crust On Top Crease Edges, Make Slices On Top All Over
-1. Finally, Bake for 25 Minutes If Your Edges Are Darker Then The Pie Add Foil To Edges &amp; Continue tO Bake 10 More Minutes
+1. Finally, Bake for 25 Minutes If Your Edges Are Darker Then The Pie Add Foil To Edges & Continue tO Bake 10 More Minutes
 1. Ready to serve and ENJOY!
 
 

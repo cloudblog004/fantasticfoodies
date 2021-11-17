@@ -32,9 +32,9 @@ recipeingredient:
 recipeinstructions:
 - "Sb se pehle chicken ko wash karain tamam vegs ko.wash kar cut karain"
 - "Aik pan mn oil garam.kar ke garlic ko saute karain add chicken bhoon lain achi tarha add carrot mix well and cooked add Shimla mirch"
-- "Add all ingredients soya sauce + hot chilli sauce + tomatoes ketchup + Vinegar + black pepper + salt + sugar &amp; cooked and mix well."
-- "Ready to cook &amp;serve to decorated"
-- "Serve to decorated platter &amp; enjoy dilicious chicken sweet and sour with garlic rice"
+- "Add all ingredients soya sauce + hot chilli sauce + tomatoes ketchup + Vinegar + black pepper + salt + sugar & cooked and mix well."
+- "Ready to cook &serve to decorated"
+- "Serve to decorated platter & enjoy dilicious chicken sweet and sour with garlic rice"
 - "Ready to serve and ENJOY!"
 categories:
 - Recipe
@@ -95,9 +95,9 @@ It won&#39;t be a crunchy, deep fried coating. But we think it&#39;s a nice alte
 
 1. Sb se pehle chicken ko wash karain tamam vegs ko.wash kar cut karain
 1. Aik pan mn oil garam.kar ke garlic ko saute karain add chicken bhoon lain achi tarha add carrot mix well and cooked add Shimla mirch
-1. Add all ingredients soya sauce + hot chilli sauce + tomatoes ketchup + Vinegar + black pepper + salt + sugar &amp; cooked and mix well.
-1. Ready to cook &amp;serve to decorated
-1. Serve to decorated platter &amp; enjoy dilicious chicken sweet and sour with garlic rice
+1. Add all ingredients soya sauce + hot chilli sauce + tomatoes ketchup + Vinegar + black pepper + salt + sugar & cooked and mix well.
+1. Ready to cook &serve to decorated
+1. Serve to decorated platter & enjoy dilicious chicken sweet and sour with garlic rice
 1. Ready to serve and ENJOY!
 
 Sweet and Sour Chicken is made by batter-frying chicken and then tossing it in a quick and easy sweet and sour sauce. If you love Chinese food but But really, who doesn&#39;t love crispy fried chicken with that classic sweet and sour combo? As with most of the dishes on the blog. Sweet and sour chicken is a popular Chinese recipe. For the best sweet and sour chicken, please following my cooking tips below: The combination of plum sauce, Lea and Perrins Worcestershire sauce and Chinese rice vinegar make the sauce tastes like the best Chinese restaurants. 

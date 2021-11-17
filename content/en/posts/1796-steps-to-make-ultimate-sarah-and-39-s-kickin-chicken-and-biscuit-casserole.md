@@ -1,6 +1,6 @@
 ---
-description: "Steps to Make Ultimate Sarah&amp;#39;s Kickin Chicken and biscuit casserole"
-title: "Steps to Make Ultimate Sarah&amp;#39;s Kickin Chicken and biscuit casserole"
+description: "Steps to Make Ultimate Sarah's Kickin Chicken and biscuit casserole"
+title: "Steps to Make Ultimate Sarah's Kickin Chicken and biscuit casserole"
 slug: 1796-steps-to-make-ultimate-sarah-and-39-s-kickin-chicken-and-biscuit-casserole
 date: 2022-04-19T12:36:36.744Z
 image: https://img-global.cpcdn.com/recipes/6661233037017088/680x482cq70/sarahs-kickin-chicken-and-biscuit-casserole-recipe-main-photo.jpg

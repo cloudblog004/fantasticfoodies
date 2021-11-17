@@ -56,7 +56,7 @@ To begin with this recipe, we have to prepare a few components. You can have eas
 
 ##### The ingredients needed to make Easy Buffalo Chicken Mac n Cheese:
 
-1. Take 2 (7.25 oz.) each) boxes macaroni &amp; cheese dinners
+1. Take 2 (7.25 oz.) each) boxes macaroni & cheese dinners
 1. Take 1/2 cup milk
 1. Get 1/2 cup margarine or butter
 1. Take 1 cup diced cooked chicken

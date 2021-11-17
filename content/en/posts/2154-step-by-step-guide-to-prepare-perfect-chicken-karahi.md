@@ -48,7 +48,7 @@ recipecategory: Dessert
 
 Hello everybody, it's me again, Dan, welcome to our recipe page. Today, I will show you a way to prepare a distinctive dish, chicken karahi. It is one of my favorites food recipes. For mine, I'm gonna make it a bit unique. This will be really delicious.
 
-Chicken karahi (known as gosht karahi when prepared with goat or lamb meat instead of chicken), or kadai chicken, is a dish from the Indian subcontinent noted for its spicy taste; it is notable in North Indian and Pakistani cuisine. Chicken Karahi Recipe - Pakistan Karachi Street Food - Restaurant style Chicken karahi. Chicken Karahi Dhaba Style (how to make Chicken karahi) with English subtitles. Kadai chicken recipe - Also called as chicken karahi - Learn to make the best delicious kadai Kadai chicken is almost there on most Indian restaurant menus &amp; is made differently in each place.
+Chicken karahi (known as gosht karahi when prepared with goat or lamb meat instead of chicken), or kadai chicken, is a dish from the Indian subcontinent noted for its spicy taste; it is notable in North Indian and Pakistani cuisine. Chicken Karahi Recipe - Pakistan Karachi Street Food - Restaurant style Chicken karahi. Chicken Karahi Dhaba Style (how to make Chicken karahi) with English subtitles. Kadai chicken recipe - Also called as chicken karahi - Learn to make the best delicious kadai Kadai chicken is almost there on most Indian restaurant menus & is made differently in each place.
 
 Chicken karahi is one of the most popular of recent trending meals on earth. It is simple, it is fast, it tastes delicious. It is enjoyed by millions every day. Chicken karahi is something which I have loved my whole life. They are nice and they look wonderful.
 

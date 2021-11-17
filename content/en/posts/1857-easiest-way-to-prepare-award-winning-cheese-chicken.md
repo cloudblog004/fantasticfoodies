@@ -46,7 +46,7 @@ Hey everyone, I hope you are having an amazing day today. Today, I will show you
 
 Cheese chicken is one of the most well liked of recent trending meals in the world. It is easy, it is fast, it tastes yummy. It is appreciated by millions daily. They are fine and they look fantastic. Cheese chicken is something which I have loved my whole life.
 
-How to make Cheese buldak (or Chijeu-buldak, chijeu-bool-daak), Fire chicken with cheese by Maangchi. See recipes for Crunchy pan-fried chicken wings with blue cheese dip too. A chicken cheese steak (or a &#34;chicken Philly&#34; as it&#39;s sometimes called) is my zesty twist on a Philly cheese steak. It&#39;s loaded with bold flavor, easy to prepare with just a few ingredients.
+How to make Cheese buldak (or Chijeu-buldak, chijeu-bool-daak), Fire chicken with cheese by Maangchi. See recipes for Crunchy pan-fried chicken wings with blue cheese dip too. A chicken cheese steak (or a *chicken Philly* as it&#39;s sometimes called) is my zesty twist on a Philly cheese steak. It&#39;s loaded with bold flavor, easy to prepare with just a few ingredients.
 
 
 To begin with this recipe, we must first prepare a few components. You can cook cheese chicken using 5 ingredients and 3 steps. Here is how you can achieve that.

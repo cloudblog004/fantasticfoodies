@@ -52,7 +52,7 @@ recipecategory: Dessert
 
 Hello everybody, it's Drew, welcome to our recipe page. Today, I will show you a way to prepare a special dish, pasta and lentil soup. One of my favorites. This time, I'm gonna make it a bit unique. This is gonna smell and look delicious.
 
-Fall and Winter are soup time. Lentil stew is also a traditional part of Italian New Years Eve. Chef Tony shows us his very easy and simple lentil soup. Pasta and Lentil Soup. &#34;Pasta con Lenticche&#34;. &#34;Pasta chi Linticchi&#34;.
+Fall and Winter are soup time. Lentil stew is also a traditional part of Italian New Years Eve. Chef Tony shows us his very easy and simple lentil soup. Pasta and Lentil Soup. *Pasta con Lenticche*. *Pasta chi Linticchi*.
 
 pasta and lentil soup is one of the most popular of recent trending meals on earth. It's appreciated by millions every day. It's easy, it is quick, it tastes yummy. They're fine and they look fantastic. pasta and lentil soup is something which I've loved my entire life.
 

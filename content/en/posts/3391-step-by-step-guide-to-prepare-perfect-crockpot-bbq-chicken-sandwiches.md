@@ -59,7 +59,7 @@ To begin with this recipe, we must prepare a few ingredients. You can cook crock
 
 1. Make ready 5 large chicken breasts
 1. Make ready  Your favorite BBQ sauce
-1. Take Pinch salt &amp; pepper
+1. Take Pinch salt & pepper
 1. Prepare Dash oregano
 1. Make ready Dash granulated garlic
 

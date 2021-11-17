@@ -18,12 +18,12 @@ recipeingredient:
 - "8 Chicken Breast"
 - "2 packets Ranch Dressing Mix"
 recipeinstructions:
-- "First off this makes TWO meals.  I&#39;m writing two sets of directions.   See step 2-6 for ready to make meal &amp; one freezer meal.   Skip to step 7- 13 for two freezer meals."
+- "First off this makes TWO meals.  I&#39;m writing two sets of directions.   See step 2-6 for ready to make meal & one freezer meal.   Skip to step 7- 13 for two freezer meals."
 - "Combine both cream of soups and both ranch dressing packets in a mixing bowl. Mix Well."
 - "Divide mixture in half by placing one half of the mixture in your crock pot, and dump the remaing half of the mixture into an 1 gallon sized ziploc freezer bag."
 - "Place 4 chicken breast into crock pot and add the other 4 chicken breast into the ziploc bag containing the ranch mixture."
 - "Set crock pot setting to low and cook for 8 hours.  Seal and lable the freezer bag with the name of dish, date, and cooking time. Freeze immediately! (for directions on how to cook this meal later, skip to step 11)"
-- "After chicken is cooked, shread, or cut into chunks.  Serve over rice OR with a baked potato &amp; veggies on the side.  Enjoy!"
+- "After chicken is cooked, shread, or cut into chunks.  Serve over rice OR with a baked potato & veggies on the side.  Enjoy!"
 - "Divide mixture between the two ziploc freezer bags."
 - "Place 4 chicken breast into each bag containing the ranch mixture."
 - "Seal and lable the freezer bags with the name of dish, date, and cooking time. Freeze immediately!"
@@ -75,12 +75,12 @@ To begin with this particular recipe, we must first prepare a few ingredients. Y
 
 ##### Instructions to make Crock Pot Freezer Meal Creamy Ranch Chicken:
 
-1. First off this makes TWO meals.  I&#39;m writing two sets of directions.   See step 2-6 for ready to make meal &amp; one freezer meal.   Skip to step 7- 13 for two freezer meals.
+1. First off this makes TWO meals.  I&#39;m writing two sets of directions.   See step 2-6 for ready to make meal & one freezer meal.   Skip to step 7- 13 for two freezer meals.
 1. Combine both cream of soups and both ranch dressing packets in a mixing bowl. Mix Well.
 1. Divide mixture in half by placing one half of the mixture in your crock pot, and dump the remaing half of the mixture into an 1 gallon sized ziploc freezer bag.
 1. Place 4 chicken breast into crock pot and add the other 4 chicken breast into the ziploc bag containing the ranch mixture.
 1. Set crock pot setting to low and cook for 8 hours.  Seal and lable the freezer bag with the name of dish, date, and cooking time. Freeze immediately! (for directions on how to cook this meal later, skip to step 11)
-1. After chicken is cooked, shread, or cut into chunks.  Serve over rice OR with a baked potato &amp; veggies on the side.  Enjoy!
+1. After chicken is cooked, shread, or cut into chunks.  Serve over rice OR with a baked potato & veggies on the side.  Enjoy!
 1. Divide mixture between the two ziploc freezer bags.
 1. Place 4 chicken breast into each bag containing the ranch mixture.
 1. Seal and lable the freezer bags with the name of dish, date, and cooking time. Freeze immediately!

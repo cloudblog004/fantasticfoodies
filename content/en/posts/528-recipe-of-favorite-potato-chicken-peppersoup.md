@@ -51,7 +51,7 @@ Hey everyone, it is John, welcome to my recipe page. Today, I'm gonna show you h
 
 Potato chicken peppersoup is one of the most well liked of recent trending meals in the world. It is simple, it is fast, it tastes delicious. It is appreciated by millions every day. They're nice and they look fantastic. Potato chicken peppersoup is something that I have loved my whole life.
 
-See recipes for Irish Potatoes with pepper chicken too. Hello guys, welcome back to my channel, so I prepare a delicious chicken potato pepper soup today and I hope you enjoyed it, please let me know what you. Hello Lovely people, today i am sharing with you this yummy chicken &amp; potato vegetable pepper soup recipe. Please don&#39;t forget to subscribe to my channel.
+See recipes for Irish Potatoes with pepper chicken too. Hello guys, welcome back to my channel, so I prepare a delicious chicken potato pepper soup today and I hope you enjoyed it, please let me know what you. Hello Lovely people, today i am sharing with you this yummy chicken & potato vegetable pepper soup recipe. Please don&#39;t forget to subscribe to my channel.
 
 
 To begin with this particular recipe, we have to first prepare a few ingredients. You can have potato chicken peppersoup using 8 ingredients and 4 steps. Here is how you can achieve that.

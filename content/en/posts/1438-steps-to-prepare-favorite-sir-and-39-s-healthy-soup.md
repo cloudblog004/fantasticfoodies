@@ -1,6 +1,6 @@
 ---
-description: "Steps to Prepare Favorite Sir&amp;#39;s Healthy Soup"
-title: "Steps to Prepare Favorite Sir&amp;#39;s Healthy Soup"
+description: "Steps to Prepare Favorite Sir's Healthy Soup"
+title: "Steps to Prepare Favorite Sir's Healthy Soup"
 slug: 1438-steps-to-prepare-favorite-sir-and-39-s-healthy-soup
 date: 2022-03-20T22:33:21.607Z
 image: https://img-global.cpcdn.com/recipes/5624529758978048/680x482cq70/sirs-healthy-soup-recipe-main-photo.jpg

@@ -44,7 +44,7 @@ recipecategory: Dinner
 
 Hey everyone, it is Jim, welcome to my recipe site. Today, we're going to prepare a special dish, tasty potato wedges. One of my favorites. This time, I am going to make it a little bit tasty. This will be really delicious.
 
-Preparation Thoroughly wash potatoes, cut in half, and slice into wedges. Toss wedges in olive oil and seasonings. Potato wedges are always a favorite for kids and grown-ups alike; they&#39;re easy to make and great for barbecues and parties. Potato wedges make for a great appetizer or a snack &amp; are easy to make.
+Preparation Thoroughly wash potatoes, cut in half, and slice into wedges. Toss wedges in olive oil and seasonings. Potato wedges are always a favorite for kids and grown-ups alike; they&#39;re easy to make and great for barbecues and parties. Potato wedges make for a great appetizer or a snack & are easy to make.
 
 Tasty potato wedges is one of the most popular of current trending foods on earth. It's simple, it's quick, it tastes yummy. It is enjoyed by millions daily. Tasty potato wedges is something that I have loved my whole life. They're fine and they look fantastic.
 

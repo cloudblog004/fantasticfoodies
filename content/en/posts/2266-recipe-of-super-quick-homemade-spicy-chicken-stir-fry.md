@@ -21,8 +21,8 @@ recipeingredient:
 - " Baton Rouge spicy seasoning"
 recipeinstructions:
 - "What you need:"
-- "Wash &amp; chop peppers. Chop onions."
-- "Add peppers &amp; onions to pan with a bit of water and butter to sauté medium heat."
+- "Wash & chop peppers. Chop onions."
+- "Add peppers & onions to pan with a bit of water and butter to sauté medium heat."
 - "Defrost chicken in cool water."
 - "Add a bit of spicy seasoning. Add more to desired taste."
 - "Follow directions on rice box."
@@ -67,7 +67,7 @@ To begin with this particular recipe, we have to prepare a few components. You c
 1. Get  Chicken breast
 1. Make ready  Stir-fry rice
 1. Take  Jalapenos peppers
-1. Make ready  Yellow, red, &amp; orange peppers
+1. Make ready  Yellow, red, & orange peppers
 1. Take  Onion
 1. Prepare  Baton Rouge spicy seasoning
 
@@ -79,8 +79,8 @@ To begin with this particular recipe, we have to prepare a few components. You c
 ##### Instructions to make Spicy Chicken Stir-fry:
 
 1. What you need:
-1. Wash &amp; chop peppers. Chop onions.
-1. Add peppers &amp; onions to pan with a bit of water and butter to sauté medium heat.
+1. Wash & chop peppers. Chop onions.
+1. Add peppers & onions to pan with a bit of water and butter to sauté medium heat.
 1. Defrost chicken in cool water.
 1. Add a bit of spicy seasoning. Add more to desired taste.
 1. Follow directions on rice box.

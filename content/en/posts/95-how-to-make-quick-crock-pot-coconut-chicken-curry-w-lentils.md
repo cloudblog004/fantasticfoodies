@@ -54,7 +54,7 @@ Hey everyone, hope you are having an incredible day today. Today, I will show yo
 
 Crock-Pot Coconut Chicken Curry W/ Lentils is one of the most popular of current trending meals in the world. It's simple, it's quick, it tastes yummy. It's enjoyed by millions daily. They're nice and they look fantastic. Crock-Pot Coconut Chicken Curry W/ Lentils is something which I have loved my entire life.
 
-This delicious Crockpot Coconut Lentil Curry is a slow cooker version of the most popular recipe here. This delicious crockpot coconut lentil curry is a slow cooker version of the most popular recipe on the blog. Here is how you cook it. ~Please subscribe to me &amp; make me the happiest mommy in the world!!~ Cook with me! This video is for an easy &amp; healthy crock pot soup: Chicken w/ lentils.
+This delicious Crockpot Coconut Lentil Curry is a slow cooker version of the most popular recipe here. This delicious crockpot coconut lentil curry is a slow cooker version of the most popular recipe on the blog. Here is how you cook it. ~Please subscribe to me & make me the happiest mommy in the world!!~ Cook with me! This video is for an easy & healthy crock pot soup: Chicken w/ lentils.
 
 
 To get started with this particular recipe, we have to prepare a few ingredients. You can have crock-pot coconut chicken curry w/ lentils using 12 ingredients and 3 steps. Here is how you cook it.

@@ -1,6 +1,6 @@
 ---
-description: "Recipe of Any-night-of-the-week Nettie&amp;#39;s Traditional Green Chili"
-title: "Recipe of Any-night-of-the-week Nettie&amp;#39;s Traditional Green Chili"
+description: "Recipe of Any-night-of-the-week Nettie's Traditional Green Chili"
+title: "Recipe of Any-night-of-the-week Nettie's Traditional Green Chili"
 slug: 2739-recipe-of-any-night-of-the-week-nettie-and-39-s-traditional-green-chili
 date: 2022-01-21T15:07:38.260Z
 image: https://img-global.cpcdn.com/recipes/6719377550344192/680x482cq70/netties-traditional-green-chili-recipe-main-photo.jpg

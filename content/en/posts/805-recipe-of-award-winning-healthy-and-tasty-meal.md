@@ -69,7 +69,7 @@ To begin with this recipe, we must prepare a few ingredients. You can cook healt
 1. Prepare 1 cup mayonnaise
 
 
-Choose from meat, fish or vegetarian dishes. Find trusted recipes for eating healthy: start the day with a wholesome breakfast, cut the While it may be referred to as the &#34;most important meal of the day,&#34; breakfast isn&#39;t for everyone. In this collection of tasty collection of air-fried pork chop recipes, you&#39;ll learn how to cook boneless pork chops in the. This healthy meal prep recipe is perfect for lunch or dinner: it&#39;s fresh and light tasting while still being filling and satisfying. 
+Choose from meat, fish or vegetarian dishes. Find trusted recipes for eating healthy: start the day with a wholesome breakfast, cut the While it may be referred to as the *most important meal of the day,* breakfast isn&#39;t for everyone. In this collection of tasty collection of air-fried pork chop recipes, you&#39;ll learn how to cook boneless pork chops in the. This healthy meal prep recipe is perfect for lunch or dinner: it&#39;s fresh and light tasting while still being filling and satisfying. 
 
 <!--inarticleads2-->
 
